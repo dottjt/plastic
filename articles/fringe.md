@@ -1,4 +1,6 @@
-Welcome to the fringe. An efferescent display of gaudy rigour wrapped-fancy in a quarter-mile sweat-band of pound and flesh. Don't we all just love a set of fresh eyes, daudy fuckin' crand, carrying themselves helplessly towards the emotionless gaze tying us all together in this pit of love and despair. My fingers dig-deep into the scar tissue oozing from imagination, manic to the pixie queen shaking violently to an empty bottle of Cultivar Gin.
+Welcome to the fringe.
+
+An efferescent display of gaudy rigour wrapped-fancy in a quarter-mile sweat-band of pound and flesh. Don't we all just love a set of fresh eyes, daudy fuckin' crand, carrying themselves helplessly towards the emotionless gaze tying us all together in this pit of love and despair. My fingers dig-deep into the scar tissue oozing from imagination, manic to the pixie queen shaking violently to an empty bottle of Cultivar Gin.
 
 Recently I decided to buy a house, something which I would consider an achievement. Surely, anything which defines necessity should be considered an achievement, or has the necessity trumped me as part of some underground ritual of autonomous self-hate and misdemeanour. It has windows with a tight sheen for upper-class movement, and it's doors come fixed with an embrace for communal living. The backyard by any means, is a timid beast. It's what the vicar ordered and more.
 
@@ -21,4 +23,10 @@ What I believe at the end of the day is in the power of resilience and so far, t
 Sure, there are times at night where I fall into an awful twitch. Usually in response to having so much responsibility around me, that I don't quite know how to cope. Although I suspect it's because of the huge-backlog of homeownership which taunts me in each frame of my existence. Is the avocado tree I planted going to suffer a heart-attack in the middle of the night? When will I have time to paint all these walls? And the who the fuck will build all this Ikea furniture?
 
 All questions which will surely adapt and rearrange themselves in due time, as the pressure continues it's cataclysmic rise into some kind of post-orgasmic monster.
+
+A young immigrant stares into my eyes, searing patiently with an immuninescent intensity set on forgotting his past. It's a psychological duel.
+
+
+Marrissa handed me the soap.
+
 

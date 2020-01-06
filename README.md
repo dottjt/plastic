@@ -2,9 +2,12 @@
 
 I am in the process of writing a novel (I think) and this is essentially the repository for it.
 
+## Outline
 
+The entire book is a collection of stories (each story representing a chapter) about 
 
-## Notes
+It's a collection of stories from someone's life.
+
 
 It's about a weekend someone has.
 
@@ -38,5 +41,16 @@ addict.
 mania.
 
 sunk.
+
+travel.
+
+
+
+
+A drunken encounter.
+Travel.
+
+// think of things that have happened in my life.
+
 
 

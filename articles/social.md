@@ -4,8 +4,4 @@ Tonight's obligations are being delivered on a pro rata basis, dragging itself m
 
 I wasn't quite sure what to think of the haste pleasantries that were being thrown my way, lost in the thick quandary permeating through my velvet angular plea. Although in fashionable response I simply yawned at the thought and hovered away into the tight spaces pre-occupying the corridor into the dilapidated lounge awaiting my arrival.
 
-
-
-
-
 "My compliments to the chef", I thought, rather aimlessly.

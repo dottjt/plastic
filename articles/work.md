@@ -1,6 +1,8 @@
+# Work
+
 Work ain't so bad.
 
-It's not a complete orgy of totalitarian devastation, designed solely to propagate pus and confetti in it's undying commitment to reprogram you into a useful, well-behaved utility. Nor is it the kind of affair that begs to dribble you in nonsensical pleasure, lesser to the pagan beliefs you uphold as gospel upon God's almighty vision.
+It's not a complete orgy of totalitarian devastation. A subterranean scheme designed solely to propagate pus and confetti in it's undying commitment to reprogram you into a useful, well-behaved utility. Nor is it the kind of affair that begs to dribble you in nonsensical pleasure, lesser to the pagan beliefs you uphold as gospel upon God's almighty vision.
 
 It's more of a mechanical duet featuring last week's best face and a palette of discount plastic cheese squares, suitably moulded into tiny matchsticks for your tongue to delight. How the bacteria likes it cheap. "Half a matchstick each day keeps ol' Maggie away from caressing the heart monitor!", a somewhat delirious lie if I ever heard one, and an enticingly offensive remark considering the integrity of these tight, syncratic lips. Beauty in their form and sour in their unreckoning desire to force grace into the tiny, dopamine-sized pockets preoccupying our brains. Pour the brandy into thy castle and deliver thy swine from the depths of hell. Oh, ever so hellish indeed.
 
