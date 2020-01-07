@@ -20,6 +20,7 @@ Co-worker: Milo
 ### life.
 
 - Character meets with a book Editor. They go out to lunch. Introduces the character and his style.
+- Exposes that the character finds others stupid, especially authority figures. An outcast.
 
 ### work.
 
@@ -78,15 +79,19 @@ Co-worker: Milo
 
 -
 
-### help.
+### depression.
 
-- Character seeks help.
+-
 
 
 <!-- 16 -->
 
 ### slave.
 
+
+### help.
+
+- Character seeks help.
 
 
 ### death.
@@ -96,6 +101,10 @@ Co-worker: Milo
 
 Possibly chapters/explorations:
 
-### blog.
+### blog. - talks about the blog he writes.
+### church. - talks about his faith.
 
-- talks about the blog he writes.
+
+# NOTES:
+
+Assuming that I manage to write 1,000 words a day, I'll be able to have enough words for a novel within 90 days, or perhaps three months. I imagine that's not reasonable, so it will probably take 6 months to produce those words. Within that period, I will also need to edit and refine the story. I imagine that will take probably
