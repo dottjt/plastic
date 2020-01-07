@@ -1,6 +1,8 @@
 Welcome to the fringe.
 
-An efferescent display of gaudy rigour wrapped-fancy in a quarter-mile sweat-band of pound and flesh. Don't we all just love a set of fresh eyes, daudy fuckin' crand, carrying themselves helplessly towards the emotionless gaze tying us all together in this pit of love and despair. My fingers dig-deep into the scar tissue oozing from imagination, manic to the pixie queen shaking violently to an empty bottle of Cultivar Gin.
+<!-- Monologue #1 -->
+
+An effervescent display of gaudy rigour wrapped-fancy in a quarter-mile sweat-band of pound and flesh. Don't we all just love a set of fresh eyes, daudy fuckin' crand, carrying themselves helplessly towards the emotionless gaze tying us all together in this pit of love and despair. My fingers dig-deep into the scar tissue oozing from imagination, manic to the pixie queen shaking violently to an empty bottle of Cultivar Gin.
 
 Recently I decided to buy a house, something which I would consider an achievement. Surely, anything which defines necessity should be considered an achievement, or has the necessity trumped me as part of some underground ritual of autonomous self-hate and misdemeanour. It has windows with a tight sheen for upper-class movement, and it's doors come fixed with an embrace for communal living. The backyard by any means, is a timid beast. It's what the vicar ordered and more.
 
@@ -10,7 +12,9 @@ I live in the kind of area that demotes personality. It is new-found rugged, wit
 
 It won't quite eat you alive, but it's an easy thing to portray for those none-the-wiser. Eat the lies up sweetie. They're delicious in glee.
 
-The first thing which hits you is the commute. It takes me roughly 2 hours to get to the city (where I work), which is something I've largely become accustomed to. For better or worse, necessity dictates all and with this newfound love you shall smile where those might weep and weep where the darkness continues. Pretty smile, pretty pickle. Don't be shy at this year's annual cluster-fuck drowning! Pray the body-bag fits your eyes, although there's an upgrade coming for next-season's killing.
+
+
+The first thing which hits you is the commute. It takes me roughly 2 hours to get to the city, which is something I've largely become accustomed to. For better or worse, necessity dictates all and with this newfound love you shall smile where those might weep and weep where the darkness continues. Pretty smile, pretty pickle. Don't be shy at this year's annual cluster-fuck drowning! Pray the body-bag fits your eyes, although there's an upgrade coming for next-season's killing.
 
 I must admit, I actually had a bit of an outer-body experience when I looked at where exactly my residence was situated relative to the rest of the metropolis. It occurred to me that it was just as far away as my childhood home was, which at the time was in the complete sticks. Now I'm sure it's worth millions.
 
@@ -25,6 +29,8 @@ Sure, there are times at night where I fall into an awful twitch. Usually in res
 All questions which will surely adapt and rearrange themselves in due time, as the pressure continues it's cataclysmic rise into some kind of post-orgasmic monster.
 
 A young immigrant stares into my eyes, searing patiently with an immuninescent intensity set on forgotting his past. It's a psychological duel.
+
+
 
 
 Marrissa handed me the soap.
