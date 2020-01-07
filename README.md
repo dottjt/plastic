@@ -10,12 +10,8 @@ The writing is largely based on the first-person observations and interactions o
 
 The character does not have a name.
 
-
-
-
 Editor: Marty
-
-
+Co-worker: Milo
 
 ## Chapters.
 
@@ -43,6 +39,10 @@ Editor: Marty
 
 <!-- 06 - The scandal -->
 
+### therapist.
+
+- Meets up with his therapist.
+
 ### drugs.
 
 - Character takes drugs. Becomes an addict. The degradation.
@@ -59,11 +59,12 @@ Editor: Marty
 
 - It's late at night. Describe their observations as he walks towards the city.
 
+
+<!-- 11 -->
+
 ### steal.
 
 -
-
-<!-- 11 -->
 
 ### consume.
 
@@ -81,9 +82,20 @@ Editor: Marty
 
 - Character seeks help.
 
-### slave.
-
 
 <!-- 16 -->
 
-###
+### slave.
+
+
+
+### death.
+
+
+
+
+Possibly chapters/explorations:
+
+### blog.
+
+- talks about the blog he writes.
