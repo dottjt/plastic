@@ -1,4 +1,17 @@
+# therapy.
 
+
+
+
+
+Every man dreams.
+
+It's on the cover of every magazine, staring you down in a bid to prove just who can be more successful. The hot, dashing young man covered in a ripple of
+
+There are some with a fantasy to discuss a big-breasted child with a severe OCD for sucking cock.
+
+
+Surely, in raptum we trust.
 
 
 A finer touch if ever you demanded one, although as we both know, these words are nothing more than a trap our senses are both trying to fight. “It’s okay to burn”, preaches the local glass nun, shouting vast through these pages without even a hint of respite, white powder thick to her heels in a perfect mirage of gloss and so sheen. Ah yes, and just when you thought life’s searing gaze couldn’t get any worse, a talking Harry presents itself in full-fashion and it just doesn’t know when to stop. Shut up Harry. You violent Harry. Fucking Harry.
@@ -7,7 +20,7 @@ Curdled jelly splatters across your face, filling the hollow arteries of your ve
 
 Given our therapy session has officially begun, I think it’s worth mentioning a few things which I’m sure will help shape our timely discourse. Ultimately, I want you as the reader to take full-view of the Julius Reade TM experience as if you were the great man himself, cast dazzling in perfect tanned bronze upon a height of glory last emanated from the creation of the sun. Looking past the corruption and blatant animal abuse, I think there’s a lot to like about this guy. He lathers his tongue in a motion of self-loathing, and he encourages an agonising torment of indecision, abysmally profound in it's making. The tribe gathers itself around the bounty, thrashing itself about in a sadistic two-time beat. The cheap candy slathers in a ritual known as the hoard, pertain to the long-lasting peace you've always desired. There's a knife on the table and Mr. Compadre sitting across from you has something to say. Let's see who can scream louder.
 
-Certainly, I don't mean to offend you. I mean, don't like to split either, but words are designed to divide and that's precisely what I intend to do. To grab your imagination and divide, mimic and taunt the non-sensical derivative bordering your emotional instability which tautologically speaking, should not be touched. Let us for a brief moment become savant together, and share these words without any consideration of the consequences which may ensue. Without any doubt in my mind, this book aims to be tactical in it's abuse and
+Certainly, I don't mean to offend you. I mean, don't like to split either, but words are designed to divide and that's precisely what I intend to do. To grab your imagination and divide, mimic and taunt the non-sensical derivative bordering your emotional instability which frankly speaking, should not be touched. Let us for a brief moment become savant together, and share these words without any consideration of the consequences which may ensue. Without any doubt in my mind, this book aims to be tactical in it's abuse and
 
 So let me try and paint you a picture.
 

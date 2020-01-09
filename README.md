@@ -8,10 +8,7 @@ The intention of the novel is to take you through a provocatively erotic theme-p
 
 The writing is largely based on the first-person observations and interactions of this character.
 
-The character does not have a name.
-
-Editor: Marty
-Co-worker: Milo
+The character does not have a name. In fact, his love interest is the only one who has a name. Milo.
 
 ## Chapters.
 
@@ -45,6 +42,8 @@ Co-worker: Milo
 - Meets up with his therapist.
 
 ### drugs.
+
+Stevie was a stewer. Stevie loved to stew.
 
 - Character takes drugs. Becomes an addict. The degradation.
 

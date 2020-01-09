@@ -3,9 +3,19 @@
 
 <!-- Opening Monologue -->
 
-There's something fantastic about sodomy.
+There's something fantastic about class-action rape.
 
-It's a religious travesty of heightened caution, no different to the response of blowing up a bus-full
+A religious travesty of heightened caution, no different to blowing up a entire school bus full of Indonesian school children, limbs akimbo, burnt sheets of trigonometry fluttering down in a cascade of ceremony, only to condemn those who practice the ancient art of pretending to care.
+
+"You really are evil, aren't you?" says Milo,
+
+"It's just a joke. A light teaser of things to come," I remarked, hoping to sound intellectual in a way that makes you want to fuck the parent more than your own partner.
+
+The bright vivid crayon reflections of the river below
+
+
+
+
 
 
 <!-- Opening Monologue -->

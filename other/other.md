@@ -3,11 +3,13 @@ and porous calamity
 
 
 
+ of a fishbowl of fake, lead-induced candy, chirpy, chip, chi to the children's ward downtown.
+
 
 The nauseous dog speaks.
 
 
-
+An OCD for sucking cock.
 
 
 The Chair.
@@ -17,6 +19,8 @@ I kicked her off her chair. Obviously, presumptuous of me
 
 
 
+
+, perked upright like a racist pantomime piece of shit.
 
 
 
@@ -47,3 +51,19 @@ The first and perhaps more predominant theme is that of artificialness. It’s a
 The second theme is that of degradation, guilt and self-harm. I feel that a lot of life is expressed in these terms to an extent which is often out of our control,
 
 Although I maintain a high level of self-respect, no longer bridled in addiction or self-harm (the latter is questionable) the point is that there is no possible way I could have written an entire book if it weren’t for this
+
+
+
+
+
+
+Thrust manic through a vision which holds itself together in fake competition, moaning anguish at the avaricious nature of the cancer it once called growth
+
+
+
+
+
+An orgy of alpha-expression primed with buckets of meat and lean equestrian talents.  Then you slice him with . I was side-tracked. Where was I again.
+
+
+In that very moment, the asian man preoccupying my body died in shame, replaced by an inaccurate testimony of
