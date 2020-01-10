@@ -1,4 +1,18 @@
 
+# life-01.md
+
+nauseous in the underlying assumptions creeping itself into our veins.
+
+one tippity-tap away from enlightened expedition,
+
+dearly hoping it would kill me before rendering me entire paralysed from the waist down.
+
+A floundering point of asymptotic reference, carelessly vague in it's accelerating motion creeping itself into our veins.
+
+Hopelessly devoid of nutritional content, cowering silent in packets of coddled destitution.
+
+
+#
 
 
 There's nothing I hate more than the sound of another person eating. It's a bit like being inconsistently water-tortured

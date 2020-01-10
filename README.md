@@ -10,12 +10,12 @@ The writing is largely based on the first-person observations and interactions o
 
 Character - Cynical Hound.
 The Editor - Crazed Yuppie.
-Milo - Female Character
-The Boss - Plain Hard-ass.
-The Friend - Wee-bo.
-The Mother - Tiger Parent.
-The Helper -
-
+Milo - Female Character.
+The Boss - Plain Asshole.
+The Friend - Weebo Chinese Kid. (Hans)
+The Mother - Asian Tiger Parent.
+The Helper - Submissive Helper.
+The Therapist - Autistic 
 
 ## Chapters.
 
