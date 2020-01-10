@@ -1,6 +1,8 @@
+# friend.
+
 Welcome to the fringe.
 
-<!-- Monologue #1 -->
+<!-- Describe Fringe -->
 
 An effervescent display of gaudy rigour wrapped-fancy in a quarter-mile sweat-band of pound and flesh. Don't we all just love a set of fresh eyes, daudy fuckin' crand, carrying themselves helplessly towards the emotionless gaze tying us all together in this pit of love and despair. My fingers dig-deep into the scar tissue oozing from imagination, manic to the pixie queen shaking violently to an empty bottle of Cultivar Gin.
 
@@ -11,7 +13,6 @@ And yet here we are. At a point suspended in time, despondent in it's awe, captu
 I live in the kind of area that demotes personality. It is new-found rugged, with a hearty family-core. The kind of place that instigates failure for white-men over the age of 50, as they prune their beards in hope of Anglican saviour. Don't like a kebab? Eat a kebab, you slut. This is the movement you wished for. Now go out and get it, you amiritious hunk of non-classification.
 
 It won't quite eat you alive, but it's an easy thing to portray for those none-the-wiser. Eat the lies up sweetie. They're delicious in glee.
-
 
 
 The first thing which hits you is the commute. It takes me roughly 2 hours to get to the city, which is something I've largely become accustomed to. For better or worse, necessity dictates all and with this newfound love you shall smile where those might weep and weep where the darkness continues. Pretty smile, pretty pickle. Don't be shy at this year's annual cluster-fuck drowning! Pray the body-bag fits your eyes, although there's an upgrade coming for next-season's killing.
@@ -30,6 +31,10 @@ All questions which will surely adapt and rearrange themselves in due time, as t
 
 A young immigrant stares into my eyes, searing patiently with an immuninescent intensity set on forgotting his past. It's a psychological duel.
 
+
+
+
+Rocked up in an old Holden Camino , was my Friend who 
 
 
 

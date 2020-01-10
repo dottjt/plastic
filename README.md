@@ -4,42 +4,56 @@ How to kill a Chinaman is my first novel. It is a collection of stories (based o
 
 The novel doesn't have a narrative per-say. Rather, the character itself is the "narrative" in the sense that it is the subject being developed and understood by the reader.
 
-The intention of the novel is to take you through a provocatively erotic theme-park of calming therapy and extreme trauma. I want it to drop you violently against the floor, crushing your skull in a sudden knockout thud, as well as drift you beautifully into exciting and fascinating worlds.
+The intention of the novel is to take you through a provocative theme-park of erotic therapy and extreme trauma. To drop you violently against the floor, crushing your skull in a sudden knockout thud, drifting you beautifully into a state of perpetual coma.
 
-The writing is largely based on the first-person observations and interactions of this character.
+The writing is largely based on the first-person observations and interactions of an unnamed character. The only character which is named is his love interest, Milo.
 
-The character does not have a name. In fact, his love interest is the only one who has a name. Milo.
+Character - Cynical Hound.
+The Editor - Crazed Yuppie.
+Milo - Female Character
+The Boss - Plain Hard-ass.
+The Friend - Wee-bo.
+The Mother - Tiger Parent.
+The Helper -
+
 
 ## Chapters.
 
-<!-- 00 - The setup -->
+<!-- 00 - The Setup -->
 
 ### life.
 
-- Character meets with a book Editor. They go out to lunch. Introduces the character and his style.
-- Exposes that the character finds others stupid, especially authority figures. An outcast.
+- This chapter introduces the Character and the Editor.
+- Character meets with Editor. They go out to lunch.
+- Character gets fed up with Editor. Leaves.
 
 ### work.
 
-- Character is back at work, following the meeting with the editor. Features interaction with a co-worker, whom he loves. Asks about editor meeting.
-
-### fringe.
-
-- Talks about the suburbs where the character lives. Reveals more about his lifestyle. Perhaps where he goes to eat. Who his partner is.
+- This chapter introduces his love interest, Milo, as well as the Boss.
+- Character returns from meeting with Editor.
+- Interacts with Milo.
+- Interacts with The Boss.
 
 ### date.
 
-- Goes on a date with his co-worker. They have dinner. Describes getting drunk at a bar. They have sex.
+- This chapter develops Milo and the Character's love story.
+- Character goes to the movies with Milo.
+- Character goes to a bar with Milo.
+- Character progressively gets more and more drunk, before passing out.
+
+### house.
+
+- This chapter introduces the Friend and House.
+
+- Character talks about relationships with the Friend.
 
 ### family.
 
-- Meets up with his parents. They fight. They're miserable.
+- This chapter introduces the Mother and the Helper.
+- Character
+- They fight. They're miserable.
 
 <!-- 06 - The scandal -->
-
-### therapist.
-
-- Meets up with his therapist.
 
 ### drugs.
 
@@ -47,13 +61,14 @@ Stevie was a stewer. Stevie loved to stew.
 
 - Character takes drugs. Becomes an addict. The degradation.
 
+### therapist.
+
+- Meets up with his therapist.
+
+
 ### bubble.
 
 - The stock market crashes and the character loses their job. They get
-
-### confrontation.
-
-- Character sees his partner. They break-up. He gets kicked out of the house.
 
 ### night.
 
@@ -62,25 +77,23 @@ Stevie was a stewer. Stevie loved to stew.
 
 <!-- 11 -->
 
-### steal.
+### market.
+
+- This chapter introduces the fall of the Character.
+- Character attends a weekend market.
+
+### depression.
 
 -
-
-### consume.
-
-- The character
-
-### rape.
-
-- The character rapes a homeless woman.
 
 ### mania.
 
 -
 
-### depression.
+### confrontation.
 
--
+- Character sees his partner. They break-up. He gets kicked out of the house.
+
 
 
 <!-- 16 -->
@@ -96,7 +109,7 @@ Stevie was a stewer. Stevie loved to stew.
 ### death.
 
 
-
+therapy. tharipy.
 
 Possibly chapters/explorations:
 
