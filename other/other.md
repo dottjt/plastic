@@ -11,14 +11,29 @@ A floundering point of asymptotic reference, carelessly vague in it's accelerati
 
 Hopelessly devoid of nutritional content, cowering silent in packets of coddled destitution.
 
+cowering itself into coddled destitution.
 
-#
+at the clamature of the situation
+In contemporary fashion,
+followed by a unwitting gasp at the clamature of the situation,
 
+The expectation was vast, ripping itself into the skin and bone of the casual patron,
+
+ within these doors. Those flakey lines of trodden harmony? Were they real? Did they seek pleasure?
+
+Balthazar, Gaspar and Melchior, a commercial success of comical foundry. First you cut the cunt down. Then you leave him bleeding in a flurry of panic and lean excavation. Then you crepe your victim via a most beautiful method of distortion, taught only by seventh century con-artists and those with a phonetic tradition to lie.
+
+Chinese daughter with a taste for obedience and a genetic
 
 There's nothing I hate more than the sound of another person eating. It's a bit like being inconsistently water-tortured
 
 and porous calamity
 
+on an excruciating timeline
+
+a misunderstood preamble of financial servitude and genetic shivery,
+
+#
 
 
  of a fishbowl of fake, lead-induced candy, chirpy, chip, chi to the children's ward downtown.
