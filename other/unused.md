@@ -33,7 +33,11 @@ on an excruciating timeline
 
 a misunderstood preamble of financial servitude and genetic shivery,
 
-#
+shared amongst the consortium of bacteria suckling their teats upon the tears of happiness now drenched in acid, I proceeded to re-insert the misery module in the conveniently-placed
+
+# 02-work.md
+
+We would then create the ultimate safari experience, allowing you to kill, maim or disturb as many innocent animals as you fit please, as long as the barrel of your gun is large enough to wipe it out in one shot. I'm sure the funding will come in soon.
 
 
  of a fishbowl of fake, lead-induced candy, chirpy, chip, chi to the children's ward downtown.
