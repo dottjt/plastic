@@ -1,6 +1,8 @@
 
 # life-01.md
 
+carelessly vague in it's accelerating motion
+
 nauseous in the underlying assumptions creeping itself into our veins.
 
 one tippity-tap away from enlightened expedition,
@@ -43,6 +45,18 @@ We would then create the ultimate safari experience, allowing you to kill, maim 
  of a fishbowl of fake, lead-induced candy, chirpy, chip, chi to the children's ward downtown.
 
 
+# 03-date.md
+
+# 04-house.md
+
+
+
+
+# 05-family.md
+
+
+
+
 The nauseous dog speaks.
 
 
@@ -68,10 +82,17 @@ I kicked her off her chair. Obviously, presumptuous of me
 
 
 
+
+
 Is the face clean?
 
 
 Legs like bones.
+
+
+"There's something about these plane seats that absolutely adore me," sparkles the anxious broad sitting besides me. Unable to match her intensity, I opt to imagine what she's wearing underneath the crumb-infested disgrace of a blouse.
+
+The agoni
 
 
 

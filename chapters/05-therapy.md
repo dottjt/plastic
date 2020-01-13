@@ -2,9 +2,7 @@
 
 <!-- Human Fantasy Discussion -->
 
-Every man dreams.
-
-It's on the cover of every magazine, staring you down in a bid to prove just who can be more successful. The hot, dashing young man covered in a ripple of
+Everyone dreams. It's on the cover of every magazine, staring you down in a bid to prove just who can be more successful. The hot, dashing young man covered in a ripple of
 
 There are some with a fantasy to discuss a big-breasted child with a severe OCD for sucking cock.
 

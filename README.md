@@ -15,37 +15,24 @@ The Boss - Plain Asshole.
 The Friend - Weebo Chinese Kid. (Hans)
 The Mother - Asian Tiger Parent.
 The Helper - Submissive Helper.
-The Therapist - Autistic 
+The Therapist - Autistic
 
 ## Chapters.
 
 <!-- 00 - The Setup -->
 
-### life.
+### 01 - life.
 
 - This chapter introduces the Character and the Editor.
 - Character meets with Editor. They go out to lunch.
 - Character gets fed up with Editor. Leaves.
 
-### work.
+### 02 - work.
 
 - This chapter introduces his love interest, Milo, as well as the Boss.
 - Character returns from meeting with Editor.
 - Interacts with Milo.
 - Interacts with The Boss.
-
-### date.
-
-- This chapter develops Milo and the Character's love story.
-- Character goes to the movies with Milo.
-- Character goes to a bar with Milo.
-- Character progressively gets more and more drunk, before passing out.
-
-### house.
-
-- This chapter introduces the Friend and House.
-
-- Character talks about relationships with the Friend.
 
 ### family.
 
@@ -53,18 +40,25 @@ The Therapist - Autistic
 - Character
 - They fight. They're miserable.
 
-<!-- 06 - The scandal -->
+### house.
 
-### drugs.
+- This chapter introduces the Friend and House.
 
-Stevie was a stewer. Stevie loved to stew.
+- Character talks about relationships with the Friend.
 
-- Character takes drugs. Becomes an addict. The degradation.
-
-### therapist.
+### therapy.
 
 - Meets up with his therapist.
 
+<!-- 06 - The scandal -->
+
+### birthday.
+
+- Talks about the user's birthday.
+
+### anxiety.
+
+- Talks about the user's birthday.
 
 ### bubble.
 
@@ -73,6 +67,14 @@ Stevie was a stewer. Stevie loved to stew.
 ### night.
 
 - It's late at night. Describe their observations as he walks towards the city.
+
+
+
+### drugs.
+
+Stevie was a stewer. Stevie loved to stew.
+
+- Character takes drugs. Becomes an addict. The degradation.
 
 
 <!-- 11 -->
@@ -93,6 +95,15 @@ Stevie was a stewer. Stevie loved to stew.
 ### confrontation.
 
 - Character sees his partner. They break-up. He gets kicked out of the house.
+
+
+### date.
+<!-- I don't think this will be a long chapter -->
+
+- This chapter develops Milo and the Character's love story.
+- Character goes to the movies with Milo.
+- Character goes to a bar with Milo.
+- Character progressively gets more and more drunk, before passing out.
 
 
 
