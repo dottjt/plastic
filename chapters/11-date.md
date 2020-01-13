@@ -6,7 +6,7 @@ There's something fantastic about sodomy. A religious travesty of heightened cau
 
 "You really are evil, aren't you?" says Milo, skipping about on the side walk, a-twirl in her own world of disturbing imagination of primary fascination. A curious beast I one-day hoped to tame and unleash, like a feel-good tsunami of sexual domination. Clearly, you didn't need to hear that.
 
-"It's just a joke," I remarked, a light teaser of things to come, hoping to sound lost in my own intellectuality, obviously drowning in an air of desperation I'd simply accepted as the lonely cousin following me around everywhere.
+"It's just a joke," I remarked, a light teaser of things to come, hoping to sound lost in my own intellectuality, obviously inundated in an air of desperation I'd simply accepted as the lonely cousin following me around everywhere.
 
 The harbor atmosphere, caulked in the silhouette of a family galore, witnessing a domestic episode of "dad knows best", was suitably romantic, if not a touch endearing. As I looked up at the night sky, it was clear that the clouds were amiss in their treachery, shrouding their eerie ways into the whispering wind and creeping shadows, lurking and melding themselves into our fragmented movement refracting against the crayon river below. Thankfully it was just enough to convince her to hold my hand, something which I'd been thinking about since we first met.
 

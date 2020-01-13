@@ -131,3 +131,8 @@ Possibly chapters/explorations:
 # NOTES:
 
 Assuming that I manage to write 1,000 words a day, I'll be able to have enough words for a novel within 90 days, or perhaps three months. I imagine that's not reasonable, so it will probably take 6 months to produce those words. Within that period, I will also need to edit and refine the story. I imagine that will take probably
+
+
+# used.
+
+treat.

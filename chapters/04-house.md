@@ -8,6 +8,15 @@ Recently I decided to buy a house, something which I would consider an achieveme
 
 And yet here we are. At a point suspended in time, despondent in it's awe, captured only moments ago on a 10' inch single-frame picture to be endlessly thrown into question, as the words drown you out approaching your 27th birthday. The cream-pie is delicious dear, please do make more.
 
+"You know you look like shit, right," uttered my friend, casked in stack of boxes as he stumbled his way to the van.
+
+"Go face-fuck yourself," I shouted, almost giddy at the uncompromising nature of my remark. It was always the delicate wordplay that astonished me, choking
+
+
+ slightly choking on the wordplay for how smartly delicate it made me feel.
+
+
+
 I live in the kind of area that demotes personality. It is new-found rugged, with a hearty family-core. The kind of place that instigates failure for white-men over the age of 50, as they prune their beards in hope of Anglican saviour. Don't like a kebab? Eat a kebab, you slut. This is the movement you wished for. Now go out and get it, you amiritious hunk of non-classification.
 
 It won't quite eat you alive, but it's an easy thing to portray for those none-the-wiser. Eat the lies up sweetie. They're delicious in glee.
