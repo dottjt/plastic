@@ -33,7 +33,7 @@ accumulative_commit_word_stats() {
 
   for repo_commit_id in $REPO_COMMITS
   do
-    git checkout $repo_commit_id
+    git checkout $repo_commit_id --quiet
     COMMIT_WORD_TOTAL=0
 
     for chapter_file in $(ls chapters)
