@@ -6,10 +6,6 @@ extract_commit_information () {
   ls
 }
 
-extract_commit_id () {
-  sed 's/ .*//'
-}
-
 revert_to_master() {
   git checkout master --quiet
 }
@@ -29,7 +25,7 @@ latest_branch_stats() {
 }
 
 accumulative_commit_word_stats() {
-  REPO_COMMITS=$(git log --oneline | extract_commit_id)
+  REPO_COMMITS=$(git log --reverse --oneline | awk '{print $1}')
 
   for repo_commit_id in $REPO_COMMITS
   do
@@ -54,7 +50,7 @@ revert_to_master
 
 # for file in $(ls chapters)
 # do
-#   FILE_COMMITS=$(git log --oneline ./chapters/$file | extract_commit_id)
+#   FILE_COMMITS=$(git log --reverse --oneline ./chapters/$file | extract_commit_id)
 #   echo "Commits for $file"
 #   for file_commit_id in $FILE_COMMITS
 #   do
