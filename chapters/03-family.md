@@ -2,7 +2,7 @@
 
 <!-- Describe the house -->
 
-A single sperm is all it takes a to ruin a household. One pseudoephedrine-encapsulated collaboration involving a three-year specialisation in through self-abuse studies and the mastery of an erroneous puppet, funded inconspicuously by the Catholic women's society from down the road. Yet it takes an entire hoard of sperm through the tight corridors of the uterus, from a pack of young men standing around in a rubber Nixon mask to fund college, a daring challenge for a new generation of holes which only generously fit three. I think I like the odds.
+A single sperm is all it takes a to ruin a household. One pseudoephedrine-encapsulated collaboration involving a three-year specialisation in post-war self-abuse and the mastery of an erroneous puppet, funded inconspicuously by the Catholic women's society from down the road. Yet it takes an entire hoard of sperm through the tight corridors of the uterus, from a pack of young men standing around in a rubber Nixon mask to fund college, a daring challenge for a new generation of holes which only generously fit three. I think I like the odds.
 
 In the rolling hills of splendor, surrounded by the lush green crust which upholds the mountains of concrete and inflated stock options breathing life into the thick insoluble clay leeching industrial minerals, begins the amiable foundings of a worthy few, perched by the flimsy housewifes wearing $5 cardigans made of refined polyester. Monstrous structures built from Chinese Communist Party exuberance, host to an extravagant marble display of finger-lickin' grandeur, taint to the mistress currently tying your illegible wife to a makeshift torture device firing holy incense into her vagina.
 

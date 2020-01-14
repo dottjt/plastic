@@ -1,8 +1,6 @@
 # buzz
 
-Sour grapes are a chaffy treat.
-
-The delicate spine hunches over its desk without query, examining the shades of misconfigured lamp along the dark, cold wall - supporting his expedition into the literary foray. Sheets of paper describing mounds of ill-defined taste, blooming into a river of non-fluent diaspora. 
+Sour grapes make a chaffy treat. The delicate spine hunches over it's desk without query, examining the shades of misconfigured lamp along the dark, cold walls supporting his fine trepidation into the literary foray. Sheets of paper describing mounds of ill-defined taste, blooming into a river of non-fluent diaspora. 
 
 There's something disturbing, something brewing in his coffee, infecting his mind with an uncanny chatter - knocking over the wrinkles and follicles leeching from his face. It's apparent there's trouble, because the man is afraid. 
 

@@ -8,6 +8,8 @@ At least all of this would hold true if the dreaded excess of work didn't also l
 
 Following this morning's disastrous ousting with the editor, I was truly in no mood to sort paper, snort wafer, nor entertain my manager with my uncanny ability to tap plastic in a two-time beat. In the back of mind, what I truly wanted was a gun and a live-animal to contest with inside a 60,000 seat arena, as I repeatedly expressed my debilitating sorrow and uncompromising vision to succeed by emptying a few rounds into the head of a docile four-legged creature, preferably in front of it's own fawn. It's dead carcass was then to be held by the ears and kissed by it's slobbering mouth, as I grin awkwardly into the sun for the photographer to capture and idealise.
 
+The immaculate glass doors of the refurbished warehouse, enamoured in exotic plants and a custom wood finish, opened with wonder as a 
+
 <!-- Co-worker Interaction -->
 
 "Hey, did you hear about the updated deadlines? I swear, it changes daily," Milo remarked, dispassionate at the seams in a flurry of untied hair and a penchant
