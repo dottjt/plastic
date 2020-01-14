@@ -54,6 +54,7 @@ We would then create the ultimate safari experience, allowing you to kill, maim 
 
 # 05-family.md
 
+three-year specialisation in self-hate
 
 
 
@@ -73,11 +74,7 @@ I kicked her off her chair. Obviously, presumptuous of me
 
 , perked upright like a racist pantomime piece of shit.
 
-
-
-
-
-
+A dash of agent orange and a provocative
 
 
 

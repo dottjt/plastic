@@ -14,7 +14,6 @@ Following this morning's disastrous ousting with the editor, I was truly in no m
 
 "I have no idea," I responded, intense in my desire to remove myself from her presence. I mean, it's not like I hated her or anything. In actual fact I couldn't stop thinking about her. Those piercing Armenian eyes, wrapped thick in the shrill curls of a maniac-saviour. Her body as slender and as elusive as time itself, emancipated in a . I'm sure she derived pleasure from drenching her lovers in coarse honey, twisting them in all sorts of tantilisingly sweet ways, before checking into rehab for a casual-fuck with the receptionist. She was the girl I wanted,
 
-
 Yet it was a painful distraction from the thousands of clammy decisions grabbing at my brain and fuck me, but who am I not in love with these days? Yes, an enticingly offensive remark considering the integrity of these tight, syncratic lips. Beauty in their form and sour in their unreckoning desire to force grace into the tiny, dopamine-sized pockets preoccupying your brains. Pour the brandy into thy castle and deliver thy swine from the depths of hell. Oh, ever-so hellish indeed.
 
 The bright industrial lights were designed to impress,

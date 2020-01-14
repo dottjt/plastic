@@ -2,13 +2,15 @@
 
 <!-- Describe the house -->
 
-A single sperm is all it takes a to ruin a household. One pseudoephedrine-encapsulated collaboration involving a life-time labor of self-hate and an erroneous puppet, funded inconspicuously by the Catholic women's group down the road. Yet it takes an entire hoard of sperm through the tight corridors of the uterus, from a pack of young men standing around in a rubber Nixon mask to fund college.
+A single sperm is all it takes a to ruin a household. One pseudoephedrine-encapsulated collaboration involving a three-year specialisation in through self-abuse studies and the mastery of an erroneous puppet, funded inconspicuously by the Catholic women's society from down the road. Yet it takes an entire hoard of sperm through the tight corridors of the uterus, from a pack of young men standing around in a rubber Nixon mask to fund college, a daring challenge for a new generation of holes which only generously fit three. I think I like the odds.
 
-<!-- Describe the house -->
+In the rolling hills of splendor, surrounded by the lush green crust which upholds the mountains of concrete and inflated stock options breathing life into the thick insoluble clay leeching industrial minerals, begins the amiable foundings of a worthy few, perched by the flimsy housewifes wearing $5 cardigans made of refined polyester. Monstrous structures built from Chinese Communist Party exuberance, host to an extravagant marble display of finger-lickin' grandeur, taint to the mistress currently tying your illegible wife to a makeshift torture device firing holy incense into her vagina.
 
-In the rolling hills of splendor, surrounded by the lush green crust which upholds the mountains of concrete and inflated stock options, begins the amiable foundings of a worthy few, perched by
+I never liked this place. The artificial lakes and villages, thrust manic through a vision which holds itself together in fake competition, moaning anguish at the avaricious nature of the cancer it identifies as growth. Prams constructed of recycled children, quietly moaning your child into a frenzy of kleptocratic privilege. A homeless man wearing a gold, jade necklace, cock erect at the thought of dinner. You honestly couldn't make this shit up.
 
-Crocker's mess.
+I didn't really want to see my mother, if you could call her that. A coarse judgement of moistureless tree-sap, plastered onto the mummified child of a frozen tibetan whore, still capable in an operational capacity of
+
+
 
 
 I quietly slip in,

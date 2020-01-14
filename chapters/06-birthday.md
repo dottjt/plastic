@@ -2,10 +2,8 @@
 
 <!-- Loneliness -->
 
-My birthday is the loneliest day of the year. It's a deep empty echo of must-haves and has-beens, drowning in a slurry of desperate pleas for love and all things particular.
+My birthday is the loneliest day of the year. It's an empty echo of must-haves and has-beens, drowning in a slurry of desperate pleas for love and lace. I often wonder what a birthday message actual is, aside from a fine-grained permission to feel. A pity cookie for old time's sake, just to prove that you haven't been raped and tortured by some Taliban rookie in a silk robe, growing opium from his ranch south of the capital. Glutinous fingers
 
-
-I often wonder what a birthday message actual is, aside from a fine-grained permission to feel. A pity cookie for old time's sake, just to prove that you haven't been raped and tortured by the taliban.
 
  A place for guilt to ravish the uneasy soul.
 
