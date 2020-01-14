@@ -1,0 +1,72 @@
+<!DOCTYPE html><html><head><meta http-equiv="Content-Type" content="text/html; charset=utf-8"><title>Implementing Your First Linear Regression In Python ٩(◕‿◕｡)۶</title><style>
+      * {
+        font-family: Georgia, Cambria, "Times New Roman", Times, serif;
+      }
+      html, body {
+        margin: 0;
+        padding: 0;
+      }
+      h1 {
+        font-size: 50px;
+        margin-bottom: 17px;
+        color: #333;
+      }
+      h2 {
+        font-size: 24px;
+        line-height: 1.6;
+        margin: 30px 0 0 0;
+        margin-bottom: 18px;
+        margin-top: 33px;
+        color: #333;
+      }
+      h3 {
+        font-size: 30px;
+        margin: 10px 0 20px 0;
+        color: #333;
+      }
+      header {
+        width: 640px;
+        margin: auto;
+      }
+      section {
+        width: 640px;
+        margin: auto;
+      }
+      section p {
+        margin-bottom: 27px;
+        font-size: 20px;
+        line-height: 1.6;
+        color: #333;
+      }
+      section img {
+        max-width: 640px;
+      }
+      footer {
+        padding: 0 20px;
+        margin: 50px 0;
+        text-align: center;
+        font-size: 12px;
+      }
+      .aspectRatioPlaceholder {
+        max-width: auto !important;
+        max-height: auto !important;
+      }
+      .aspectRatioPlaceholder-fill {
+        padding-bottom: 0 !important;
+      }
+      header,
+      section[data-field=subtitle],
+      section[data-field=description] {
+        display: none;
+      }
+      </style></head><body><article class="h-entry">
+<header>
+<h1 class="p-name">Implementing Your First Linear Regression In Python ٩(◕‿◕｡)۶</h1>
+</header>
+<section data-field="subtitle" class="p-summary">
+(insert photo)
+</section>
+<section data-field="body" class="e-content">
+<section name="5cae" class="section section--body section--first section--last"><div class="section-divider"><hr class="section-divider"></div><div class="section-content"><div class="section-inner sectionLayout--insetColumn"><h3 name="5a85" id="5a85" class="graf graf--h3 graf--leading graf--title">Implementing Your First Linear Regression In Python ٩(◕‿◕｡)۶</h3><p name="bed5" id="bed5" class="graf graf--p graf-after--h3">(insert photo)</p><p name="6092" id="6092" class="graf graf--p graf-after--p">In this article I want to provide you with a core overview of Linear Regression and it’s implementation in Python so you can at least understand how it may be used in real-world situations.</p><p name="7d6a" id="7d6a" class="graf graf--p graf-after--p">This includes developing a strong intuition of how Linear Regression applications are structured in Python, so you can simply fill-out the details as required. </p><p name="bbfa" id="bbfa" class="graf graf--p graf-after--p">Before reading this, it’s assumed that you already have:</p><ul class="postList"><li name="79ca" id="79ca" class="graf graf--li graf-after--p">A solid understanding of Linear Regression and it’s various algorithms. If not, I highly recommend checking out <a href="https://www.coursera.org/learn/machine-learning" data-href="https://www.coursera.org/learn/machine-learning" class="markup--anchor markup--li-anchor" rel="noopener" target="_blank">Andrew Ng’s Machine Learning Coursera</a> course. I was highly skeptical at first, but it’s pure gold.</li><li name="2401" id="2401" class="graf graf--li graf-after--li">Understand the basics of Python, NumPy, as well as as other related libraries such as Matplotlib.</li><li name="9013" id="9013" class="graf graf--li graf-after--li">Managed to setup all these libraries. If not, I would highly recommend checking out <a href="https://www.anaconda.com/distribution/" data-href="https://www.anaconda.com/distribution/" class="markup--anchor markup--li-anchor" rel="noopener" target="_blank">Anaconda</a> as it’s been a fantastic experience. </li></ul><p name="d498" id="d498" class="graf graf--p graf-after--li">If not, that’s cool too! (you ridiculous hunk of spunk!)</p><p name="94d0" id="94d0" class="graf graf--p graf-after--p">I’ll try and provide my own summary of these concepts, but it certainly won’t be nearly as succinct as those deliciously calibrated fauna produced from the master himself <em class="markup--em markup--p-em">*bows respectfully*</em>.</p><h3 name="30cb" id="30cb" class="graf graf--h3 graf-after--p">What is Linear Regression?</h3><p name="b005" id="b005" class="graf graf--p graf-after--h3">Linear Regression is a type of supervised Machine Learning technique which aims to identify linear trends amongst a set of pre-defined features.</p><p name="8246" id="8246" class="graf graf--p graf-after--p">Features are essentially a set of random variables (Note: The term “random variable” is utterly stupid, because the variables are not actually random, instead it can help to think of the word “potential” instead of random) which can be used to predict a trend.</p><p name="7547" id="7547" class="graf graf--p graf-after--p">For example, using the size of a house (feature) in order to predict the price of a house (trend). In this case we will be performing Univariate Linear Regression, which is to say that we will only be using one feature in order to create our model/prediction.</p><p name="6ea3" id="6ea3" class="graf graf--p graf-after--p">Not to mention, Linear Regression is arguably the most basic analysis you can perform on a set of data, so it’s where I’ll be starting with this article — given I’ve literally never done this before and I actually have no idea what I’m doing, but we all have to start somewhere!</p><p name="b682" id="b682" class="graf graf--p graf-after--p">Below is an example of what the end product of what our Linear Regression will look like graphically.</p><h4 name="f06a" id="f06a" class="graf graf--h4 graf-after--p">Le Before</h4><p name="19f5" id="19f5" class="graf graf--p graf-after--h4">(image)</p><h4 name="790e" id="790e" class="graf graf--h4 graf-after--p">Le After</h4><p name="399c" id="399c" class="graf graf--p graf-after--h4">(image)</p><h3 name="f118" id="f118" class="graf graf--h3 graf-after--p">Step 0— Figure out the problem/data</h3><p name="4fbc" id="4fbc" class="graf graf--p graf-after--h3">Before doing anything, we must first gather the relevant data in order to perform our analysis. Which means first finding a dataset worth looking into, my fictitious  brethren.</p><p name="0e5e" id="0e5e" class="graf graf--p graf-after--p">In our case, we’ll be using <a href="https://www.kaggle.com/datasets" data-href="https://www.kaggle.com/datasets" class="markup--anchor markup--p-anchor" rel="noopener" target="_blank">Kaggle</a> which provides an obscene amount of free data available to the public. In our particular case we will be utilising data regarding House Sales in King County, USA. The dataset we will be utilising will be available in the <code class="markup--code markup--p-code">kc_house_data.csv</code> file and it can be downloaded at the below link:</p><p name="583a" id="583a" class="graf graf--p graf-after--p"><strong class="markup--strong markup--p-strong">Data: </strong><a href="https://www.kaggle.com/harlfoxem/housesalesprediction/downloads/housesalesprediction.zip/1" data-href="https://www.kaggle.com/harlfoxem/housesalesprediction/downloads/housesalesprediction.zip/1" class="markup--anchor markup--p-anchor" rel="noopener" target="_blank">https://www.kaggle.com/harlfoxem/housesalesprediction/downloads/housesalesprediction.zip/1</a></p><p name="b96a" id="b96a" class="graf graf--p graf-after--p">So now that we have the data, we now need to define the problem which  we intend to solve. Given this dataset, we can try and create a model around the number of bedrooms that a house has and see if that linearly correlates to the price of a house. </p><p name="5580" id="5580" class="graf graf--p graf-after--p">In other words, can we predict the price of a house if we know how many bedrooms it has? Well, I mean, we can — but we also need to look into how accurate it is! But we’ll get to that once we’ve built our model! </p><p name="f040" id="f040" class="graf graf--p graf-after--p">In addition, all the code for this project and all other projects available here on my Medium, can be found within this repo:</p><p name="9b0d" id="9b0d" class="graf graf--p graf-after--p"><strong class="markup--strong markup--p-strong">Repo:</strong> <a href="https://github.com/dottjt/machine-learning" data-href="https://github.com/dottjt/machine-learning" class="markup--anchor markup--p-anchor" rel="noopener" target="_blank">https://github.com/dottjt/machine-learning</a> </p><h3 name="0344" id="0344" class="graf graf--h3 graf-after--p"><strong class="markup--strong markup--h3-strong">Step 1 — Import libraries</strong></h3><p name="9024" id="9024" class="graf graf--p graf-after--h3">Essentially what I will be doing is setting up a JupyterLab environment where I will be performing all this analysis.</p><pre name="b44a" id="b44a" class="graf graf--pre graf-after--p">import numpy as np<br>import matplotlib.pyplot as plt<br>import pandas as pd</pre><p name="4452" id="4452" class="graf graf--p graf-after--pre">These are the libraries we will be using.</p><p name="3953" id="3953" class="graf graf--p graf-after--p">A quick summary: </p><ul class="postList"><li name="39f7" id="39f7" class="graf graf--li graf-after--p">Numpy provides us with convenient array data structures. Unlike similar native Python data structures, they are highly efficient and allow us to utilise techniques such as broadcasting.</li><li name="8ec5" id="8ec5" class="graf graf--li graf-after--li">Matplotlib a graphing library. You know, so we can visualise the data.</li><li name="efa0" id="efa0" class="graf graf--li graf-after--li">Pandas is a library for handling CSV and tabular-like data.</li></ul><p name="7e9f" id="7e9f" class="graf graf--p graf-after--li">In addition, we also need to import our CSV data into the application </p><pre name="3c58" id="3c58" class="graf graf--pre graf-after--p">data = load_c()</pre><h3 name="10a7" id="10a7" class="graf graf--h3 graf-after--pre">Step 1 — Visualise the data</h3><p name="9318" id="9318" class="graf graf--p graf-after--h3">The first steps when performing any sort of analysis is to plot the data so you can gain an intuitive sense of what’s taking place. You know, because there may not be a correlation and it will become quite evident once you see what kind of graph your speculation produces.</p><p name="3650" id="3650" class="graf graf--p graf-after--p">Before then however, it’s good habit to actually get a sense of the data which is why it’s important to see what some of it looks like, as well as some extra stats in regards to what it could actually be.</p><pre name="5f22" id="5f22" class="graf graf--pre graf-after--p">data.head()<br>data.describe()</pre><p name="cc0f" id="cc0f" class="graf graf--p graf-after--pre">NOTE: Aaaaaaaaand it was at this point that I realised that I didn’t know enough about Pandas in order to continue writing this tutorial, so I highly recommend checking out <a href="https://www.datacamp.com/community/tutorials/data-preparation-with-pandas" data-href="https://www.datacamp.com/community/tutorials/data-preparation-with-pandas" class="markup--anchor markup--p-anchor" rel="noopener" target="_blank">this article</a> to learn a bit more about the basics.</p><h3 name="fed5" id="fed5" class="graf graf--h3 graf-after--p">Step 2 — Data Preparation</h3><p name="0b9d" id="0b9d" class="graf graf--p graf--empty graf-after--h3"><br></p><p name="69b9" id="69b9" class="graf graf--p graf--empty graf-after--p"><br></p><p name="1263" id="1263" class="graf graf--p graf--empty graf-after--p"><br></p><p name="e0bc" id="e0bc" class="graf graf--p graf--empty graf-after--p"><br></p><p name="4f95" id="4f95" class="graf graf--p graf--empty graf-after--p"><br></p><p name="0cff" id="0cff" class="graf graf--p graf-after--p">We will assume:</p><ul class="postList"><li name="df7f" id="df7f" class="graf graf--li graf-after--p">That you’ve taken the </li></ul><p name="bc9c" id="bc9c" class="graf graf--p graf--empty graf-after--li"><br></p><p name="b6df" id="b6df" class="graf graf--p graf--empty graf-after--p"><br></p><p name="3add" id="3add" class="graf graf--p graf--empty graf-after--p"><br></p><p name="cdaf" id="cdaf" class="graf graf--p graf-after--p">Linear Regression forms part of the </p><p name="f0c6" id="f0c6" class="graf graf--p graf--empty graf-after--p"><br></p><p name="2b97" id="2b97" class="graf graf--p graf--empty graf-after--p graf--trailing"><br></p></div></div></section>
+</section>
+<footer><p><a href="https://medium.com/p/8ddf41af17ea">View original.</a></p><p>Exported from <a href="https://medium.com">Medium</a> on January 14, 2020.</p></footer></article></body></html>

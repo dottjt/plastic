@@ -28,4 +28,4 @@ So here I am. It's post-cull and it's killing season for the Reade. I have my ri
 Fuck you rabbit.
 
 
-The gristle on my chin stuck like cheap candy to the crumpled linen sheets shrouding the glob of inconspicuous flesh.
+The gristle on my chin stuck like cheap candy to the crumpled linen sheets shrouding the glob of .

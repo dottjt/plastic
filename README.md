@@ -37,7 +37,7 @@ The Therapist - Autistic
 ### family.
 
 - This chapter introduces the Mother and the Helper.
-- Character
+- Character describes sperm and life. Describes the relationship he has with his mother. 
 - They fight. They're miserable.
 
 ### house.
@@ -105,7 +105,9 @@ Stevie was a stewer. Stevie loved to stew.
 - Character goes to a bar with Milo.
 - Character progressively gets more and more drunk, before passing out.
 
+### swindle.
 
+- Talk about working in tele-marketing.
 
 <!-- 16 -->
 

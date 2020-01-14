@@ -1,0 +1,72 @@
+<!DOCTYPE html><html><head><meta http-equiv="Content-Type" content="text/html; charset=utf-8"><title>How I would design a tic tac toe game</title><style>
+      * {
+        font-family: Georgia, Cambria, "Times New Roman", Times, serif;
+      }
+      html, body {
+        margin: 0;
+        padding: 0;
+      }
+      h1 {
+        font-size: 50px;
+        margin-bottom: 17px;
+        color: #333;
+      }
+      h2 {
+        font-size: 24px;
+        line-height: 1.6;
+        margin: 30px 0 0 0;
+        margin-bottom: 18px;
+        margin-top: 33px;
+        color: #333;
+      }
+      h3 {
+        font-size: 30px;
+        margin: 10px 0 20px 0;
+        color: #333;
+      }
+      header {
+        width: 640px;
+        margin: auto;
+      }
+      section {
+        width: 640px;
+        margin: auto;
+      }
+      section p {
+        margin-bottom: 27px;
+        font-size: 20px;
+        line-height: 1.6;
+        color: #333;
+      }
+      section img {
+        max-width: 640px;
+      }
+      footer {
+        padding: 0 20px;
+        margin: 50px 0;
+        text-align: center;
+        font-size: 12px;
+      }
+      .aspectRatioPlaceholder {
+        max-width: auto !important;
+        max-height: auto !important;
+      }
+      .aspectRatioPlaceholder-fill {
+        padding-bottom: 0 !important;
+      }
+      header,
+      section[data-field=subtitle],
+      section[data-field=description] {
+        display: none;
+      }
+      </style></head><body><article class="h-entry">
+<header>
+<h1 class="p-name">How I would design a tic tac toe game</h1>
+</header>
+<section data-field="subtitle" class="p-summary">
+This is my attempt to construct a tic tac toe game from beginning to finish. This post will document my thought process, as well as all the…
+</section>
+<section data-field="body" class="e-content">
+<section name="2c7b" class="section section--body section--first section--last"><div class="section-divider"><hr class="section-divider"></div><div class="section-content"><div class="section-inner sectionLayout--insetColumn"><p name="17e6" id="17e6" class="graf graf--p graf--leading">How I would design a tic tac toe game</p><p name="6ed9" id="6ed9" class="graf graf--p graf-after--p">This is my attempt to construct a tic tac toe game from beginning to finish. This post will document my thought process, as well as all the errors I make. I have put a line through the ideas which I ended up changing or not implementing.</p><p name="2347" id="2347" class="graf graf--p graf--empty graf-after--p"><br></p><p name="8b8b" id="8b8b" class="graf graf--p graf-after--p">20/05/16</p><p name="330a" id="330a" class="graf graf--p graf-after--p">I would separate the game into a few components. To hold the game logic of the program, I would create two Arrays of true/false values, one array for each player. The two arrays would be intricately linked, whereby a false value on one array would result in a positive value on the other array.</p><p name="d26e" id="d26e" class="graf graf--p graf-after--p">Alternatively you can maintain one array with four different values to represent two respective sets of false/true, however that would be messy. The positive of having two different arrays is that it makes it easy to separate player logic, especially in regards to determining outcomes between players.</p><p name="ae02" id="ae02" class="graf graf--p graf-after--p">To optimise the performance of the program, the game will also rely on UI logic which I will explain later.</p><p name="497e" id="497e" class="graf graf--p graf-after--p">The initial array will consist of one linear line of three values, to represent one horizontal or vertical line, which I will later expand to nine values to represent a proper tic tac toe grid.</p><p name="aa1e" id="aa1e" class="graf graf--p graf-after--p">Next, I would create a number of tile objects to represent each of the grid tiles. Each tile will consist of a number of different objects. First, they will contain the event logic to manipulate the value in the array, most likely via a click eventListener function. Next, the tile object will contain edge values of edgeLeft, edgeRight, edgeUp, edgeDown with default false values, in order to signify potentially touching edges. T1 EL: false, ED: false, t2 EL, ED, ER, t3 EL, ED: false</p><p name="426a" id="426a" class="graf graf--p graf-after--p">The event function will do two things. It will manipulate the array logic, and depending on the position of the tile relative to other tiles, may become a true value. On the conditional that two tiles are next to each other, then both will become if (t1.hasOwnProperty(edgeLeft) and t2. Blah then as part of a different object/function, will activate a different thing. This will be done via a function.</p><p name="2651" id="2651" class="graf graf--p graf-after--p">Actually, there will be two different event functions. One that does edges and array, and one that just does the edges. This is the because the array will only determine diagonals, while edges will determine all horizontal/vertical values, as this is the most efficient arrangement that will minimise the amount of conditional statements</p><p name="c749" id="c749" class="graf graf--p graf-after--p">To determine the outcome of the game logic, I will need to create conditionals for both the array values and edge values. For maximum efficiency in terms of minimal conditional statements, the array values will be used to determine diagonals, while the edge values will be used for horizontal/vertical values.</p><p name="cf7e" id="cf7e" class="graf graf--p graf-after--p">The edge values will be placed in a buffer array. The array will accumulate the values of the</p><p name="dde3" id="dde3" class="graf graf--p graf-after--p">Okay, so here is how I’ve figured it might work. Since only two tiles can communicate at a time, it must rely entirely on middle tile to connect the three tiles. So in any situation where t1.ER — t2.EL, creates on the array [1,1,0] and so on. However, the good news is that you place this logic in an array, so it’s really fast. Maybe ditch the [0,0,1] array idea because it is very poor at registering location. Instead, if I use counters instead, it might work a lot better. So I count the total number of L,R,U,D values and then</p><p name="11e3" id="11e3" class="graf graf--p graf-after--p">. Then once any of the eight combinations gets reached, then it can</p><p name="78d1" id="78d1" class="graf graf--p graf-after--p">Actually, it would not work to have two arrays, because edge arrangements would in fact rely on each button being owned by a player, rather than control an array. I’m not sure, we’ll have to see.</p><p name="3a16" id="3a16" class="graf graf--p graf-after--p">There might be a better algorithm to calculate how the rows/columns relate. If I create an algorithm which can calculate the different rows or sequence of rows via num. So obviously, 1,2,3 would be a sequence. Actually, there are only 8 different combinations for a tic tac toe board.</p><p name="2afa" id="2afa" class="graf graf--p graf-after--p">In order for the edge values to be useful, I need to create an edge function which determines which combinations make a</p><p name="e2b6" id="e2b6" class="graf graf--p graf-after--p">Two player objects.</p><p name="dfa1" id="dfa1" class="graf graf--p graf-after--p">These edge values will help serve another way for the program to determine a winner. If there are three touching edges in an array</p><p name="ba83" id="ba83" class="graf graf--p graf-after--p">The way this UI logic will help, in addition to</p><p name="b6b3" id="b6b3" class="graf graf--p graf-after--p">begin by figuring out how to configure a basic linear grid of three tiles in a row. The grid would be represented by an array of three values, which would represent the basic game logic. [0,0,0]</p><p name="3351" id="3351" class="graf graf--p graf-after--p">Next, I would focus on designing the interface, and figuring out how to change the logic via a tile object. The tile will contain a few elements. First, the event should do two things. It should change the value in the array.</p><p name="b278" id="b278" class="graf graf--p graf-after--p">First, I would design each separate tile, including the functionality of what would happen if I pressed each time.</p><p name="3cd0" id="3cd0" class="graf graf--p graf-after--p">21/05/16</p><p name="4ae9" id="4ae9" class="graf graf--p graf-after--p">Okay. Okay. Silly Me.</p><p name="1035" id="1035" class="graf graf--p graf-after--p">I have a lot of components together, some either buggy, some refusing to work together as intended. I think I need better seperation of concerns, and I feel like it would have been better to get the core of the game working first, such as player turns, rather than the game logic.The good news is that a lot is working and it’s coming together nicely.</p><p name="4fe2" id="4fe2" class="graf graf--p graf-after--p">This is what I’ve managed to build. </p><p name="9789" id="9789" class="graf graf--p graf-after--p">Tiles — there are nine tiles in total, which when clicked manipulate state logic.</p><p name="ddfd" id="ddfd" class="graf graf--p graf-after--p">Game Logic— contains all potential eight winning combinations via eight different arrays. All mostly [0,0,0] arrays that when become [1,1,1], announces a winner.  </p><p name="8004" id="8004" class="graf graf--p graf-after--p">Tile Logic/Event Listener — manipulates the game logic. Whenever you click on a tile, it turns one of the 0’s into 1’s. </p><p name="d3f5" id="d3f5" class="graf graf--p graf-after--p">There are a few functions which tie it together.</p><p name="ff79" id="ff79" class="graf graf--p graf-after--p">playerTurn — determines which player should make their turn through an alternating loop. </p><p name="a77a" id="a77a" class="graf graf--p graf-after--p">winningDecision — checks the game logic to determine who won. </p><p name="ed86" id="ed86" class="graf graf--p graf--empty graf-after--p"><br></p><p name="6a82" id="6a82" class="graf graf--p graf--empty graf-after--p"><br></p><p name="a38e" id="a38e" class="graf graf--p graf-after--p graf--trailing">Some of the issues is that I don’t feel like I fully appreciate the quirks of JavaScript quite yet. I’ve been trying to avoid using Constructor functions, however it may seem like I don’t have a choice. </p></div></div></section>
+</section>
+<footer><p><a href="https://medium.com/p/a6937ad9b7ce">View original.</a></p><p>Exported from <a href="https://medium.com">Medium</a> on January 14, 2020.</p></footer></article></body></html>
