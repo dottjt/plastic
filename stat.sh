@@ -20,13 +20,10 @@ REPO_COMMITS=$(git log --oneline ./chapters/${file} | sed 's/ .*//')
 for repo_commit_id in $REPO_COMMITS
 do
   echo $repo_commit_id
-  git checkout
+  git checkout $repo_commit_id
 done
 
 # echo $REPO_COMMITS
-
-
-
 
 git checkout master
 
