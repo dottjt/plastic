@@ -2,7 +2,23 @@
 
 <!-- Walking into work. -->
 
-It was any ordinary day. A sanctimonious tunnel-vision of pre-determined repetition. Another dawn, destined to
+It was any ordinary day. The sun continued it's glorious expansion, the trees basked in the overflowing radiation and children across the middle east strapped themselves to vests of high-impact explosives in faithful martyr of their magical prophet, while the U.S. remained ever-more ignorant of the internal politics of foreign occupation. "Fight a war, in a war," announces a young marshall kit in immaculate serviceman attire, as he paced the outskirts of a halal-certified brothel south of the Kuwait border. Crippled in fear and brooding anxiety, the NFL draft hopeful of 98' was plagued by the contrived fantasies of rape and lore he wished to impose upon these working-class women, driven by the bloody battle he fought against their now-dead husbands. With a gun in one hand and a thoughtless desire to seek pre-emptive revenge, the young man storms the building and pins down a screaming young woman, plunging his penis through her hijab and inside her petit figure. Blasting her brains out at the point of orgasm to complete the scene.
+
+"That was quite overt," I thought to myself, as I took a moment to pause and think about the fundamental implications of my imagination, backdrop against the dyslexic array of McMansions and common dwellings littering the landscape on my train ride into work.
+
+whizzing past me in a meager
+
+
+
+<!-- On the way to  -->
+
+The driver was young. I was late for a meeting, and yet
+
+
+
+ A sanctimonious tunnel-vision of pre-determined repetition. The shit-giggler contrives
+
+Another dawn, destined to
 
 A lone gunman was out scouting for some talent. Toothcomb pick. Leisure of hair. Several women frantically
 

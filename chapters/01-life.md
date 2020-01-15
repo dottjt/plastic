@@ -2,9 +2,9 @@
 
 <!-- Editor and Character Introduction -->
 
-Welcome to life. A rancid fascination of all things particular. A resounding point of asymptotic reference, crown jewel to the unjustified misery we all mimic and pretend. A rag-doll daddy of putty intentions, spluttered viscous into the cultural misappropriation you slowly witness before your eyes. This is where all stories begin, end and...
+Welcome to life. A rancid fascination of all things particular. A resounding point of asymptotic reference, crown jewel to the unjustified misery we all mimic and pretend. Asperger's rag-doll daddy of putty intentions, spluttered viscous into the cultural misappropriation you slowly witness before your eyes. This is where all stories begin, end and...
 
-"Truly fantastic", the editor announces from across the room as he swivels his chair towards my direction in a hesitant gleam of cheap cologne and uncompromising flattery, dawdling frantic on a notepad fit suitably for a 90s' Nickelodeon wonderland, struck brazen in a dyslexic haze of powdered aspartame and lopsided cheese squares. Only crumbs were left of the star-mangled biscuits, presumably store-bought for our excited listeners at home.
+"Truly fantastic", the editor announces from across the room as he swivels his chair towards my direction, hesitant in a gleam of cheap cologne and uncompromising flattery, struck brazen in a dyslexic haze of powdered aspartame and lopsided cheese squares. Dawdling frantic on a notepad fit suitably for a 90s' Nickelodeon pre-teen, only crumbs were left of the star-mangled biscuits, presumably store-bought for our excited listeners at home.
 
 "I really, really liked what you did there. I thought it was simply fantastic! The imagery. The sex appeal. I could definitely fuck that, if you know what I mean."
 
