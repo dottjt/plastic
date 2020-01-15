@@ -47,8 +47,9 @@ We would then create the ultimate safari experience, allowing you to kill, maim 
 
 # 03-date.md
 
-# 04-house.md
+# 04-depression.md
 
+Although in keeping relevant with my response to the foreboding impasse, I simply yawned at the thought, testament to the brute resilience forcing it's way through the impenetrable perception I had of myself as the fucking Queen.
 
 
 

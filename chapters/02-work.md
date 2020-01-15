@@ -2,7 +2,7 @@
 
 <!-- Work Introduction -->
 
-I implore the sanctity of work. A plutocratic orgy of totalitarian devastation, heiled as this week's perfect solution to the rampant "black" problem, imprint to the segregation our society loves to weep. Mesmerisingly subterranean in it's surreal propagation of pus and confetti, a scheme designed to reprogram you into an undying commitment of useful, well-behaved utility. The kind of affair that aims to dribble you in nonsensical pleasure and well-organised events, lesser to the pagan beliefs you uphold as gospel upon God's almighty vision. A mechanical duet featuring your absolute best face in complete air-touched perfection, mired upon a palette of plastic purple laminate, suitably moulded into tiny matchsticks for your mouth to align. "Half a matchstick each day keeps ol' Maggie away from caressing the heart monitor!", murmurs my agent, somewhat delirious in her intentions.
+In work we trust. A plutocratic orgy of totalitarian devastation, heiled as this week's perfect solution to the rampant "black" problem, imprint to the segregation our society loves to weep. Mesmerisingly subterranean in it's surreal propagation of pus and confetti, a scheme designed to reprogram you into an undying commitment of useful, well-behaved utility. The kind of affair that aims to dribble you in nonsensical pleasure and well-organised events, lesser to the pagan beliefs you uphold as gospel upon God's almighty vision. A mechanical duet featuring your absolute best face in complete air-touched perfection, mired upon a palette of plastic purple laminate, suitably moulded into tiny matchsticks for your mouth to align. "Half a matchstick each day keeps ol' Maggie away from caressing the heart monitor!", murmurs my agent, somewhat delirious in her intentions.
 
 At least all of this would hold true if the dreaded excess of work didn't also lead to an almost debilitating level of self-harm, like the voluntary gouging of your right eye out into a stained cup with the edge of a disposable plastic knife in the duty of extreme stress. left ever-so keenly on the office kitchen table as a symbol of 21st century martyr, delegated softly as a personality disorder with just the right amount of jazz to keep the leadership in buzz. It's an exciting state of premonition, like watching a parent die in front of you, and then again in full motion as re-enacted by a man in green suit to be retrofitted within a scene in Top Gun.
 
@@ -38,6 +38,9 @@ Casual smoking.
 "So, how did le meeting with the editor go?"
 
 "I really don't know, to be quite honest. He's a bit of a nut-job,
+
+
+"Do you ever think about death."
 
 <!-- Monologue #2 -->
 
