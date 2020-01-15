@@ -1,12 +1,10 @@
 # depression
 
-"Moderately entertaining."
-
-Tonight's obligations are being delivered pro rata, dragging itself miserably along the floor as a dead skunk spasms beside it, as it attempts to tell a joke about the inequality of nuts. Victorian times, oh dear. The scant face behind the ceiling snarls in grave fashion, hushing at the feint tapper of lovely's past. "Does the knife hurt, sweetie? Can you feel it grasp at your pain?"
+"Moderately entertaining." Tonight's obligations are being delivered pro rata, dragging itself miserably along the floor as a dead skunk spasms beside it, as it attempts to tell a joke about the inequality of nuts. Victorian times, oh dear. The scant face behind the ceiling snarls in grave fashion, hushing at the feint tapper of lovely's past. "Does the knife hurt, sweetie? Can you feel it grasp at your pain?"
 
 I wasn't quite sure what to think of the haste pleasantries that were being thrown my way, lost in the thick quandary permeating through my velvet angular plea. Although in fashionable response I simply yawned at the thought and hovered away into the tight spaces pre-occupying the corridor into the cranked-up lounge awaiting my arrival.
 
-"My compliments to the chef", I thought, rather aimlessly.
+"My compliments to the chef", I thought, rather aimlessly, as I poured myself a drink.
 
 Sour grapes make a chaffy treat. The delicate spine hunches over it's desk without query, examining the shades of misconfigured lamp along the dark, cold walls supporting his fine trepidation into the literary foray. Sheets of paper describing mounds of ill-defined taste, blooming into a river of non-fluent diaspora. 
 

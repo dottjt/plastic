@@ -34,29 +34,24 @@ The Therapist - Autistic
 - Interacts with Milo.
 - Interacts with The Boss.
 
-### family.
+### 03 - family.
 
 - This chapter introduces the Mother and the Helper.
-- Character describes sperm and life. Describes the relationship he has with his mother. 
+- Character describes sperm and life. Describes the relationship he has with his mother.
 - They fight. They're miserable.
 
-### house.
+### 04 - depression.
 
-- This chapter introduces the Friend and House.
+-
 
-- Character talks about relationships with the Friend.
 
-### therapy.
+### 05 - therapy.
 
 - Meets up with his therapist.
 
 <!-- 06 - The scandal -->
 
 ### birthday.
-
-- Talks about the user's birthday.
-
-### anxiety.
 
 - Talks about the user's birthday.
 
@@ -67,6 +62,12 @@ The Therapist - Autistic
 ### night.
 
 - It's late at night. Describe their observations as he walks towards the city.
+
+### house.
+
+- This chapter introduces the Friend and House.
+
+- Character talks about relationships with the Friend.
 
 
 
@@ -83,10 +84,6 @@ Stevie was a stewer. Stevie loved to stew.
 
 - This chapter introduces the fall of the Character.
 - Character attends a weekend market.
-
-### depression.
-
--
 
 ### mania.
 
