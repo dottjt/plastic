@@ -43,6 +43,8 @@ shared amongst the consortium of bacteria suckling their teats upon the tears of
 
 # 02-work.md
 
+live in front of a packed-out arena full of hardcore animal-rights activists
+
 in it's surreal propagation of pus and confetti
 
 We would then create the ultimate safari experience, allowing you to kill, maim or disturb as many innocent animals as you fit please, as long as the barrel of your gun is large enough to wipe it out in one shot. I'm sure the funding will come in soon.
