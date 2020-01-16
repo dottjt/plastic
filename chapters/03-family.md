@@ -2,7 +2,7 @@
 
 <!-- Describe the house -->
 
-One single sperm is all it takes a to ruin a household. One faulty dig into nature's great big sack of genetic of fanatic hetrosexuality, splendid within the Pseudoephedrine encapsulated collaborations causing you to screech in hallowing pleasure at the primal misery you fuck like peppermint candy. Involving a three-year technical specialisation in post-war self-abuse and the practical mastery of an erroneous puppet, your fortunes and valid and fully-funded by the Catholic cum delegation and their pack of Irish henchmen. And yet the great thing about lust is that your odds increase dramatically the more biological dice you decide to roll. For an almost inconspicuous price of admission, an entire hoard of sperm is all it takes to push and pull our beautiful fuck-thing through at least the early phases of college, as our dashing pre-star surrounds herself by a pack of anxious young men, pumped full of imitation testosterone and a natural tendency for knucklehead behaviour. A daring challenge for a new generation of Ikea inspired holes designed only to generously fit three fingers and a vape kit for use in-between lit lectures.
+One sperm is all it takes a to ruin a household. One faulty dig into nature's great big sack of genetic fanaticism, splendid within the Pseudoephedrine encapsulated collaborations causing you to screech in hallowing pleasure at the primal misery you fuck like peppermint candy. Involving a three-year technical specialisation in post-war self-abuse and the practical mastery of an erroneous puppet, your fortunes and valid and fully-funded by the Catholic cum delegation and their pack of Irish henchmen. And yet the great thing about lust is that your odds increase dramatically the more biological dice you decide to roll. For an almost inconspicuous price of admission, an entire hoard of sperm is all it takes to push and pull our beautiful fuck-thing through at least the early phases of college, as our dashing pre-star surrounds herself by a pack of anxious young men, pumped full of imitation testosterone and a natural tendency for knucklehead behaviour. A daring challenge for a new generation of Ikea inspired holes designed only to generously fit three fingers and a vape kit for use in-between lit lectures.
 
 "One day I'll have a piece of this," I remarked to myself, as I stared out of the train window into the rolling hills of splendor, surrounded by the lush green crust which upholds the mountains of concrete and inflated stock options breathing life into the thick insoluble clay leeching industrial minerals, begins the amiable foundings of a worthy few, perched by the flimsy housewives wearing $5 cardigans made of refined polyester. Monstrous structures built from Chinese Communist Party exuberance, host to an extravagant marble display of finger-lickin' grandeur, taint to the mistress currently tying your illegible wife to a makeshift torture device firing holy incense into her vagina. The artificial lakes and sprawling villages, thrust manic through a vision which holds itself together in fake competition, moaning anguish at the avaricious cancer it identifies as growth. Prams constructed of recycled children, quietly moaning future generations into a frenzy of kleptocratic privilege. A homeless man wearing a gold, jade necklace, cock erect at the thought of dinner. It was a demented hound of global atrocity; a facade upon which stitched the delicate fabric of the upper-middle class and their lofty ideals.
 
@@ -32,16 +32,9 @@ A small upright figure enters the room, face like a porcelain horse.
 
 <!-- Decides to make porn with Milo -->
 
+Eyes darting around the screen in a morbid photographic fixation with the imposing image of breast and triggering keywords. Fuck. Whore. XXX. The vocabulary was your play-pen. A visual casino without walls, glittering in the cerulean madness restraining you suspenseful initiation. Next minute you're dashing down the street, holding a laptop in one hand with a sandwich in the other, kickin' the leash of glory to
 
-It becomes.
-
-"You know, you don't have to do this"
-
-
-Eyes darting around
-
-
-Next minute you're dashing down the street, holding a laptop in one hand with a sandwich in the other, kickin' the leash of glory to
+Talk about the guilt you feel as a son.
 
 
 <!-- Father -->
@@ -53,11 +46,9 @@ I can't say I know a lot about my father.
 I'm sure the snail cream
 
 
+"We should setup a family trust fund, just in case anything happens," she says
 
 
-
-
-"You know, it's really small."
 
 <!-- Trip to the House -->
 

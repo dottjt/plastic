@@ -4,25 +4,11 @@
 
 It was any ordinary day. The sun continued it's glorious expansion, the trees basked in the overflowing radiation and children across the middle east strapped themselves to vests of high-impact explosives in faithful martyr of their magical prophet, while the U.S. remained ever-more ignorant of the internal politics of foreign occupation. "Fight a war, in a war," announces a young marshall kit in immaculate serviceman attire, as he paced the outskirts of a halal-certified brothel south of the Kuwait border. Crippled in fear and brooding anxiety, the NFL draft hopeful of 98' was plagued by the contrived fantasies of rape and lore he wished to impose upon these working-class women, driven by the bloody battle he fought against their now-dead husbands. With a gun in one hand and a thoughtless desire to seek pre-emptive revenge, the young man storms the building and pins down a screaming young woman, plunging his penis through her hijab and inside her petit figure. Blasting her brains out at the point of orgasm to complete the scene.
 
-"That was quite overt," I thought to myself, as I took a moment to pause and think about the fundamental implications of my imagination, backdrop against the dyslexic array of McMansions and common dwellings littering the landscape on my train ride into work.
+"That was quite overt," I thought to myself, as I took a moment to pause and think about the fundamental implications of my imagination, backdrop against the dyslexic array of dwellings littering the landscape of my train ride into work that particular morning. "...and as we enter our pods, secure in a tunnel-vision of pre-determined repetition, it's important that we remember to gloat at the shit-giggler. He is our only hope." I knew I should have stopped writing year's ago, my mind abuzz with all sorts of fantastical whims and jarring phrases, designed to fright and excite, like a pickled jar of boiled cantaloupe.
 
-whizzing past me in a meager
+Dangled in a mop of disarray, my hair found itself in desperate need of attention. Part of me liked the slight emo gradle, constituent to my overall look as a crazed loner with a knack for competitive fighters and an infatuation for Japanese animated breasts. Oh, another day, another dawn. Rest our souls in the flashy marginalisation of peace, fervour and extreme exuberance. Then in a rush of temporal ammonia, I transferred my mind over to the hands of late-night regret, as I stepped off the train and onto the newly-renovated platform, into a compound of career psychopaths and keyboard warriors. Atop of a vending machine stood a lone gunman, armed with a toothpick and a bucket of cum, ready to drown solace in it's rightful place on the floor of an over-worked McDonalds where he got paid a meager salary and an inoffensive staff discount on all meals after 6pm.
 
-
-
-<!-- On the way to  -->
-
-The driver was young. I was late for a meeting, and yet
-
-
-
- A sanctimonious tunnel-vision of pre-determined repetition. The shit-giggler contrives
-
-Another dawn, destined to
-
-A lone gunman was out scouting for some talent. Toothcomb pick. Leisure of hair. Several women frantically
-
-The train was it's usual self. Flashing dreary over a bucket of cum someone had spilt over the padded lino
+Truth is that today was hardly ordinary.
 
 
 People glued to their phones.
