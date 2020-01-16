@@ -1,40 +1,48 @@
 # birthday.
 
-<!-- Loneliness -->
+<!-- Describe the depression -->
 
-My birthday is the loneliest day of the year. It's an empty echo-chamber of must-haves and has-beens, drowning in a slurry of desperate pleas for love and lace. I often wonder what a birthday message actual is, aside from a fine-grained permission to feel. A pity cookie for old time's sake, just to prove that you haven't been raped and tortured by some Taliban rookie in a silk robe, growing opium from his ranch south of the capital. Glutinous fingers alew
+My birthday is the loneliest day of the year. It's an empty echo-chamber of must-haves and has-beens, drowning in a slurry of desperate pleas for love and lace. I often wonder what a birthday message actual is, aside from a fine-grained permission to feel. A pity cookie for old time's sake, just to prove that you haven't been raped and tortured by some Taliban rookie in a silk robe, growing opium from his ranch south of the capital. Glutinous fingers , fiercely bidding for the surface of your attention. Hoping to disperse it's lovely little claws into your spread, violating what little aspiration you have to weed your way back to safety. At first it shrieks in a mad outburst, indicating it's own displeasure with the world. Then it withers into a cloud of mould to suffocate any amount of apprehension from gaining necessary foothold. Lastly it smothers in absolute quantity, absorbing scar tissue and trauma at an incomprehensible rate. And once it's all over, in the snap of a heartbeat, it was as if nothing remained at all. A desolate fire of dementia, swept clean in an enticing devastation of brilliance.
 
+Duck-taped to the underside of my desk, I vainly attempt to rip the pistol from the fragmented clumps of dust underlying the trigger, pointing the barrel of the gun at my head. I can feel it sneeze. Manic in it's worry. I cry. I whimper. I breathe. I scream. I sustain it. I scream so loud I can feel my throat polymerise blood into tracks of . Ears turning a bright purple. My finger slips, and I am interrupted. "Shut the fuck up!" my neighbour shouts from across the hall, furious at the relative loss of peace my existence has caused their Saturday morning. I put the gun down and continue to stare at the wall in front of me, splintered in the flakes of white gloss peeling in the isolated sections of my unjustified desire to live. The doorbell rings. It's my friend. It's my birthday. It's time to shine.
+
+"Show us some cleave, honey," boasts the man at the door, holding a half opened-can of Guinness and . A suitable greeting for this 27 year old writer, dressed in yesterday's t-shirt. A stain on this earth to be admonished in
 
 Have you ever fought the HypeMachine (TM)? It's this high-pitched churn that gathers in the distance, loathing in
 
-fiercely bidding for the surface of your attention. Hoping to disperse it's lovely little claws into your spread, violating what little aspiration you have to weed your way back to safety. At first it shrieks in a mad outburst, indicating it's own displeasure with the world. Then it withers into a cloud of mould to suffocate any amount of apprehension from gaining necessary foothold. Lastly it smothers in absolute quantity, absorbing scar tissue and trauma at an incomprehensible rate. And once it's all over, in the snap of a heartbeat, it was as if nothing remained at all. A desolate fire of dementia, swept clean from the very pallette it
-
-, moulded into a feast
 
 
- A place for guilt to ravish the uneasy soul.
 
-
-I grab the pistol from within my desk and point it at my head. I can feel it sneeze. I don't think it
-
-<!-- Friends on the couch -->
+The doorbell rings again.
 
 
 
 <!-- Take a taxi to a restaurant -->
 
+The driver was a bit of a fuckin' winky. I'm allowed to call him a winky on my Birthday, right? You could tell he was having  . I noted not to shake his hand.
+
+The driver spoke three different languages. Japanese, Chinese and Korean.
+
+
+If I could fuck any emotion I would fuck sadness. It would be your most malleable best friend. It wouldn't care if you beat it, raped it or crushed it's a thousand tiny pieces. It would persist in it's grief, elated in the distress it had already come to expect of itself. Grateful in your neediness and desperate in your pleasure. It is what Gods come to expect of their young.
+
+
+
+<!-- Friends on the couch -->
+
+
+
+
 
 
 <!-- Talk about the mexican restaurant -->
 
-Milo and friend gathered.
+The Mexican restaurant made it's home within the interior of a refurbished Church, house to slurry of canned beans and quarter-ounce jars
+
+The enchilada rolled around on the plate, mummified in a meat-cheese mixture they used to call 'vinyl chloride' down at the foundry. 
 
 
-<!-- Conversation -->
 
 
 
-<!--  -->
 
-
-<!--  -->
