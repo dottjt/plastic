@@ -7,6 +7,10 @@ nauseous in the underlying assumptions creeping itself into our veins.
 
 one tippity-tap away from enlightened expedition,
 
+Frantic dawdling on his notepad aside, an ancient treasure fit suitably for a 90s' Nickelodeon pre-teen, and I think we have a winner.
+
+.
+
 dearly hoping it would kill me before rendering me entire paralysed from the waist down.
 
 A floundering point of asymptotic reference, carelessly vague in it's accelerating motion creeping itself into our veins.
@@ -38,6 +42,8 @@ a misunderstood preamble of financial servitude and genetic shivery,
 shared amongst the consortium of bacteria suckling their teats upon the tears of happiness now drenched in acid, I proceeded to re-insert the misery module in the conveniently-placed
 
 # 02-work.md
+
+in it's surreal propagation of pus and confetti
 
 We would then create the ultimate safari experience, allowing you to kill, maim or disturb as many innocent animals as you fit please, as long as the barrel of your gun is large enough to wipe it out in one shot. I'm sure the funding will come in soon.
 
