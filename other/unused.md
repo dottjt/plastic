@@ -50,6 +50,8 @@ live in front of a packed-out arena full of hardcore animal-rights activists
 
 in it's surreal propagation of pus and confetti
 
+An exciting state of explicit premonition, as your father dies in front of you with a face of sordid bloodiness, and then again in full motion as re-enacted by a man in green suit to be retrofitted to a scene in Top Gun. 
+
 We would then create the ultimate safari experience, allowing you to kill, maim or disturb as many innocent animals as you fit please, as long as the barrel of your gun is large enough to wipe it out in one shot. I'm sure the funding will come in soon.
 
 

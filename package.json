@@ -4,6 +4,7 @@
   "description": "How to kill a Chinaman is my first novel. It is a collection of stories (based on themed chapters) about a particular character. Each story represents a different situation/phase in this person's life.",
   "main": "index.js",
   "scripts": {
+    "push": "node push",
     "test": "echo \"Error: no test specified\" && exit 1",
     "compile": "npm run compile-md && npm run compile-pub && open ./ebook/book.epub",
     "compile-md": "node ./util/generateBook.js",
