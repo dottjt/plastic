@@ -39,9 +39,11 @@ If I could fuck any emotion I would fuck sadness. It would be your most malleabl
 
 <!-- Talk about the mexican restaurant -->
 
-The Mexican restaurant made it's home within the interior of a refurbished Church, house to slurry of canned beans and quarter-ounce jars
+The Mexican restaurant made it's home within the gutted interior of a refurbished Church, house to slurry of canned beans and quarter-ounce jars
 
-The enchilada rolled around on the plate, mummified in a meat-cheese mixture of re-hydrated pus and freeze-dried caesin. A product they used to call 'vinyl chloride' back at the foundry.
+
+
+The enchilada. An inoffensive mound of maize-infused goop, seared in a second-hand microwave oven on finance. The slosh hammock rolled around on my plate, mummified in a meat-cheese mixture of re-hydrated pus and freeze-dried caesin. A product they used to call 'vinyl chloride' back at the foundry.
 
 
 
