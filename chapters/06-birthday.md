@@ -1,4 +1,6 @@
-# birthday.
+---
+title: "birthday."
+---
 
 <!-- Describe the depression -->
 

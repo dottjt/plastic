@@ -1,4 +1,6 @@
-# bubble.
+---
+title: "bubble."
+---
 
 <!-- Walking into work. -->
 

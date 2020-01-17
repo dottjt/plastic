@@ -1,0 +1,27 @@
+{
+  "name": "plastic",
+  "version": "1.0.0",
+  "description": "How to kill a Chinaman is my first novel. It is a collection of stories (based on themed chapters) about a particular character. Each story represents a different situation/phase in this person's life.",
+  "main": "index.js",
+  "scripts": {
+    "test": "echo \"Error: no test specified\" && exit 1",
+    "compile": "npm run compile-md && npm run compile-pub && open ./ebook/book.epub",
+    "compile-md": "node ./util/generateBook.js",
+    "compile-pub": "pandoc ./ebook/book.md --strip-comments --toc --toc-depth 2 --metadata-file ./ebook/book-metadata.yaml -o ./ebook/book.epub -f markdown -t epub",
+    "compile-pdf": "pandoc ./ebook/book.md -s --strip-comments --toc --toc-depth 2 --metadata-file ./ebook/book-metadata.yaml -o ./ebook/book.pdf"
+  },
+  "repository": {
+    "type": "git",
+    "url": "git+https://github.com/dottjt/plastic.git"
+  },
+  "keywords": [],
+  "author": "",
+  "license": "ISC",
+  "bugs": {
+    "url": "https://github.com/dottjt/plastic/issues"
+  },
+  "homepage": "https://github.com/dottjt/plastic#readme",
+  "dependencies": {
+    "fs-extra": "^8.1.0"
+  }
+}

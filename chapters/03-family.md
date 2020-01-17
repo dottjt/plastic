@@ -1,4 +1,6 @@
-# family.
+---
+title: "family."
+---
 
 <!-- Describe the house -->
 
@@ -12,7 +14,7 @@ Admittedly I wasn't particularly keen to see my mother, if you could even call h
 
 Truth is that I never loved my mother. Nor was she much of a mother in the traditional sense. She was nothing more than a
 
-Forget the hugs and the positive reinforces, because we have a new player in town. Oh, so you don't like back-handed compliments? How splendid, because now we'll also pay someone else to do it for you. Sunday tutoring. An elegant way to create sadness from boredom, later to be confused with primordial lust. 
+Forget the hugs and the positive reinforces, because we have a new player in town. Oh, so you don't like back-handed compliments? How splendid, because now we'll also pay someone else to do it for you. Sunday tutoring. An elegant way to create sadness from boredom, later to be confused with primordial lust.
 
  welcome to the grind of Sunday tutoring and saxophone lessons,
 

@@ -1,4 +1,6 @@
-# date.
+---
+title: "interview."
+---
 
 <!-- We eat. -->
 I eat. It's just the hungry of us in society do. We push aside the grazers and the cob-hobblers and we take our chunk with two hands, raw with the blood of our prey. Dead animals, wounded children, wheel-chair bound pregnant octopus, vying for your attention on a conveyor belt of prey.

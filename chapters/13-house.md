@@ -1,4 +1,6 @@
-# friend.
+---
+title: "house."
+---
 
 <!-- Describe Fringe -->
 

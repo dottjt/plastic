@@ -1,4 +1,6 @@
-# depression
+---
+title: "depression."
+---
 
 <!-- Self-perceived reality -->
 
@@ -23,7 +25,3 @@ Fuck you rabbit. Fuck you indeed.
 
 
 <!-- Reality, in bed -->
-
-
-
-

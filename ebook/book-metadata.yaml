@@ -1,0 +1,30 @@
+---
+  title:
+  - type: main
+    text: How to kill a Chinaman
+  - type: subtitle
+    text: How to kill a Chinaman
+  # subtitle:
+  # description:
+  # category
+  keywords:
+    - Julius Reade
+  # author:
+  #   - Julius Reade
+  creator:
+  - role: author
+    text: Julius Reade
+  # - role: editor
+  #   text: Julius Reade
+  identifier:
+  - scheme: DOI
+    text: doi:10.234234.234/33
+  publisher:  Julius Reade
+  rights: © 2019 Julius Reade, CC BY-NC
+  cover-image: ./ebook/book-cover.jpg
+  lang: en-GB
+  date: 2020-06-07
+  # css:
+  ibooks:
+    version: 1.3.4
+---
