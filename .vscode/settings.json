@@ -1,4 +1,9 @@
 {
+  "files.exclude": {
+    // "**/.git": false,
+    ".vscode": true,
+    "node_modules": true
+  },
   "cSpell.ignoreWords": [
     "syncratic"
   ],
@@ -33,6 +38,7 @@
     "mesmerise",
     "mesmerising",
     "mesmerisingly",
+    "monocracy",
     "neighbour",
     "organised",
     "oxidised",

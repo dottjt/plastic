@@ -11,3 +11,11 @@ Hi. I hoped you liked my book. Firstly, I would like to say although the book to
 
 It’s to emphasis the priority of the character and how he thinks. He only cares about what he can fuck.
 
+
+
+
+The idea behind this novel is that you never really get to know too much about the character. The actual details of his life is inconsequential. Rather, the idea is that you only get to experience his life through his own observations. His subjective understanding.
+
+In fact, the moment you start talking about specifics is when you not only begin to lose the charm of the writing, but it also destroys the illusion that the character is being honest.
+
+Ultimately the character is trying to prove that he's human. He wants that so badly.

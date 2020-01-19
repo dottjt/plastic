@@ -8,7 +8,7 @@ The intention of the novel is to take you through a provocative theme-park of er
 
 The writing is largely based on the first-person observations and interactions of an unnamed character. The only character which is named is his love interest, Milo.
 
-A delicious free-for-all against the senses. 
+A delicious free-for-all against the senses.
 
 Character - Cynical Hound.
 The Editor - Crazed Yuppie.
@@ -89,7 +89,7 @@ Stevie was a stewer. Stevie loved to stew.
 
 ### mania.
 
--
+- Talk about developing a mania with a video game.
 
 ### confrontation.
 

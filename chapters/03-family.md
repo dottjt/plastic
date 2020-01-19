@@ -34,7 +34,7 @@ I quietly slip in,
 
 A small upright figure enters the room, face like a porcelain horse.
 
-<!-- Decides to make porn with Milo -->
+It's probably why I wouldn't have sex with an asian woman. It would remind me too much of my mother. 
 
 Eyes darting around the screen in a morbid photographic fixation with the imposing image of breast and triggering keywords. Fuck. Whore. XXX. The vocabulary was your play-pen. A visual casino without walls, glittering in the cerulean madness restraining you suspenseful initiation. Next minute you're dashing down the street, holding a laptop in one hand with a sandwich in the other, kickin' the leash of glory to
 
