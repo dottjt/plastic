@@ -22,19 +22,15 @@ Was it in my best interest to grab a conveniently-located bench and use it as a 
 
 <!-- Describe building + Interaction with the receptionist -->
 
-Through the bright cellophane interiors of the refurbished lobby, fit with exotic Peruvian plants and a custom wood finish on the isolated desk ahead of me sat the receptionist. A messy ball of anxious wool and tangled cat hair, stunned in the bright fluorescent jumpers she would wear all over her voluptuous body. She was a small personality trapped behind a big self-conscious smile, hidden beneath a desecrated tub of Neopolitan ice-cream she left under her bed, conveniently finished without even a trace of dairy to harm a lactose-intolerant child. Of course, I also wanted to fuck her too. Definitely worth paying to see a cam show, at the very least.
+Through the bright cellophane interiors of the refurbished lobby, fit with exotic Peruvian plants and a custom wood finish on the isolated desk ahead of me sat the receptionist. A messy ball of anxious wool and tangled cat hair, stunned in the bright pink, yellow and orange knitted jumpers she would wear all over her voluptuous body. She was a small personality trapped behind a big self-conscious smile, hidden beneath a desecrated tub of Neopolitan ice-cream she left under her bed, conveniently finished without even a trace of dairy to harm a lactose-intolerant child. Of course, I also wanted to fuck her too. Definitely worth paying to see a cam show, at the very least.
 
 "Good morning!" I shout, trying my best to sound like an all-inclusive trip to Disney Land.
 
-"Good morning? You know it's like, mid-afternoon, right?" Fuck. Just, fuck. I suppose it wasn't that bad. Maybe she found the aloofness attractive. Myself, that quirky asian wall-flower to be subtly admired with a nonchalant book on the intricate ironies of organic gardening. Perhaps it was an equivocal event to be pre-supposed by a romantic date on a sunset promenade, candle-lit in serene curiosity, followed by a weekend of average uninspired sex. Although I highly doubted my desirability as a man. No one wants to swipe right on the weird looking pervert licking his lips feverously at the sight of a bucket of chicken. I suppose I wasn't quite sure what it was girls wanted at all. Perhaps I didn't really care, because it conflicted what I wanted as a creep. A sick virtual fantasy of cum and gore, soiled all over the senses in a heap of used panties and unwashed lingerie, drenched in a cake of warm semen and indecent sweat. Mortal indecency sopping in the crimes of a sex-offender. Maybe that's what I should call my book.
+"Good morning? You know it's like, mid-afternoon, right?" Fuck. Just, fuck. I suppose it wasn't that bad. Maybe she found the aloofness attractive. My lovely self, that quirky asian wall-flower to be subtly admired with a nonchalant book on the intricate ironies of organic gardening. Perhaps it was an equivocal event to be pre-supposed by a romantic date on a sunset promenade, candle-lit in serene curiosity, followed by a weekend of average uninspired sex. Although I highly doubted my desirability as a man. No one wants to swipe right on the weird looking pervert licking his lips feverously at the sight of a bucket of chicken. I suppose I wasn't quite sure what it was girls wanted at all. Perhaps I didn't really care, because it conflicted what I wanted as a creep. A sick virtual fantasy of cum and gore, soiled all over the senses in a heap of used panties and unwashed lingerie, drenched in a cake of warm semen and indecent sweat. Mortal indecency sopping in the crimes of a sex-offender. Maybe that's what I should call my book.
 
-"Oh right, I had no idea," I remarked with a laughable smirk and my two-thumbs up, now pacing myself to my desk in a blitzkrieg of dirty thoughts and derranged requirements. The beautiful thing about the office is that it truly opened itself up to you, like a picture book.
+"Oh right, I had no idea," I remarked with an unconvincing smirk and a jovial  two-thumbs up, now pacing myself to my desk in a blitzkrieg of dirty thoughts and deranged requirements. Kaleidoscopic in a tangerine muse of teak stripes and amusing spaces, the office opened itself up in a heightened display of fluorescent lights
 
 <!-- Describe office + desk/work area -->
-
-
-Like a deranged picture-book of
-
 
 I never really knew what to expect, but something was always missing. Either I was an easy target to steal from, or the nightly cleaner seemingly hated absolute everything about my existence. Either way,
 
@@ -42,11 +38,16 @@ I never really knew what to expect, but something was always missing. Either I w
 
 "I have no idea," I responded, intense in my desire to remove myself from her presence. I mean, it's not like I hated her or anything. Yet another a painful distraction from the thousands of clammy decisions grabbing at my brain and fuck me, but who am I not in love with these days? Yes, an enticingly offensive remark considering the integrity of these tight, syncratic lips. Beauty in their form and sour in their unreckoning desire to force grace into the tiny, dopamine-sized pockets preoccupying your brains. Pour the brandy into thy castle and deliver thy swine from the depths of hell. Oh, ever-so hellish indeed.
 
+But I was born to win. To gather and disperse in complete declaration of the
 
-At least all of this would hold true if the dreaded excess of work didn't also lead to an almost debilitating level of self-harm, now manifesting itself into a compulsive desire to gouge your own eyes out with the edge of a disposable plastic knife, left ever-so keenly on the kitchen table of the 3rd floor office. A symbol of 21st century martyr in thy duty of extreme stress, delegated ever-so softly as a personality disorder with just the right amount of sparkle n' jazz to keep the leadership in a-buzz.
+Well, at least all of this would hold true if the dreaded excesses of work didn't also lead to an almost debilitating level of self-harm, now manifesting itself into a compulsive desire to gouge your own eyes out with the edge of a disposable plastic knife, left ever-so keenly on the kitchen table of the office 3rd floor. A symbol of 21st century martyr in thy duty of extreme stress, delegated ever-so softly as a personality disorder with just the right amount of sparkle n' jazz to keep the leadership in a-buzz.
+
+It's a beautiful sight, as I gaze out into the foray of wild desks and fibre glass upholstry shimmering in the distance. You might even consider it a blessing of sorts, a weary collection of long-term aptitude, projecting itself across the the many faces of
+
+Crinkle n' cut, Benny boy. It's time to solder those wounds shut and call it a day. I know that's exactly how our good friend Jesus would want it. Recuperated within the space of a 10 minute smoko which clearly got waaaayyy out of hand. Keep the change sucker. It's all on me.
 
 
-"Well, it's a bit ridiculous, don't you think. I'm going out for a fag, do you want one?"
+"Well, it's a bit ridiculous, don't you think? Oh,  I'm going out for a fag, do you want one?"
 
 "You know I don't smoke."
 
@@ -54,7 +55,9 @@ At least all of this would hold true if the dreaded excess of work didn't also l
 
 "Ah, well, well, my child. It looks like the fatal grape has followed this hasty speed," passing me the pouch as she retrieved the filters from her purse.
 
-Casual smoking.
+I always found something sexual about casual smoking. Arguably I found everything
+
+While the modern contemporary spaces of the 30 storey building above served to be a bastion
 
 
 
@@ -71,13 +74,7 @@ Rhetoric aside, I actually quite like work, and aside from literally being paid 
 
 It's leverage, silly. That's what keeps your heart young and your fake eyelashes pretty. I mean, can you even taste the salt in the air? It's everywhere. In my eyes. My lungs, oh those poor little lungs of mine. It's a bit like trying to breathe without the glamour of knowing where exactly the oxygen is coming from. Perhaps that's just how we do it here in Cattle Country, remise to the steak you gorge on and hoard. An excellent place to adore, as well as ignore, all kinds of pertinent squalor; the same kind you so profess as professional gold. Your rough heart creates many.
 
-"Take this poor women and guide her towards the top of patriarchy," gleams an overly-caffeinated man in a company sweater,
-
-
-It's a beautiful sight, as I gaze out into the foray of wild desks and fibre glass upholstry shimmering in the distance. You might even consider it a blessing of sorts, a weary collection of long-term aptitude, projecting itself across the the many faces of
-
-Crinkle n' cut, Benny boy. It's time to solder those wounds shut and call it a day. I know that's exactly how our good friend Jesus would want it. Recuperated within the space of a 10 minute smoko which clearly got waaaayyy out of hand. Keep the change sucker. It's all on me.
-
+"Take this poor women and guide her towards the top of patriarchy," gleams an overly-caffeinated man in a company sweater, choking on a hard-drive full of high-resolution pictures of the CEO's junk.
 
 Milo returned with a coffee and a grin. Two things I've never seen her without.
 
@@ -85,3 +82,5 @@ Milo returned with a coffee and a grin. Two things I've never seen her without.
 <!--  -->
 
 I fingered through my manuscript.
+
+"Hey, would you like to go on a date?"
