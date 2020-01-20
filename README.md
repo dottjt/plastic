@@ -131,6 +131,8 @@ Possibly chapters/explorations:
 ### blog. - talks about the blog he writes.
 ### church. - talks about his faith.
 
+## maybe talk about the supermarket.
+
 
 # NOTES:
 

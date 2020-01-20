@@ -44,21 +44,34 @@ a misunderstood preamble of financial servitude and genetic shivery,
 
 shared amongst the consortium of bacteria suckling their teats upon the tears of happiness now drenched in acid, I proceeded to re-insert the misery module in the conveniently-placed
 
+
+
 # 02-work.md
+
+Mesmerisingly subterranean,
 
 live in front of a packed-out arena full of hardcore animal-rights activists
 
 in it's surreal propagation of pus and confetti
 
-An exciting state of explicit premonition, as your father dies in front of you with a face of sordid bloodiness, and then again in full motion as re-enacted by a man in green suit to be retrofitted to a scene in Top Gun. 
+I mean, can you even taste the salt in the air? It's everywhere. In my eyes. My lungs, oh those poor little lungs of mine. It's a bit like trying to breathe without the glamour of knowing where exactly the oxygen is coming from. Perhaps that's just how we do it here in Cattle Country, remise to the steak you gorge on and hoard. An excellent place to adore, as well as ignore, all kinds of pertinent squalor; the same kind you so profess as professional gold. Your rough heart creates many.
+
+
+of being a cute millennial, that you really can't help but wonder how you deliberate any sort of significant meaning, beyond the corpse you just laid to rest with a blunt knife and a resolve to inflict meaningless revenge.
+
+An exciting state of explicit premonition, as your father dies in front of you with a face of sordid bloodiness, and then again in full motion as re-enacted by a man in green suit to be retrofitted to a scene in Top Gun.
 
 We would then create the ultimate safari experience, allowing you to kill, maim or disturb as many innocent animals as you fit please, as long as the barrel of your gun is large enough to wipe it out in one shot. I'm sure the funding will come in soon.
 
+An exciting state of explicit premonition, as your father dies in front of you with a face of sordid bloodiness, and then again in full motion as re-enacted by a man in green suit to be retrofitted to a scene in Top Gun. The boys are back, baby!
 
  of a fishbowl of fake, lead-induced candy, chirpy, chip, chi to the children's ward downtown.
 
+imprint to the segregation our society loves to weep
 
-# 03-date.md
+# 03-family.md
+
+ And yet the great thing about lust is that your odds increase dramatically the more you roll the dice, candid in the biological defects you harbour like tainted margarine spread.
 
 # 04-depression.md
 
