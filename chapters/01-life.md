@@ -6,7 +6,7 @@ title: "life."
 
 Welcome to life. A rancid fascination of all things particular. An overwhelming sense of asymptotic reference. America's rag-doll daddy of putty intentions, spluttered viscous into the cultural misappropriation you slowly witness before your very eyes. This is where all stories begin, end and...
 
-"Truly fantastic", the editor announces from across the room, as he swivels in his chair towards my general direction. Hesitant in a gleam of cheap cologne and uncompromising flattery, his deflated stature struck brazen in a dyslexic haze of powdered aspartame and lopsided cheese squares. Only crumbs were left of the star-mangled biscuits, presumably store-bought for our excited listeners at home. He was the heartless operator who would introduce himself as my only lifeline into the world of publishing, and I was the incompatible liar who intended to milk his acquaintance until his bare nipples ran raw.
+"Truly fantastic", the editor announces from across the room, as he swivels in his chair towards my general direction. Hesitant in a gleam of cheap cologne and uncompromising flattery, struck brazen in a dyslexic haze of powdered aspartame and lopsided cheese squares. Only crumbs were left of the star-mangled biscuits, presumably store-bought for our excited listeners at home. He was the heartless operator who would introduce himself as my only lifeline into the world of publishing, and I was the incompatible liar who intended to milk his acquaintance until his bare nipples ran raw.
 
 "I really, really liked what you did there. I thought it was simply fantastic! The imagery. The sex appeal. I could definitely fuck that, if you know what I mean."
 

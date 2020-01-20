@@ -19,6 +19,9 @@ The Mother - Asian Tiger Parent.
 The Helper - Submissive Helper.
 The Therapist - Autistic
 
+
+Peter was an alcoholic.
+
 ## Chapters.
 
 <!-- 00 - The Setup -->
