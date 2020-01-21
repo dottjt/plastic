@@ -21,7 +21,7 @@
     text: doi:10.234234.234/33
   publisher:  Julius Reade
   rights: © 2019 Julius Reade, CC BY-NC
-  cover-image: ./ebook/book-cover.jpg
+  cover-image: ./ebook/book-cover.png
   lang: en-GB
   date: 2020-06-07
   # css:
