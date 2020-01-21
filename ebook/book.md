@@ -5,7 +5,7 @@
 
 Welcome to life. A rancid fascination of all things particular. An overwhelming sense of asymptotic reference. America's rag-doll daddy of putty intentions, spluttered viscous into the cultural misappropriation you slowly witness before your very eyes. This is where all stories begin, end and...
 
-"Truly fantastic", the editor announces from across the room, as he swivels in his chair towards my general direction. Hesitant in a gleam of cheap cologne and uncompromising flattery, his deflated stature struck brazen in a dyslexic haze of powdered aspartame and lopsided cheese squares. Only crumbs were left of the star-mangled biscuits, presumably store-bought for our excited listeners at home. He was the heartless operator who would introduce himself as my only lifeline into the world of publishing, and I was the incompatible liar who intended to milk his acquaintance until his bare nipples ran raw.
+"Truly fantastic", the editor announces from across the room, as he swivels in his chair towards my general direction. Hesitant in a gleam of cheap cologne and uncompromising flattery, deliriously struck brazen in a dyslexic haze of powdered aspartame and lopsided cheese squares. Only crumbs were left of the star-mangled biscuits, presumably store-bought for our excited listeners at home. He was the heartless operator who would introduce himself as my only lifeline into the world of publishing, and I was the incompatible liar who intended to milk his acquaintance until his bare nipples ran raw.
 
 "I really, really liked what you did there. I thought it was simply fantastic! The imagery. The sex appeal. I could definitely fuck that, if you know what I mean."
 
@@ -109,30 +109,54 @@ As walked out of the Ming restaurant, indifferent to these grease-ridden lanes, 
 
 
 
-In work we trust. A plutocratic orgy of totalitarian devastation, heiled as this week's perfect solution to the rampant "black" problem imprint to the segregation our society loves to weep. Mesmerisingly subterranean, it is the sensitive folly of an immaculate scheme designed to reprogram you into an insoluble undying commitment of useful, well-behaved utility. Shuckle up, bucko. It's time to cradle the flair.
+In work we trust. A plutocratic orgy of totalitarian devastation, heiled as this week's perfect solution to the rampant "black" problem. Mornin' coffee. Mornin' wank. Mornin' bowl. The diabolical blood seeps from your gums and into your cereal, immaculately programming you into an insoluble undying commitment of useful, well-behaved utility. Margarine's tainted folly of hardened disappoint has it's heels firmly dug into your brain, as you attempt to pry the concrete from your eyes with a miniature-sized pickaxe at 5:20am in the morning. Shuckle up, bucko. It's time to cradle the flair.
 
-Following this morning's disastrous ousting with the editor, I was truly in no mood to sort paper, snort wafer, nor entertain the upper soiree with my two-time tap-plastic beat. What I truly wanted was a gun and a live-animal to contest with. An outlet to express my debilitating sorrow with, by repeatedly emptying an entire magazine of 5.56 mm hollow point rounds into the head of a docile four-legged creature. Preferably in front of it's own fawn, as I stood there in an uncompromising vision of success, against the hardened tyranny of moral expectation. It's dead carcass will then to be held by it's ears and kissed by it's slobbering gob with the intense fervour of a bucket of over-cooked ravioli, as I grin awkwardly into the sun to be captured in photographic memory for future generations to inspire and relate. I was going to make it work.
+"In work we trust," preaches an overly-caffeinated woman sitting on-top of a stack of repurposed milk crates, lactating uncontrollably through the bright red stripes of her blouse, veins firmly attached to the outer-rims of the patriarchy's network of incompatible silence. "It's all leverage, silly," a pre-packaged idea she floats in a cheer of butchered anxiety, as she turns her attention towards her computer screen, avidly licking her lips at the touch of her mouse, eyes caught in a casual dally with a Kanban Board of Innovation featuring a list of all her best physical features. It's what kept her breasts inflated and her fake eyelashes in routine, gorged by a unidentifiable flurry of executive cock and caviar-littered cum, involving at least half the non-executive board and the CEO's Executive Assistance as well, trained in gymnastic all for good measure. "Take this poor women and guide her towards the top of patriarchy," gleams a over-worked office manager in an over-sized company sweater, gaff in choking fit of disaster following a sincere attempt to deep-throat a hard-drive full of high-resolution pictures of the CEO's junk. Unfortunately, it just ain't the same for ol' dick-weed here, what with his adamant facial hair and crippling inability to imitate a 14 year old Disney-inspired blow-job. Fortunately eligible for his underage daughter who's proudly completing her 3rd stint in an anorexia rehab centre, following an unfortunate incident with a c-level executive and their new 'back-door' policy. Although I must admit, there's nothing quite like a carpal tunnel induced hand-job at 3 to 10 in the afternoon, following an hour-long lecture on the cautionary reprimand of sexual harassment within the workplace.
 
-"Fuck. I forgot to bring my pass." I realised to myself, as I stood near the foreboding glass doors barring me from entry. My coat reeking of the emulsified pork and chive I didn't even get a chance to eat. I mean, what he fuck. Should I grab an outside bench and use it as a battering ram to force myself in? Where are the freely-available messenger pigeons at this time of day, to offer help and guidance in these times of need? Maybe the reasonable thing to do was call my boss, and pretend as if I'd caught some sort of medieval disease which prevented me from understanding Excel ever again. Ah, yes. Work truly is the kind of dibble-dabble affair that dribbles you in the nonsensical pleasure of well-organised crime, lesser to the pagan beliefs you uphold as gospel upon God's almighty vision. A mechanical duet featuring your absolute best face in an air-tight vacuum of complete perfection, mired upon a palette of plastic purple laminate, suitably moulded into tiny matchsticks for your mouth to align. "Half a matchstick each day keeps ol' Maggie away from caressing the heart monitor!", murmurs the fading voice in the back of my mind, somewhat delirious in intention gushing from my skull.
+Following this morning's disastrous ousting with the editor, I was truly in no mood to sort paper, snort wafer, nor entertain the upper soiree with my two-time tap-plastic beat. What I truly wanted was a gun and a live-animal to contest with, as an outlet to express my debilitating sorrow. The hostess would call me 'Big Akimbo' in honorary procession, as I held my delightful finger firm on the trigger of thy gun, repeatedly emptying an entire magazine of 5.56 mm hollow point rounds into the head of a docile four-legged creature. Preferably in front of it's own fawn, as I stand there in an uncompromising vision of success, against the hardened tyranny of moral expectation. It's shrapnel-imbued carcass will then to be held by it's hobble ears to be smooched by it's slobbering gob, intense with the fervour of an over-cooked bucket of ravioli slosh, as I grin awkwardly into the sun to be captured in photographic memory for future generations to inspire and relate. I was going to make it work.
 
-At least all of this would hold true if the dreaded excess of work didn't also lead to an almost debilitating level of self-harm, now manifesting itself into a compulsive desire to gouge your own eyes out with the edge of a disposable plastic knife, left ever-so keenly on the kitchen table of the 3rd floor office. A symbol of 21st century martyr in thy duty of extreme stress, delegated ever-so softly as a personality disorder with just the right amount of sparkle n' jazz to keep the leadership in a-buzz.
 
-"I'm guessing you forgot your pass again," approaches a pathless voice from the wide-open carpark of the contemporary compound, fit with enough connective fibre to meet Ethiopia's anal porn needs.
 
-"I guess I have indeed," I respond, slightly enamoured with her presence. Truth is, I was more than enamoured. I was obsessed. Those piercing Armenian eyes, wrapped thick in the shrill curls of a maniac-saviour, ready to attract and judge at any moment. Her body as slender and as elusive as the wisp of time itself, emancipated in a deformed stock of compact opulence. I was sure there was an innate part of her that derived pleasure from drenching her lovers in coarse honey, before twisting them into all sorts of tautologically impossible shapes to be fucked and played with, on a bed in a short-stint in rehab. I'm sure my therapist wouldn't have been too happy with those thoughts.
+Ruffling through my coat I'd realised that I'd forgotten to bring my pass into work, as I stared quietly at the foreboding glass doors barring me from performing today's financial execution. My green-stitched coat now also reeking of the emulsified pork and chive from the oriental dive bar earlier, an event which has since spawned an all-out war between my mouth and my stomach. North vs South in a diluted battle of makeshift terms, fuzzy in the lack of genuine discourse being discussed amongst the various allies of tongue and cheek. Befuddled and stuck in the firm certainty of despair, I wasn't quite sure what to do, given it was past lunch time and I'd decided not to even bother showing up to work to begin with. Especially since I knew my boss was going to be away, if not out of chance, just like he'd been for most of my child and adult life. Maybe that explained my erratic behaviour and desperate attention-seeking prowess, the proud legacy of a lifetime of professional neglect and ineffective HR practices. Obviously, my options were limited to the pocket-sized grain of rationality that hadn't yet been completed consumed by the creeping anxiety of being fired in some dramatic shootout in the carpark, so I had to think fast.
 
-Through the bright cellophane interior of the lobby,
+Was it in my best interest to grab a conveniently-located bench and use it as a battering ram in a sheer act of publicity-fueled terrorism, in an ode to my humble loyalty towards Capitalism best-practice? Where were the freely-available messenger pigeons at this time of day, needlessly vain in their help and counselling in these dreary times of need? Maybe the reasonable thing to do was call my boss, and pretend as if I'd caught some sort of medieval disease which prevented me from understanding the core fundamentals of Excel. Ah, yes. A fine day's work is truly never over. A kind of dibble-dabble affair that conspires to dribble you in the nonsensical pleasure of well-organised crime, lesser to the pagan beliefs you uphold as gospel upon God's almighty vision. A mechanical duet featuring your absolute best face in an air-tight vacuum of outstanding perfection, mired upon a palette of plastic purple laminate, suitably moulded into tiny matchsticks for your mouth to align. "Half a matchstick each day keeps ol' Maggie away from caressing ye ol' heart monitor!", murmurs a fading voice in the back of my mind, somewhat delirious in the poorly-received intention gushing from my skull.
 
-Exotic Peruvian plants and custom wood finishes
 
+
+"I'm guessing you forgot your pass again," approaches a pathless voice from the wide-open carpark fronting the technological fortress of torture machines and wires, fit with enough connective fibre to meet Ethiopia's anal porn needs. Judging by the snark prelude that emanated from her voice, there was no doubt in my mind it was Milo. The goddess of  whom littered my internet search history in an exploding file of mesmerising detail, I truly wanted nothing more than to grab her by the hair and fuck her senseless until the cataracts in my eyes bled green. It was too bad she knew nothing of my obsession, shrouded in the ripped veil of velvet rouge, only for my imagination to see. I dearly hoped she felt the same of me, although I knew it was wishful thinking.
+
+"I guess I have indeed," as I stood there slightly enamoured with her presence. Well, it was more of an immediate obsession than it was a simple acknowledgement to be upheld. Those piercing Armenian eyes, wrapped thick in the shrill curls of a maniac-saviour. Ready to lure, attract and murder at an unintentional glance. Her body as slender and as elusive as the wisp of time itself, emancipated in a deformed stock of cigarette ash and compact opulence. It was everything I envisioned and more. I was sure there was an innate part of her brain that derived pleasure from drenching her lovers in coarse honey, before twisting them into all sorts of tautologically impossible shapes to be fucked and played with, or as she described, a short-stint in rehab. I'm sure my therapist wouldn't have been too happy with those thoughts.
+
+
+
+Through the bright cellophane interiors of the refurbished lobby, fit with exotic Peruvian plants and a custom wood finish on the isolated desk ahead of me sat the receptionist. A messy ball of anxious wool and tangled cat hair, stunned in the bright pink, yellow and orange knitted jumpers she would wear all over her voluptuous body. She was a small personality trapped behind a big self-conscious smile, hidden beneath a desecrated tub of Neopolitan ice-cream she left under her bed, conveniently finished without even a trace of dairy to harm a lactose-intolerant child. Of course, I also wanted to fuck her too. Definitely worth paying to see a cam show, at the very least.
+
+"Good morning!" I shout, trying my best to sound like an all-inclusive trip to Disney Land.
+
+"Good morning? You know it's like, mid-afternoon, right?" Fuck. Just, fuck. I suppose it wasn't that bad. Maybe she found the aloofness attractive. My lovely self, that quirky asian wall-flower to be subtly admired with a nonchalant book on the intricate ironies of organic gardening. Perhaps it was an equivocal event to be pre-supposed by a romantic date on a sunset promenade, candle-lit in serene curiosity, followed by a weekend of average uninspired sex. Although I highly doubted my desirability as a man. No one wants to swipe right on the weird looking pervert licking his lips feverously at the sight of a bucket of chicken. I suppose I wasn't quite sure what it was girls wanted at all. I suspected most women were suspicious of hauty asian men. At least I wasn't attracted by the
+
+ Perhaps I didn't really care, because it conflicted what I wanted as a creep. A sick virtual fantasy of cum and gore, soiled all over the senses in a heap of used panties and unwashed lingerie, drenched in a cake of warm semen and indecent sweat. Mortal indecency sopping in the crimes of a sex-offender. Maybe that's what I should call my book.
+
+"Oh right, I had no idea," I remarked with an unconvincing smirk and a jovial  two-thumbs up, now pacing myself to my desk in a blitzkrieg of dirty thoughts and deranged requirements. Kaleidoscopic in a tangerine muse of teak stripes and amusing spaces, the office opened itself up in a heightened display of fluorescent lights
+
+
+
+I never really knew what to expect, but something was always missing. Either I was an easy target to steal from, or the nightly cleaner seemingly hated absolute everything about my existence. Either way,
 
 "Hey, did you hear about the updated deadlines? I swear, it changes daily," Milo remarked, dispassionate at the seams in a flurry of untied hair and a penchant
 
-"I have no idea," I responded, intense in my desire to remove myself from her presence. I mean, it's not like I hated her or anything. I just wanted nothing more than to grab her by the hair and fuck her senseless on the bathroom floors. Yet another a painful distraction from the thousands of clammy decisions grabbing at my brain and fuck me, but who am I not in love with these days? Yes, an enticingly offensive remark considering the integrity of these tight, syncratic lips. Beauty in their form and sour in their unreckoning desire to force grace into the tiny, dopamine-sized pockets preoccupying your brains. Pour the brandy into thy castle and deliver thy swine from the depths of hell. Oh, ever-so hellish indeed.
+"I have no idea," I responded, intense in my desire to remove myself from her presence. I mean, it's not like I hated her or anything. Yet another a painful distraction from the thousands of clammy decisions grabbing at my brain and fuck me, but who am I not in love with these days? Yes, an enticingly offensive remark considering the integrity of these tight, syncratic lips. Beauty in their form and sour in their unreckoning desire to force grace into the tiny, dopamine-sized pockets preoccupying your brains. Pour the brandy into thy castle and deliver thy swine from the depths of hell. Oh, ever-so hellish indeed.
+
+But I was born to win. To gather and disperse in complete declaration of the
+
+Well, at least all of this would hold true if the dreaded excesses of work didn't also lead to an almost debilitating level of self-harm, now manifesting itself into a compulsive desire to gouge your own eyes out with the edge of a disposable plastic knife, left ever-so keenly on the kitchen table of the office 3rd floor. A symbol of 21st century martyr in thy duty of extreme stress, delegated ever-so softly as a personality disorder with just the right amount of sparkle n' jazz to keep the leadership in a-buzz.
+
+It's a beautiful sight, as I gaze out into the foray of wild desks and fibre glass upholstry shimmering in the distance. You might even consider it a blessing of sorts, a weary collection of long-term aptitude, projecting itself across the the many faces of
+
+Crinkle n' cut, Benny boy. It's time to solder those wounds shut and call it a day. I know that's exactly how our good friend Jesus would want it. Recuperated within the space of a 10 minute smoko which clearly got waaaayyy out of hand. Keep the change sucker. It's all on me.
 
 
-
-"Well, it's a bit ridiculous, don't you think. I'm going out for a fag, do you want one?"
+"Well, it's a bit ridiculous, don't you think? Oh,  I'm going out for a fag, do you want one?"
 
 "You know I don't smoke."
 
@@ -140,7 +164,9 @@ Exotic Peruvian plants and custom wood finishes
 
 "Ah, well, well, my child. It looks like the fatal grape has followed this hasty speed," passing me the pouch as she retrieved the filters from her purse.
 
-Casual smoking.
+I always found something sexual about casual smoking. Arguably I found everything
+
+While the modern contemporary spaces of the 30 storey building above served to be a bastion
 
 
 
@@ -153,17 +179,7 @@ Casual smoking.
 
 
 
-Rhetoric aside, I actually quite like work, and aside from literally being paid by the boat-load to make that outrageous statement, I genuinely think it's a perfect package of routine and marriage. A homeless mother which holds you dearly and maintains such reverence towards your new-found illness of being a cute millennial, that you really can't help but wonder how you deliberate any sort of significant meaning, beyond the corpse you just laid to rest with a blunt knife and a resolve to inflict meaningless revenge. It is a true sense of purpose to wake up at 5:20am in the morning, only to disappoint yourself later in an attempt to pry the concrete from your eyes using a miniature-sized pickaxe.
-
-It's leverage, silly. That's what keeps your heart young and your fake eyelashes pretty. I mean, can you even taste the salt in the air? It's everywhere. In my eyes. My lungs, oh those poor little lungs of mine. It's a bit like trying to breathe without the glamour of knowing where exactly the oxygen is coming from. Perhaps that's just how we do it here in Cattle Country, remise to the steak you gorge on and hoard. An excellent place to adore, as well as ignore, all kinds of pertinent squalor; the same kind you so profess as professional gold. Your rough heart creates many.
-
-"Take this poor women and guide her towards the top of patriarchy," gleams an overly-caffeinated man in a company sweater,
-
-
-It's a beautiful sight, as I gaze out into the foray of wild desks and fibre glass upholstry shimmering in the distance. You might even consider it a blessing of sorts, a weary collection of long-term aptitude, projecting itself across the the many faces of
-
-Crinkle n' cut, Benny boy. It's time to solder those wounds shut and call it a day. I know that's exactly how our good friend Jesus would want it. Recuperated within the space of a 10 minute smoko which clearly got waaaayyy out of hand. Keep the change sucker. It's all on me.
-
+Rhetoric aside, I actually quite like work. THANK YOU, EMPLOYEE #545. And aside from literally being paid by the hour to make this company-wide announcement, I genuinely think it's a perfect package of routine and marriage.
 
 Milo returned with a coffee and a grin. Two things I've never seen her without.
 
@@ -172,43 +188,39 @@ Milo returned with a coffee and a grin. Two things I've never seen her without.
 
 I fingered through my manuscript.
 
+"Hey, would you like to go on a date?"
+
 
 # family.
 
 
 
 
-A single sperm is all it takes a to ruin a household. One faulty dig into nature's great big sack of genetic fanaticism, splendid within the Pseudoephedrine encapsulated collaborations causing you to screech in hallowing pleasure at the primal misery you fuck like peppermint candy. Involving a three-year technical specialisation in post-war self-abuse and the practical mastery of an erroneous puppet, your fortunes and valid and fully-funded by the Catholic cum delegation and their pack of Irish henchmen. And yet the great thing about lust is that your odds increase dramatically the more biological dice you decide to roll. For an almost inconspicuous price of admission, an entire hoard of sperm is all it takes to push and pull our beautiful fuck-thing through at least the early phases of college, as our dashing pre-star surrounds herself by a pack of anxious young men, pumped full of imitation testosterone and a natural tendency for knucklehead behaviour. A daring challenge for a new generation of Ikea inspired holes designed only to generously fit three fingers and a vape kit for use in-between lit lectures.
-
-"One day I'll have a piece of this," I remarked to myself, as I stared out of the train window into the rolling hills of splendor, surrounded by the lush green crust which upholds the mountains of concrete and inflated stock options breathing life into the thick insoluble clay leeching industrial minerals, begins the amiable foundings of a worthy few, perched by the flimsy housewives wearing $5 cardigans made of refined polyester. Monstrous structures built from Chinese Communist Party exuberance, host to an extravagant marble display of finger-lickin' grandeur, taint to the mistress currently tying your illegible wife to a makeshift torture device firing holy incense into her vagina. The artificial lakes and sprawling villages, thrust manic through a vision which holds itself together in fake competition, moaning anguish at the avaricious cancer it identifies as growth. Prams constructed of recycled children, quietly moaning future generations into a frenzy of kleptocratic privilege. A homeless man wearing a gold, jade necklace, cock erect at the thought of dinner. It was a demented hound of global atrocity; a facade upon which stitched the delicate fabric of the upper-middle class and their lofty ideals.
+A ten-ounce packet o' Hershey's sperm is all it takes a to ruin a household. One faulty dig into nature's great big ol' sack of genetic fanaticism, splendid within the pseudoephedrine-encapsulated collaborations encrusting the outline of your mother's vagina. A relative cum dumpster fire of filth and regret. Crunch n' sizzle bitches, groan in the delirious mannequin coquette causing you to screech in hallowing pleasure, daffle at the primal misery you fuck like peppermint candy. Involving a three-year technical specialisation in post-war self-abuse and the practical mastery of an erroneous puppet, your fortunes and valid have been generously funded by the Catholic Cum Al Ematis and their pack of Irish henchmen. And for the almost inconspicuous price of college admission, it only takes an entire hoard of sperm to push n' pull through our beautiful fuck-thing, as our dashing pre-star surrounds herself in the presence of anxious young men, pumped full of imitation testosterone and a natural tendency for the knucklehead life. A daring challenge for a new generation of Ikea-inspired holes designed only to generously fit three fingers and a vape kit for use in-between Russian lit lectures.
 
 
 
-Admittedly I wasn't particularly keen to see my mother, if you could even call her that. A coarse judgement of moistureless tree-sap, her most prominent features smeared and plastered onto the mummified child of a deep-frozen tibetan whore, operational only in the sheer amount of maintenance required to prevent the awful stench of Bamboo cookware and dried seafood
-
-Truth is that I never loved my mother. Nor was she much of a mother in the traditional sense. She was nothing more than a
-
-Forget the hugs and the positive reinforces, because we have a new player in town. Oh, so you don't like back-handed compliments? How splendid, because now we'll also pay someone else to do it for you. Sunday tutoring. An elegant way to create sadness from boredom, later to be confused with primordial lust.
-
- welcome to the grind of Sunday tutoring and saxophone lessons,
-
-a
+I always wondered if I'd have a piece of this one day, as I stared out of the graffiti'd glaze of the train windows ahead and into the rolling hills of splendor, surrounded by the lush green crust which upholds the mountains of concrete and inflated stock options breathing life into the thick insoluble clay leeching into the 60s' architecture which hadn't quite bucked the trend. These are the amiable foundings of a worthy few, perched by an incomplete set of Chinese housewives and their $5 cardigans made of refined polyester and hints of Worchester sauce. Monstrous structures built from Communist Party exuberance, host to an extravagant marble display of finger-lickin' grandeur, taint to the mistress currently tying your illegible wife to a makeshift torture device as she fires holy incense into the deepest parts of her clitoris. The artificial lakes and sprawling villages, thrust manic through a vision which holds itself together in fake competition, moaning anguish at the avaricious cancer it identifies as growth. Prams constructed of recycled children, quietly moan in the whispers of future generations, packed raving into a frantic frenzy of kleptocratic privilege. A homeless man wearing a gold, jade necklace, cock erect at the thought of dinner. It was a demented hound of global atrocity; a facade upon which stitched the delicate fabric of the upper-middle class and their lofty ideals.
 
 
 
-She was solely a source of anxiety, a pair of hands to help cook meals and scold. Love, of course, being the feeling.
+Admittedly, I wasn't particularly keen to kick the dirt with my own mother. A coarse judgement of moistureless tree-sap,  slathered and smeared onto the mummified corpse of a freeze-dried tibetan whore, operational only in the sheer amount of high thread-count linen required to prevent the awful stench of yesterday's lingering bamboo cookware and fermented Tuscan crustaceans from melding with your senses. I doubt you even could have called her a mother, neither in a traditional sense nor in any type of convoluted metaphor. I never loved her. I never felt anything for her, with exception to the seeping animosity which bloomed like a pond of algae, suffocating all life below. She was nothing more than a sully pair of hands, pushing and shoving me towards the human equivalent of an emotional meat-mincer. Forget the hugs and the punishing positivity, and lay welcome to our new forefathers of back-handed compliments and soul-piercing judgements. A faulty groundwork of stifling insecurity and suicidal thoughts, elegantly packaged to assist you in creatively discovering new ways to feel helpless and sad about yourself, later to be confused with the primordial lust you conjure at even the slightest sight of affection. Thankfully, she was getting old. Her greying hairs now dominating her futile attempts to stamp them out with black ink, she was too weak to control the world around her, yet completely comfortable in her incessant complaints of the world, as if the vitality of expression were an improvement within itself.
 
-Kids like me didn't have mothers. We had porn. An enticing fantasy land of courage and strength. The kind of fundamental truth you could twirl for hours on end, as you dangle a strap-on around your knee in order to satisfy your quench for inclusion. There are no barriers. No shady cum-ridden hand to shake in a confined petrol station restroom, just to witness your first set of fake breasts. You don't even have to leave your room, let alone the shadows of your own past. It's just there. 24/7. Happy to guide you into the fantastic lust-filled imagination of, providing you with your most fundamental desire to seek clarity in a world so lost with purpose.
 
-A young child sits in a room alone, awaiting cross-legged for his favourite cam girl to smile, if only to feel the warm embrace of a hug, held by his hands frantically masturbating the glowing rash developing from within his shaft. Welcome our new defacto parents of the world. An opportunity to rid the stain from your genes and introduce yourself to a new life of agrarian pleasure. I remember participating in my first gang-bang at 12. There I was. Sitting in my chair. Brain enveloped in something magical.
 
-At first it was truly mesmerising, like placing your hand into a souless lucky dip to find some authentic caricature of a set of laced panties. Then it becomes routine. A bashful kingdom of constant warfare, keeping your
+You see, kids like me didn't have mothers. We had porn. An enticing fantasy land of courage and strength. The kind of fundamental truth you could twirl for hours on end, as you dangle a strap-on around your knee in order to satisfy your quench for inclusion. There are no barriers. No shady cum-ridden hand to shake in a confined petrol station restroom, just to witness your first set of fake breasts. You don't even have to leave your room, let alone the shadows of your own past. It's just there. 24/7. Happy to guide you into the fantastic lust-filled imagination of, providing you with your most fundamental desire to seek clarity in a world so lost with purpose. A young child sits in a room alone, awaiting cross-legged for his favourite cam girl to smile, if only to feel the warm embrace of a hug, held by his hands frantically masturbating the glowing rash developing from within his shaft. Welcome our new defacto parents of the world. An opportunity to rid the stain from your genes and introduce yourself to a new life of agrarian pleasure. I remember participating in my first gang-bang at 12. There I was. Sitting in my chair. Brain enveloped in something magical. At first it was truly mesmerising, like placing your hand into a souless lucky dip to find some authentic caricature of a set of laced panties. Then it becomes routine. A bashful kingdom of constant warfare, keeping your
 
-I quietly slip in,
+
+
+Succulents. Succulents of every kind, 
+
+I quietly slip in through the backdoor in hopes of being unnoticed until at least I managed to make it into the living room.
+
+"You're late," responds a small upright
 
 A small upright figure enters the room, face like a porcelain horse.
 
-
+It's probably why I wouldn't have sex with an asian woman. It would remind me too much of my mother.
 
 Eyes darting around the screen in a morbid photographic fixation with the imposing image of breast and triggering keywords. Fuck. Whore. XXX. The vocabulary was your play-pen. A visual casino without walls, glittering in the cerulean madness restraining you suspenseful initiation. Next minute you're dashing down the street, holding a laptop in one hand with a sandwich in the other, kickin' the leash of glory to
 
@@ -375,7 +387,7 @@ Have you ever fought the HypeMachine (TM)? It's this high-pitched churn that gat
 
 
 
-The doorbell rings again.
+The doorbell rings again. It's Milo.
 
 
 

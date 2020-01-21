@@ -4,7 +4,7 @@ title: "family."
 
 <!-- Describe reproduction -->
 
-A ten-ounce packet o' Hershey's sperm is all it takes a to ruin a household. One faulty dig into nature's great big ol' sack of genetic fanaticism, splendid within the pseudoephedrine-encapsulated collaborations encrusting the outline of your mother's vagina. A relative cum dumpster fire of filth and regret. Crunch n' sizzle bitches, groan in the delirious mannequin coquette causing you to screech in hallowing pleasure, daffle at the primal misery you fuck like peppermint candy. Involving a three-year technical specialisation in post-war self-abuse and the practical mastery of an erroneous puppet, your fortunes and valid have been generously funded by the Catholic Cum Al Ematis and their pack of Irish henchmen. And for the almost inconspicuous price of college admission, it only takes an entire hoard of sperm to push n' pull through our beautiful fuck-thing, as our dashing pre-star surrounds herself in the presence of anxious young men, pumped full of imitation testosterone and a natural tendency for the knucklehead life. A daring challenge for a new generation of Ikea-inspired holes designed only to generously fit three fingers and a vape kit for use in-between Russian lit lectures.
+A ten-ounce packet o' Hershey's sperm is all it takes a to ruin a household. One faulty dig into nature's great big ol' sack of genetic fanaticism, splendid within the pseudoephedrine-encapsulated collaborations encrusting the outline of your mother's vagina. A relative cum dumpster of fire and frothy regret. Crunch n' sizzle bitches, groan in the delirious mannequin coquette causing you to screech in hallowing pleasure, daffle at the primal misery you fuck like peppermint candy. Involving a three-year technical specialisation in post-war self-abuse and the practical mastery of an erroneous puppet, your fortunes and valid have been generously funded by the Catholic Cum Laude and their pack of Irish henchmen. And for the almost inconspicuous price of college admission, it only takes an entire hoard of sperm to push n' pull through our beautiful fuck-thing, as our dashing pre-star surrounds herself in the presence of anxious young men, pumped full of imitation testosterone and a natural tendency for the knucklehead life. A daring challenge for a new generation of Ikea-inspired holes designed only to generously fit three fingers and a vape kit for use in-between Russian lit lectures.
 
 <!-- Describe suburbs -->
 
@@ -20,15 +20,14 @@ You see, kids like me didn't have mothers. We had porn. An enticing fantasy land
 
 <!-- Describe interaction with mother, as well as house -->
 
-Succulents. Succulents of every kind, 
+Succulents and cacti of every kind brace the newly-concreted driveway held together by particles of dust and refined palm oil, a perfecting serene in it's chemical absolution. I quietly slip in through the backdoor in hopes of being unnoticed until at least I managed to make it into the living room where I've garnered enough courage not to grab her face and grate it against the hard brick walls of the .
 
-I quietly slip in through the backdoor in hopes of being unnoticed until at least I managed to make it into the living room.
+"You're late," responds a small upright figure, face like a porcelain horse.
 
-"You're late," responds a small upright
+Her helper sits besides her, acute in the
 
-A small upright figure enters the room, face like a porcelain horse.
+It's probably why I refuse to have sex with an asian woman. It would be too much like fucking my own mother.
 
-It's probably why I wouldn't have sex with an asian woman. It would remind me too much of my mother.
 
 Eyes darting around the screen in a morbid photographic fixation with the imposing image of breast and triggering keywords. Fuck. Whore. XXX. The vocabulary was your play-pen. A visual casino without walls, glittering in the cerulean madness restraining you suspenseful initiation. Next minute you're dashing down the street, holding a laptop in one hand with a sandwich in the other, kickin' the leash of glory to
 
