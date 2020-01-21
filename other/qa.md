@@ -19,3 +19,7 @@ The idea behind this novel is that you never really get to know too much about t
 In fact, the moment you start talking about specifics is when you not only begin to lose the charm of the writing, but it also destroys the illusion that the character is being honest.
 
 Ultimately the character is trying to prove that he's human. He wants that so badly.
+
+
+
+In essence, this is a novel about bipolar disorder. The first half of the novel describes the depression and the downfall and the second half of the novel describes the ascent. 

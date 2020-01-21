@@ -46,7 +46,3 @@ A young immigrant stares into my eyes, searing patiently with an immuninescent i
 Rocked up in an old Holden Camino , was my Friend who
 
 
-
-Marrissa handed me the soap.
-
-

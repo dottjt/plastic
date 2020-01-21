@@ -4,7 +4,7 @@ title: "therapy."
 
 <!-- Human Fantasy Discussion -->
 
-Everyone dreams. It's on the front cover of every magazine, sizing and measuring you down to the retrofit standard that is printed at birth, stuck on your forehead and published to the nearest data collection centre, to be processed under the fine eye of a complex Japanese algorithm written in comparative lisp. "You are an average male, with an overwhelming propensity for sticking your penis into pretentious white people," my label states, time-stamped in a beautiful Iranian font, extracted from the seminal texts of a contemporary guide to desktop publishing. We try to love ourselves. We try to breathe meaning into our pursuits and leisures, providing them with hope and transparent textures to decorate our lives with, only to see them absorbed by a plague of locusts completing their regular routine around your ego.
+Everyone dreams. It's every magazine cover, sizing and measuring you down to the retrofit standard that is printed at birth, stuck on your forehead and published to the nearest data collection centre, to be processed under the fine eye of a complex Japanese algorithm written in comparative lisp. "You are an average male, with an overwhelming propensity for sticking your penis into pretentious white people," my label states, time-stamped in a beautiful Iranian font, extracted from the seminal texts of a contemporary guide to desktop publishing. We try to love ourselves. We try to breathe meaning into our pursuits and leisures, providing them with hope and transparent textures to decorate our lives with, only to see them absorbed by a plague of locusts completing their regular routine around your ego.
 
 "The problem was that I don't feel successful," I uttered to the therapist, a cold shoulder of taut one-liners and intricately gross examinations which bordered on dyslexic. A siamese bucket of discarded tape recorders, patched together with the incomplete narratives of hollow young men. She truly was a vacuum of utilitarian comfort, designed to suck the joy and pleasure from basic human necessity, formulised in a haptic frenzy of uncompromising hand gestures and seizure-inducing flashes. Yet, there was something comforting in the brown cardigan which served solely as a dilapidated corkboard of cat hair and coffee stains. Truth is I'd always wanted to fuck my therapist. Actually it was fair to say that I was keen to fuck anything.
 
@@ -89,5 +89,5 @@ A mature fight-fighter with a body like a well-kept fire axe, covered in the tan
 "I don't think you trust me to help you understand your own problems." Correct. I didn't trust her. I didn't trust her to understand my pain. I didn't trust to truly understand what it was like to even fathom the loneliness that held itself in high regard. Maybe I didn't trust her because I was barely willing to trust myself.
 
 
-I wasn't quite sure what to think as I left her office. 
+I wasn't quite sure what to think as I left her office.
 
