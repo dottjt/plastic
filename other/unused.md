@@ -71,7 +71,9 @@ imprint to the segregation our society loves to weep
 
 # 03-family.md
 
- And yet the great thing about lust is that your odds increase dramatically the more you roll the dice, candid in the biological defects you harbour like tainted margarine spread.
+Next minute you're dashing down the street, holding a laptop in one hand with a sandwich in the other, kickin' the leash of glory to
+
+And yet the great thing about lust is that your odds increase dramatically the more you roll the dice, candid in the biological defects you harbour like tainted margarine spread.
 
 # 04-depression.md
 

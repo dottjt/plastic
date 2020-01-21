@@ -25,3 +25,20 @@ Fuck you rabbit. Fuck you indeed.
 
 
 <!-- Reality, in bed -->
+
+
+
+I wanted to feel.
+
+What did it mean to cope?
+
+
+
+
+Maybe I'd feel better after a wake n' bake. Yeah, that's what I needed. It was time to degrade. I safely kept my weed in a glass-jar amongst all the .
+
+I prompted checked to see how my Bitcoin was doing. It wasn't looking good, but it was too late to stop now. 
+
+
+I put on my headphones and
+
