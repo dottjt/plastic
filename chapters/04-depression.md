@@ -12,19 +12,19 @@ I wasn't quite sure what to think of the haste pleasantries being thrown my way,
 
 "What am I doing," I wonder, depleted in the struggle of my confusion. The gristle on my chin scrapes against the crumpled linen sheets shrouding the glob of human sinew supporting my disenchantment with the world. I look up from the below the covers and into the indicator of my youth. 10:20am. That can't be good for the kidneys. Merged like oxidised gum to a bench at the train station,
 
+Maybe I felt guilt over the way I treated my mother.
+
 I don't quite know what's going on right now, however I feel quaint.
 
-I feel unadjusted. I feel unprepared for a life without meaning, though perhaps I'm simply unable to produce meaning without spreading my intellectual tar as a gift to the inconsequence slicing me open. It's a delicate buffet, so please dig in. An unpleasant feeling, a kind of surreal suffocation, that blinds me as welcomingly as it graces. I would happily equate it to grafting impure enamel into the soft edges of my eye-lids, allowing me to process what little conscious thought I have towards cultivating my dull roundness.
-"Don't fall off the train," they said. 
+I feel unadjusted. I feel unprepared for a life without meaning, though perhaps I'm simply unable to produce meaning without spreading my intellectual tar as a gift to the inconsequence slicing me open. It's a delicate buffet, so please dig in. An unpleasant feeling, a kind of surreal suffocation, that blinds me as welcomingly as it graces. I would happily equate it to grafting impure enamel into the soft edges of my eye-lids, allowing me to process what little conscious thought I have towards cultivating my dull insensitivity to .
 
-"It only comes once every two years, so unless if you're willing to choo, choo, choo - you better know your place, or be culled." 
+So here I am. It's post-cull and it's killing season. I have my rifle, my ammunition and as you can see, attached to my belt-buckle is the first kill for the afternoon. Unfortunately the fat-fuck couldn't waddle away fast enough to mummy's comfort, so I killed the entire family and here I am prodding away at a dead carcass with my great big fucking sword. Fuck you rabbit. Fuck you indeed.
 
-So here I am. It's post-cull and it's killing season. I have my rifle, my ammunition and as you can see, attached to my belt-buckle is the first kill for the afternoon. Unfortunately the fat fuck couldn't waddle away fast enough to mummy's comfort, so I killed the entire family and here I am prodding away at a dead carcass with my great big fucking sword. 
-
-Fuck you rabbit. Fuck you indeed.
+As I stare at my naked body in the front of the bathroom mirror, I found myself gasping. Short of breath. Hopelessly grasping at something I didn't quite know was there. Suffocating. Faltering in a muddled 
 
 
 <!-- Reality, in bed -->
+
 
 
 
@@ -34,11 +34,16 @@ What did it mean to cope?
 
 
 
+<!-- Takes drugs -->
 
 Maybe I'd feel better after a wake n' bake. Yeah, that's what I needed. It was time to degrade. I safely kept my weed in a glass-jar amongst all the .
 
-I prompted checked to see how my Bitcoin was doing. It wasn't looking good, but it was too late to stop now. 
+I prompted checked to see how my Bitcoin was doing. It wasn't looking good, but it was too late to stop now.
 
 
 I put on my headphones and
+
+<!--  -->
+
+As I
 

@@ -81,3 +81,13 @@ You’re a crispy Ted. Your haircut is an impression-less damp scruff of pastich
 
 
 A mature fight-fighter with a body like a well-kept fire axe, covered in the tan ripple of a thoughtless afternoon, fucking your wife by the poolside as you watch by in self-justified shame.
+
+"Maybe I'm not the right person to help you with your problems. You seem resistant to this idea that I can help you." Well, fuck. There ya have it folks. I was just another discarded reminder in this game of bastard cards.
+
+
+
+"I don't think you trust me to help you understand your own problems." Correct. I didn't trust her. I didn't trust her to understand my pain. I didn't trust to truly understand what it was like to even fathom the loneliness that held itself in high regard. Maybe I didn't trust her because I was barely willing to trust myself.
+
+
+I wasn't quite sure what to think as I left her office. 
+

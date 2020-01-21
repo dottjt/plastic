@@ -60,18 +60,22 @@ I can't say I know a lot about my father.
 I'm sure the snail cream
 
 
-"We should setup a family trust fund, just in case anything happens," she says
+"You need to find a partner," she says.
+
+Most of what she said usually drowned itself out into an inconsequential wave of white noise, streaming itself as quickly out of my mind as possible.
 
 
-
-<!-- Trip to the House -->
-
-Affluent.
-
-I never really understood the Helper.
 
 
 <!-- I end up breaking up, never seeing her again -->
+
+I couldn't take it anymore. I was going to do it. My gosh, I was actually going to do it. I couldn't quite believe it, but it was finally going to happen. Ecstatic with a burst of infinite possibility, I stood up from my chair, told my mother to fuck herself, and left the room. It felt as if I'd transformed into a butterfly. I felt enummerably lighter than I did before. Calmer. More in control. At this point, I really didn't care about . For the first time in my entire life, I felt in-control. 
+
+You could tell something had changed in her.
+
+"
+
+ burst from my chair, slamming my cup down
 
 "I'm breaking up,"
 
