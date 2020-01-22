@@ -14,7 +14,9 @@ Truth is that today was hardly ordinary. The population, although stuck in their
 
 There was a keen sense of dread that lingered in the never-ending stream of countless cogs that marched into the office building that morning, one foot in front of the other, conspiring itself in a feared battle-royale of blame and conjecture. Dark clouds in legions of three, gathered around the erroneous failures making themselves evident in the financial consequences thrust upon all. Peering into the sauntering graveyard of demotion and indemnity it holds sacred upon the walking bone and flesh. I shuddered as I stepped into the cold laborious lobby, shriek with the lost souls that levitated in a disturbed tremor to their casks awaiting them at their desks.
 
-Turning my attention towards the usual happy-hour of moment, I smile and wave at the receptionist, only to receive a stark glare of putrid bitterness, as if I'd intentionally shot her cat in a feud of pure injustice. Gone were the vibrant colours and the buoyant pick-me-ups, and in were the bleak browns and sickening white cardigans, matched against an ice-cold corpse of Carbon lipstick and burnt silicone. It's as if she were preparing to give a lap dance at a funeral. Junior developers pacing back and forth in between their workstations, coddled in an anxiety of austere Bluetooth mouth and technological hysteria. Marketing co-ordinators and copywriters, in the dozens, tying nooses and makeshift scythes out of rejected board-meeting catch phrases, plain in the throughfare of dismal hype lending itself to this very disaster. The only person who didn't quite seem so dejected was Milo, who leaning back in her extendible office chair on her desk, decorated in thigh-high knitted socks, seemed like the only sane person in the room.
+Turning my attention towards the usual happy-hour of moment, I smile and wave at the receptionist, only to receive a stark glare of putrid bitterness, as if I'd intentionally shot her cat in a feud of pure injustice. Gone were the vibrant colours and the buoyant pick-me-ups, and in were the bleak browns and sickening white cardigans, matched against an ice-cold corpse of Carbon lipstick and burnt silicone. It's as if she were preparing to give a lap dance at a funeral. Junior developers pacing back and forth in between their workstations, coddled in an anxiety of austere Bluetooth mouth and technological hysteria. Marketing co-ordinators and copywriters, in the dozens, tying nooses and makeshift scythes out of rejected board-meeting catch phrases, plain in the throughfare of dismal hype lending itself to this very disaster. Lowly interns grabbing imaginary cups of coffee from imaginary vendors, terrified in a role play of psychological truce.
+
+The only person who didn't quite seem so dejected was Milo, who leaning back in her extendible office chair on her desk, decorated in thigh-high knitted socks which continued into the outskirts of a pink-lace pantyhose, seemed like the only sane person in the room.
 
 "Hello stranger. Looks like someone decided to rock up to work today. I didn't know you liked me that much."
 
@@ -24,17 +26,19 @@ Turning my attention towards the usual happy-hour of moment, I smile and wave at
 
 "Oh, you know me. I would never allow a witness escape. No, didn't you hear about the stock market? It's pretty brutal."
 
-Milo looked at me with wide-open eyes, tautologically drawing the outline of my torso with her tongue slithered between her teeth, incommensurable in her indecision she treated like a cute afterthought. I could never quite tell what it was she was scheming, nor whom with. But it felt awfully as if I were being plucked from the herd for my blatant gullibility, a trait which I heralded as a quirky coping mechanism to be admired, now sinking me in a latrine of quibble speculation. Yet something had caught her by surprise. Shock. Horror. Delore. In the fade distance, chirping in a distinctive waddle of daphnia and jellied sand, was a man the office had witnessed in months. Dressed casual in a Tahitian blind and a
+Milo looked at me with wide-open eyes, tautologically drawing the outline of my torso with her tongue slithered between her teeth, incommensurable in her indecision she treated like a cute afterthought. I could never quite tell what it was she was scheming, nor whom with. But it felt awfully as if I were being plucked from the herd for my blatant gullibility, a trait which I heralded as a quirky coping mechanism to be admired, now sinking me in a latrine of quibble speculation. Yet something had caught her by surprise. Shock. Horror. Delore. In the fade distance, chirping in a distinctive waddle of daphnia and jellied sand, was a man the office had witnessed in months. Dressed casual in a Tahitian blind, peppered to the brim in tropical flowers and exotic motifs. It was a bit like watching an air travel billboard approach you without warning, alas to everyone's surprise. The boss was in the office for the first time in months. Homecoming had arrived, and the chastity had become agonising.
 
-Homecoming was here and we all had no idea what to expect.
+"Well, well. If it isn't the shit-meister," gloats the 6-foot mirage of coconut-butter and Machiavellian breath, amok in an eschew of Piña colada inspired hand signals. While he certainly wasn't the prettiest man, what with the raw gizzard and touching cellulite which dribbled from his chin, there was a lot to say about the sigh of comic relief which was his contribution towards the company. A title wedged so high on a pedestal so far away in the heavens above, that not even his own arrogance could pertain to the barrage of sanity attempting to bring him back down from such dizzying heights. He was the dad that allowed you to set mummy's new curtains on fire, if only so you'd shut up and bless him another 10 minutes of silence to watch the game in peace.
 
-To everyone's surprise, our boss had decided to show up for the first time in months, bringing the relative
-gloom in the office to a crushingly
+"What wonderful eyes you have, sir. It really is a delight to have you back in the office."
+
+"Shut up, pansy. Now listen here kids. I've got some big news for you all, and you ain't gonna like it. This place is fallin' to shit and we're going to have to make some changes around ere'." Although everyone was seemingly aware of the financial strife that the company was going through, it was still business as usual round these parts of town. Largely, people lounged around and dwadled on their screens, sending each other memes and . At one point I'm pretty sure I even saw someone enstated a cardboard cutout.
 
 
- the gloom in the office
 
-my boss showed in.
+
+let alone much of a pile of gizzard and artery-choking goo, it was only in the sigh of comic relief
+
 
 
 <!--  -->
