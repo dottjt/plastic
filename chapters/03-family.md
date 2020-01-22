@@ -26,13 +26,20 @@ Succulents and cacti of every kind, retrofit into all sorts of clay pots n' pans
 
 "You're late," responds a small upright figure, face like a porcelain horse. Spatula in hand, ready to strike at any moment. Her helper sits besides her, acute in the Stockholm complex wrapping his hooligan brain in an enticing fantasy land of denial. Neither lover, nor friend, I never quite understood the relationship the helper wore. Although he was older, married and unsuitably kind in his rhetoric, he yet preferred to spend his time in the company of cretin scum. Building. Sowing. Tending to his leash on a mortified penance of penalty and punishment. Only my mother was capable of deceiving the very basis of human evolution, raw in a pursuit of self-preservation which tore at the old white men of societies past. Especially when they were carrying her shopping.
 
-"Why don't you ever come to see me anymore?"
+"Why don't you ever come to see me any more? I wasted my entire life looking after you, and this is how you treat me?"
 
-"I fucking hate you," I responded.
+"I fucking hate you," I responded. Actually, that's not quite what I said, but it's precisely what my mouth wanted to say. Perhaps in a different universe
 
-The thing I struggled with most was the expectation I felt from her presence. I didn't quite know how to feel.
+Somewhere deep within my core was an inescapable pocket of hardened emotion, tumbling and forming under gargantuan pressure, ready to explode at even the slightest contact of oxygen. I really hated the way she would guilt you into believing that you owed her something. That she was completely responsible for you, not realising exactly what an awful experience the whole ordeal was. The constant baiting. The expectation of never quite meeting her unrealistic standards. The worst thing she would do was
 
-On the vintage dining table in front of us which uncomfortably sat a broken family of none,
+Logan Mathews.
+
+By the end of it, I didn't quite know how to feel about it all.
+
+On the vintage dining table of the traumatic in front of us which uncomfortably sat a broken family of none,
+
+Besides the table where a mosaic of childhood pictures, stepelled
+
 
 She popped down a bowl of rice, mixed with a variety of dried-fish
 
@@ -69,7 +76,7 @@ Most of what she said usually drowned itself out into an inconsequential wave of
 
 <!-- I end up breaking up, never seeing her again -->
 
-I couldn't take it anymore. I was going to do it. My gosh, I was actually going to do it. I couldn't quite believe it, but it was finally going to happen. Ecstatic with a burst of infinite possibility, I stood up from my chair, told my mother to fuck herself, and left the room. It felt as if I'd transformed into a butterfly. I felt enummerably lighter than I did before. Calmer. More in control. At this point, I really didn't care about . For the first time in my entire life, I felt in-control. 
+I couldn't take it anymore. I was going to do it. My gosh, I was actually going to do it. I couldn't quite believe it, but it was finally going to happen. Ecstatic with a burst of infinite possibility, I stood up from my chair, told my mother to fuck herself, and left the room. It felt as if I'd transformed into a butterfly. I felt enummerably lighter than I did before. Calmer. More in control. At this point, I really didn't care about . For the first time in my entire life, I felt in-control.
 
 You could tell something had changed in her.
 
@@ -77,9 +84,18 @@ You could tell something had changed in her.
 
  burst from my chair, slamming my cup down
 
-"I'm breaking up,"
+"That's it. I've had enough get fucked."
 
 "What do you mean you're breaking up?
 
-
 Hopefully I would never have to see her again.
+
+<!-- The train ride back -->
+
+Purple houses. Red parlours. Caracature crackers with an assortment of porous scars, silly with their dilly in this well sought-after town. The voice of a frail American approaches a caustic Chinese housewife, strapped with a yoga mat and a bottle of plum sauce lubricant, re-used from next door's shoot. Several cars arrive at the mansion. A camera crew and a giant dildo in the shape of a plastic dragon. The Shenzhen steel conglomeration were in for a real treat this year. Wild game, they called it. A royal competition where the wives of Communist Party leaders were wrapped inside a thick blanket of dyed red-ink, fucked with a Communist Party sponsored dildo and those that survived the 8-foot long dragon would be crowned winner, the ornament permanently lodged inside their vagina. The civility was bare, although I doubt they could have ever imagined it any other way. The pacing was off, for sure.
+
+Although I could feel myself gasping at the recklessness of my actions, there was also something quite magical about the calm tingle of the rush that had persisted till now. Like a giant dove carrying me in a wet drove of uncertainty, as the country-bound train forced itself along the motionless barren tracks, facilitating my desire to simply shut down and remove myself from the world. Was I bad person? Did I inflict harm onto others? Do I even have a choice. It felt as if I was part of some kind of definitive cycle of abusive psychopaths and manipulative low-lives, born out of a never-ending chain of bad parenting and alcohol abuse. I guess everyone wants to be 'the one' who breaks the cycle, but whether that were even humanely possible, I couldn't say for sure.
+
+I closed my laptop and broke down in a tidal wave of tears and emotion. Maybe the lady sitting in front of me would even find the sensitivity attractive, before propositioning to hold me and later provide me with a cheeky hand-job in the latter part of the carriage. And if only I weren't such a good liar. It was just me alone in this brightly-lit space. Trapped with all the time in the world to think less of my uncontrollable actions.
+
+<!-- END -->

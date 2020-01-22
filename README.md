@@ -17,7 +17,7 @@ The Boss - Plain Asshole.
 The Friend - Weebo Chinese Kid. (Hans)
 The Mother - Asian Tiger Parent.
 The Helper - Submissive Helper.
-The Therapist - Autistic
+The Therapist - Librarian woman.
 
 
 Peter was an alcoholic.
@@ -54,17 +54,15 @@ Peter was an alcoholic.
 
 - Meets up with his therapist.
 
-<!-- 06 - The scandal -->
-
-### birthday.
+### 06 - birthday.
 
 - Talks about the user's birthday.
 
-### bubble.
+### 07 - bubble.
 
-- The stock market crashes and the character loses their job. They get
+- The stock market crashes and the character loses their job. Hangs out with Milo and gets very drunk.
 
-### night.
+###  night.
 
 - It's late at night. Describe their observations as he walks towards the city.
 
@@ -142,3 +140,8 @@ Assuming that I manage to write 1,000 words a day, I'll be able to have enough w
 # used.
 
 treat.
+
+
+# TODO.
+
+Find colour note notes and add it here.

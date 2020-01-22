@@ -20,7 +20,7 @@ I feel unadjusted. I feel unprepared for a life without meaning, though perhaps 
 
 So here I am. It's post-cull and it's killing season. I have my rifle, my ammunition and as you can see, attached to my belt-buckle is the first kill for the afternoon. Unfortunately the fat-fuck couldn't waddle away fast enough to mummy's comfort, so I killed the entire family and here I am prodding away at a dead carcass with my great big fucking sword. Fuck you rabbit. Fuck you indeed.
 
-As I stare at my naked body in the front of the bathroom mirror, I found myself gasping. Short of breath. Hopelessly grasping at something I didn't quite know was there. Suffocating. Faltering in a muddled 
+As I stare at my naked body in the front of the bathroom mirror, I found myself gasping. Short of breath. Hopelessly grasping at something I didn't quite know was there. Suffocating. Faltering in a muddled
 
 
 <!-- Reality, in bed -->
@@ -38,12 +38,22 @@ What did it mean to cope?
 
 Maybe I'd feel better after a wake n' bake. Yeah, that's what I needed. It was time to degrade. I safely kept my weed in a glass-jar amongst all the .
 
+
 I prompted checked to see how my Bitcoin was doing. It wasn't looking good, but it was too late to stop now.
 
 
 I put on my headphones and
 
-<!--  -->
 
+
+<!-- Cam girl -->
+
+I loved cam girls. I mean, that's what they were there for. To be believed. To be loved. To provide some kind of
+
+I mean, I would never pay for them, but I would willing give myself up to them.
 As I
 
+I would go as far as to write erotica for them.
+
+
+<!-- erotica excerpt -->

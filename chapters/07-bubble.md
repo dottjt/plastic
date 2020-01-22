@@ -79,12 +79,17 @@ There's a particular mistress in every bar.
 
 Clashed against the senses,
 
-
 In a deafening reverberation of broken noise, the singing cheers and alcoholic folly of the bar left open a new a generation of patrons to falter and despair, clashing slovenly against the senses in an agonising huff of futility. It was clear who had become adjusted to the rein, those blacked out youth in their cordoroy t-shirts and labelled affair, justifying confidence with another stint at the bar. A drunken man swerves around me, smashing his head into the Irish trims lacing their way around the liquor tetrohedron of doom.
 
 
-"Man, where do they find these women," I retort,
+"Man, where do they find these women," I shout, knowing full-well that no one can hear me. I see Milo head to the bar, flirting with the waitress, before turning her head towards me with sharp smirk and a brief flutter in her eye, as if to suggest that I had some part to play
 
+I always felt out of place at bars. Not that it felt artificial, but it's not the kind of place you would live in, so why would you want to hang out there?
+
+Milo comes over with two pints of cider and a
+I down my first shot.
+
+I can feel her grabbing at my pants. It was wild. 
 
 
 Admittedly, I was never much of an alcohol kind of guy. I always

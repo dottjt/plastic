@@ -30,7 +30,7 @@ Through the bright cellophane interiors of the refurbished lobby, fit with exoti
 
 "Good morning? You know it's like, mid-afternoon, right?" Fuck. Just, fuck. I suppose it wasn't that bad. Maybe she found the aloofness attractive. My lovely self, that quirky asian wall-flower to be subtly admired with a nonchalant book on the intricate ironies of organic gardening. Perhaps it was an equivocal event to be pre-supposed by a romantic date on a sunset promenade, candle-lit in serene curiosity, followed by a weekend of average uninspired sex. Although I highly doubted my desirability as a man. No one wants to swipe right on the weird looking pervert licking his lips feverously at the sight of a bucket of chicken. I suppose I wasn't quite sure what it was girls wanted at all. I suspected most women were suspicious of hauty asian men. At least I wasn't attracted by the
 
- Perhaps I didn't really care, because it conflicted what I wanted as a creep. A sick virtual fantasy of cum and gore, soiled all over the senses in a heap of used panties and unwashed lingerie, drenched in a cake of warm semen and indecent sweat. Mortal indecency sopping in the crimes of a sex-offender. Maybe that's what I should call my book.
+Perhaps I didn't really care, because it conflicted what I wanted as a creep. A sick virtual fantasy of cum and gore, soiled all over the senses in a heap of used panties and unwashed lingerie, drenched in a cake of warm semen and indecent sweat. Mortal indecency sopping in the crimes of a sex-offender. Maybe that's what I should call my book.
 
 "Oh right, I had no idea," I remarked with an unconvincing smirk and a jovial  two-thumbs up, now pacing myself to my desk in a blitzkrieg of dirty thoughts and deranged requirements. Kaleidoscopic in a tangerine muse of teak stripes and amusing spaces, the office opened itself up in a heightened display of fluorescent lights
 
@@ -72,9 +72,20 @@ While the modern contemporary spaces of the 30 storey building above served to b
 
 "Do you ever think about death."
 
+<!-- Describe the process of work itself -->
+
+I always maintained an innately intimate relationship with my monitor, like an adorable sibling that spent all their time admiring your talents. It was the first thing that greeted me every morning, joining me for a brief moment as I relieved myself to a bunch of videos featuring.
+
+Perhaps because it was the thing I spent most my life staring at, yet never really quite noticing.
+
+I suppose the ancient equivalent would be falling in-love with your servant who cleaned the house and did your laundry.
+
+Whether through watching
+
+
 <!-- Monologue #2 -->
 
-Rhetoric aside, I actually quite like work. THANK YOU, EMPLOYEE #545. And aside from literally being paid by the hour to make this company-wide announcement, I genuinely think it's a perfect package of routine and marriage.
+Rhetoric aside, I actually quite like work. THANK YOU, EMPLOYEE #545. And aside from literally being paid by the hour to make this company-wide announcement, I genuinely think it's a perfect package of routine and marriage. A fat bitch with rolls of potato gravy arrives at your trailer for a quick fuck, lipped with a ciggie that mostly consisted of ash and methylated wallpaper, gunt the size of a pregnant gorilla, comes right on over . The trailer trash next door, bringing a six-pack and a nangs
 
 Milo returned with a coffee and a grin. Two things I've never seen her without.
 
@@ -84,3 +95,10 @@ Milo returned with a coffee and a grin. Two things I've never seen her without.
 I fingered through my manuscript.
 
 "Hey, would you like to go on a date?"
+
+
+The euphoria surged through my body like a jack hammer without an off-switch, pacts of brain cells exploding in a suicidal
+
+
+
+<!-- END -->
