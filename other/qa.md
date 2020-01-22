@@ -22,4 +22,7 @@ Ultimately the character is trying to prove that he's human. He wants that so ba
 
 
 
-In essence, this is a novel about bipolar disorder. The first half of the novel describes the depression and the downfall and the second half of the novel describes the ascent. 
+In essence, this is a novel about bipolar disorder. The first half of the novel describes the depression and the downfall and the second half of the novel describes the ascent.
+
+
+Part of what I wanted to do with this book, and perhaps why it was so fun to write, was take absolutely everything to an extreme. Every line, every situation, every describe, simulating what I would describe as a punch to the face. 

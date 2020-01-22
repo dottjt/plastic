@@ -12,24 +12,29 @@ Dangled in a mop of disarray, my hair found itself in desperate need of attentio
 
 Truth is that today was hardly ordinary. The population, although stuck in their old ways of routine and procedure, were worried. You could see it in their compounding reluctance for direct eye-contact, in their remarkably ambivalent coffee choices, weighing borderline on the spectrum. Citizens and scoundrel alike were glued to their phones, attached to the digital ink streaming across their screams in a fiery cliff of red. The stock market had crashed and everyone was afraid. Jittery in a hive mind of ignorance and fear, collective in the increased alcohol consumption which seemingly struck the city almost overnight. Even the homeless were afraid, counting down their last remaining scraps and half-opened tin cans, rusted in the over-evaluation which had finally caught up to the people.
 
-There was a keen sense of dread that lingered in the never-ending stream of countless cogs that marched into the office building, one foot in front of the other, conspiring itself in a feared battle royale of blame and conjecture. Dark clouds conspired above the erroneous failures peering their heads into our hearts,
+There was a keen sense of dread that lingered in the never-ending stream of countless cogs that marched into the office building that morning, one foot in front of the other, conspiring itself in a feared battle-royale of blame and conjecture. Dark clouds in legions of three, gathered around the erroneous failures making themselves evident in the financial consequences thrust upon all. Peering into the sauntering graveyard of demotion and indemnity it holds sacred upon the walking bone and flesh. I shuddered as I stepped into the cold laborious lobby, shriek with the lost souls that levitated in a disturbed tremor to their casks awaiting them at their desks.
 
-I smile and wave at the receptionist, only to receive a stark glare of putrid bitterness, as if I'd intentionally stepped on her cat in a feud of pure injustice. Gone were the vibrant colours and in were the bleak browns and sickening whites, a colour scheme for a different time. Junior developers pacing back and forth around their workstations, coddled in an anxiety of austere Bluetooth mouth and severe technological heart-ache. Marketing co-ordinators and copywriters, tying nooses out of rejected board-meeting catch phrases, plain in the throughfare of dismal hype lending itself to this very disaster. The only person who didn't quite seem so dejected was Milo, who leaning back in her extendible office chair on her desk, decorated in thigh-high knitted socks, seemed like the only sane person in the room.
+Turning my attention towards the usual happy-hour of moment, I smile and wave at the receptionist, only to receive a stark glare of putrid bitterness, as if I'd intentionally shot her cat in a feud of pure injustice. Gone were the vibrant colours and the buoyant pick-me-ups, and in were the bleak browns and sickening white cardigans, matched against an ice-cold corpse of Carbon lipstick and burnt silicone. It's as if she were preparing to give a lap dance at a funeral. Junior developers pacing back and forth in between their workstations, coddled in an anxiety of austere Bluetooth mouth and technological hysteria. Marketing co-ordinators and copywriters, in the dozens, tying nooses and makeshift scythes out of rejected board-meeting catch phrases, plain in the throughfare of dismal hype lending itself to this very disaster. The only person who didn't quite seem so dejected was Milo, who leaning back in her extendible office chair on her desk, decorated in thigh-high knitted socks, seemed like the only sane person in the room.
 
 "Hello stranger. Looks like someone decided to rock up to work today. I didn't know you liked me that much."
 
-"Very funny," I noted in extreme caution, knowing full-well that there was a 1 in 10 chance that her flirtatious actions could have resulted in a round of heated bathroom sex. Unfortunate for the disabled sod in a 60s' wheel chair, as they hold onto dear life hoping to avoid what is commonly known in the industry as the wheel marks of shame.
+"Very funny," I noted in extreme caution, knowing full-well that there was a 1 in 10 chance that her flirtatious actions could result in a round of heated bathroom sex, unfortunate for the disabled sod in a 60s' wheel chair holding on for dear life to the ambient noise of sexual wear n' tear.
 
-"What's up with everyone? It seems a bit tense out there. You didn't attack some poor girl in the toilets again, did you."
+"What's up with everyone? It seems a bit tense out there. You didn't attack some poor girl in the toilets again, did you?"
 
-"Oh, you know me. I wouldn't let a witness escape. No, didn't you hear about the stock market? It's pretty brutal."
+"Oh, you know me. I would never allow a witness escape. No, didn't you hear about the stock market? It's pretty brutal."
 
-Milo looked at me with wide-open eyes, tautologically drawing my outline with her tongue slithered between her teeth, incommensurable in her indecision she treated like a cute afterthought. I could never quite tell what it was she was scheming, nor who with. But it felt awfully as if I were being plucked from the herd for my blatant
-gullibility
+Milo looked at me with wide-open eyes, tautologically drawing the outline of my torso with her tongue slithered between her teeth, incommensurable in her indecision she treated like a cute afterthought. I could never quite tell what it was she was scheming, nor whom with. But it felt awfully as if I were being plucked from the herd for my blatant gullibility, a trait which I heralded as a quirky coping mechanism to be admired, now sinking me in a latrine of quibble speculation. Yet something had caught her by surprise. Shock. Horror. Delore. In the fade distance, chirping in a distinctive waddle of daphnia and jellied sand, was a man the office had witnessed in months. Dressed casual in a Tahitian blind and a
 
- which I relied on as a quirky coping mechanism
+Homecoming was here and we all had no idea what to expect.
 
-Yet it was to everyone's surprise when my boss showed in.
+To everyone's surprise, our boss had decided to show up for the first time in months, bringing the relative
+gloom in the office to a crushingly
+
+
+ the gloom in the office
+
+my boss showed in.
 
 
 <!--  -->
@@ -37,7 +42,7 @@ Yet it was to everyone's surprise when my boss showed in.
 
 <!-- Walk down the promenade -->
 
-There's something fantastic about sodomy. A religious travesty of heightened caution, no different to blowing up a entire school bus full of Indonesian school children, limbs akimbo, burnt sheets of trigonometry fluttering down in a cascade of ceremony, only to condemn those who practice formal expression in a much, much less formal way.
+There's something fantastic about sodomy. A religious travesty of heightened caution, no different to blowing up a entire school bus full of Indonesian school children, limbs akimbo, crisp sheets of trigonometry fluttering down in a cascade of ceremony, only to condemn those who practice formal expression in a much, much less formal way.
 
 "You really are evil, aren't you?" says Milo, skipping about on the side walk, a-twirl in her own world of disturbing imagination of primary fascination. A curious beast I one-day hoped to tame and unleash, like a feel-good tsunami of sexual domination. Clearly, you didn't need to hear that.
 
