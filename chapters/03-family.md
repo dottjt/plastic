@@ -40,10 +40,12 @@ On the vintage dining table of the traumatic in front of us which uncomfortably 
 
 Besides the table where a mosaic of childhood pictures, stepelled
 
+<!-- Talk about meal. -->
 
 She popped down a bowl of rice, mixed with a variety of dried-fish
 
 dishes ladden with
+
 
 
 
@@ -53,6 +55,8 @@ It's probably why I refuse to have sex with an asian woman. It would be too much
 
 <!-- Talk about guilt -->
 
+
+
 As I sat there in a spire of modern arcadia, mind prefixed on grabbing mother's face and shredding it along the outside brick wall.
 
 Talk about the guilt you feel as a son.
@@ -60,7 +64,7 @@ Talk about the guilt you feel as a son.
 
 <!-- Father -->
 
-I can't say I know a lot about my father.
+I didn't know a lot about my father, let alone whether he was still alive. He was more of a blur, than a curiosity. Admittedly it never really bothered me a great deal. It's hard to complain about something that you didn't have, and had no reference to compare to. Well, I did have my mother, and that was bad enough. Perhaps that was part of reason why I got along with dad in the short time that we were together before he had left, simply due to the misery that was mum. I guess I can't blame him, but I also can't praise him for anything he's done.
 
 
 <!-- In the bathroom -->
@@ -70,8 +74,6 @@ I'm sure the snail cream
 "You need to find a partner," she says.
 
 Most of what she said usually drowned itself out into an inconsequential wave of white noise, streaming itself as quickly out of my mind as possible.
-
-
 
 
 <!-- I end up breaking up, never seeing her again -->

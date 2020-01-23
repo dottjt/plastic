@@ -23,6 +23,7 @@ So here I am. It's post-cull and it's killing season. I have my rifle, my ammuni
 As I stare at my naked body in the front of the bathroom mirror, I found myself gasping. Short of breath. Hopelessly grasping at something I didn't quite know was there. Suffocating. Faltering in a muddled
 
 
+
 <!-- Reality, in bed -->
 
 
@@ -36,10 +37,9 @@ What did it mean to cope?
 
 <!-- Takes drugs -->
 
-Maybe I'd feel better after a wake n' bake. Yeah, that's what I needed. It was time to degrade. I safely kept my weed in a glass-jar amongst all the .
+Maybe I'd feel better after a wake n' bake. Yeah, that's what I needed. It was time to degrade. I safely kept my weed in a glass-jar amongst all the . I always used a bong, made of a retrofitted gatorade bottle and cut government piping.
 
 
-I prompted checked to see how my Bitcoin was doing. It wasn't looking good, but it was too late to stop now.
 
 
 I put on my headphones and

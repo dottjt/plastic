@@ -8,30 +8,23 @@ Hi. Have we met before? I know we probably haven't met before, but it's really n
 
 You're reading this message today because I'm in dire need of help. I am not okay. I don't quite know exactly why, only that I'm struggling to truly feel who I am. I used to be okay at feeling. It was something I did without too much thought, but today I find myself in disrepair. Unable to feel in any capacity at all. I wish things were different, but I'm unable to
 
-I didn't really feel much that morning. Neither did I have the desire to feel, nor did I .
+Which means I created you. I created you, because I have great taste in words. Isn't that right? Yeah, I think so too. Words are fun because they help me understand the world a little bit better. Words are friends, because they . Don't you love how the h curves around the .
 
-But hey, it was a Saturday morning, the lungs were still breathing and I didn't quite have the courage to pull the trigger,  which essentially meant only one thing. It was tab time.
+I didn't really feel much that morning. I didn't have the desire to feel, nor did I feel anything at all.
+
+But hey, it was a Saturday morning, the lungs were still breathing and I didn't quite have the courage to pull the trigger,  which essentially meant only one thing. It was time to tab.
 
 <!-- Describe the tabs, and the relationship with drugs. -->
 
-Like most uncouth civilians, tabs had become a regular fact of life. Although they had become routine at this point, I always liked to think of them as ego refreshers. They helped break down absolutely everything you knew about yourself into useless piles of silt. Just fine enough that you couldn't quite hold it within your hands, but solid enough that you could see it with your own eyes. The key was to take em' once every two weeks, otherwise you'd end up messing with your tolerance. With something like LSD you could probably get away with takin' em' once every week, although LSD was nowhere near as strong as the research chemicals I was digesting. They were significantly cheaper, nearly 10 times as strong and they packed a punch which left you completely incapacitated in the most euphoric of ways. Certainly if I had my own way, I'd be completely transfixed in a permanent state of constant morphing and transfixing. I always described it as a kind of psychopathic candy land where you die and become god. An opportunity to explore how malleable you truly really were.
+Like most uncouth, tabs had become a regular fact of life. Ego refreshers. They helped break down absolutely everything you knew about yourself into useless piles of silt. Just fine enough that you couldn't quite hold it within your hands, but solid enough that you could see it with your own eyes. The key was to take em' once every two weeks, otherwise you'd end up messing with your tolerance. With something like LSD you could probably get away with takin' em' once every week, although LSD was nowhere near as strong as the research chemicals I was digesting. They were significantly cheaper, nearly 10 times as strong and they packed a punch which left you completely incapacitated in the most euphoric of ways. They were a variant of nBome. 25i-nBome. The strongest and most visual of the nBome compounds. Certainly if I had my own way, I'd be completely transfixed in a permanent state of constant morphing and transfixing. I loved the morphing. It was arguably the best feeling in the world, well-beyond the euphoria of porn. Porn while on tabs? I honestly couldn't possibly describe anything more euphoric in the whole entire world. I always described tabs as a kind of psychopathic candy land where you die and become god. An opportunity to explore how gullible you truly were.
 
- and if I had my way, I'd probably . I could only afford the cheap tabs where were basically a variant of research chemical which purported to
+The only thing I didn't like about the tabs was the vasoconstriction. It felt as if your veins were being suffocated from the outside-in.
 
-What I loved most about tabs was the way it made you feel. I loved the morphing.
+The key with takin' tabs is to keep them away from light. It was also important to smoke weed beforehand, as it synergised with the psychadelic properties of hte tabs.
 
-
-The key with takin' tabs is to keep them away from light.
-
+Thankfully the tabs were nothing like the seeds. You'd have to perform an alcohol extraction on them. I personally used methylated spirits, which more-or-less was pure ethanol, minus some compounds which were placed inside it to make you want to purge yourself. Some methylated spirits actually contain compounds which make you go blind. Thankfully I called the manufacturer and they confirmed that it was fully safe. They must have known that I was up to something.
 
 
-
- Which means I created you. I created you, because I have great taste in words. Isn't that right? Yeah, I think so too. Words are fun because they help me understand the world a little bit better. Words are friends, because they
-
-I don't think you're not like the others.
-
-
- I'm a writer. I have great taste in words. It is something I like to do, all the time. Words. The H truly is a beautiful letter.
 
 
 In. Out. In. Out.
@@ -41,7 +34,7 @@ In. Out. In. Out.
 
 <!-- Hang out with a bad person. -->
 
-I receive a text from an old friend. A dealer. Yeah, what the fuck.
+I receive a text from an old friend. Dealer. Yeah, what the fuck.
 
 He rocks up in a
 
@@ -50,3 +43,7 @@ He rocks up in a
 
 
 Sometimes, it feels like I'm granted permission to be an awful person. Like I'm allowed to be so absolutely consumed in hatred that I don't even know who I am anymore.
+
+I wasn't exactly sure why I hated my mother so much. At this point in time, it just was. An immediate reaction to a symbol of pain. A justified reason to 
+
+It was a state of mind which my brain had defaulted to. Certainly, I believe that I always had this anger inside me, merely that I
