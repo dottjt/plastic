@@ -59,6 +59,9 @@ accumulative_commit_word_stats() {
     git checkout $REPO_COMMIT_ID --quiet
     TOTAL_COMMIT_WORD_TOTAL=0
 
+    # TODO: How do I get this to wc while ignoring all HTML comments?
+    # Maybe it's about using sed with a regex to filter out all cases with HTML comments.
+
     for chapter_file in $(ls ./chapters)
     do
       COMMIT_CHAPTER_WORD_COUNT=$(wc -w ./chapters/$chapter_file | awk '{print $1}')

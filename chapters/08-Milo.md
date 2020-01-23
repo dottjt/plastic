@@ -2,7 +2,11 @@
 title: "Milo."
 ---
 
-It was 7am in the morning. The air was thin. 
+<!-- Waking up together following the. -->
+
+
+
+The air was thin this morning. It had been quite cold recently, and I wasn't quite sure
 
 "I think I have a condition."
 
@@ -12,8 +16,15 @@ It was 7am in the morning. The air was thin.
 
 "Try and talk about your mental il=ln
 
+<!-- Talk about making breakfast together. -->
 
-<!--  -->
+"Wet cake makes for a soppy treat," she announces, floating her way to the heel of my toes, t-shirt draped across her bare shoulders.
+
+<!-- Breaking point. -->
+
+(maybe make it about trust issues)
+
+<!-- The breakup. -->
 
 "I don't think I can do this anymore. I like you n' all, and I think you're a really smart and funny guy, but you're just not really my type."
 
@@ -22,7 +33,7 @@ I didn't really know how to feel. How does one feel rejection when they already 
 "What do you mean? What more is there than being smart or funny?", I recited, following a long careful examination of the situation. Truth was, I was devastated.
 
 
-<!--  -->
+<!-- She leaves. -->
 
 My first reaction once she'd left was to masturbate. It was remained in the sunken realisation that all hope had decided to evade me, leaving my corspe in a discoloured
 
