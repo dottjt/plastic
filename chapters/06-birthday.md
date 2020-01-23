@@ -8,7 +8,9 @@ My birthday is the loneliest day of the year. It's an empty echo-chamber of must
 
 Saturday morning. Sunday autopsy. Duck-taped to the underside of my desk, I vainly attempt to rip the pistol from the fragmented clumps of dust underlying the trigger, pointing the barrel of the gun at my head. I can feel it sneeze. Manic in it's worry. I cry. I whimper. I breathe. I scream. I sustain it. I scream so loud I can feel my throat polymerise blood into tracks of . Ears turning a bright purple. My finger slips, and I am interrupted. "Shut the fuck up!" my neighbour shouts from across the hall, furious at the relative loss of peace my existence has caused to their regular programming. I put the gun down and continue to stare at the wall in front of me, splintered in the flakes of white gloss peeling in the isolated sections of my unjustified desire to live. The doorbell rings. It's my friend. It's my birthday. I just want to die.
 
-"Show us some cleave, honey," boasts the man at the door, holding a half opened-can of Guinness and . A suitable greeting for this 27 year old writer, dressed in yesterday's t-shirt. A stain on this earth to be admonished in ever diminishing quantities, sunken in a 
+"Show us some cleave, honey," boasts the man at the door, holding a half opened-can of Guinness and poorly wrapped . A suitable greeting for this 27 year old writer, dressed in yesterday's t-shirt. A stain on this earth to be admonished in ever diminishing quantities, sunken without Christ.
+
+
 
 
 fought over the HypeMachine (TM)? It's this high-pitched churn that gathers in the distance, loathing in

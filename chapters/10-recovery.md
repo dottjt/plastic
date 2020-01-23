@@ -4,7 +4,13 @@ title: "recovery."
 
 <!-- As I lie there in a cast . -->
 
-I wasn't in pain, so much that I was
+Emptiness.
+
+After a certain point I'd realised I didn't have any shoes.
+
+I didn't have any shoes.
+
+<!-- At home -->
 
 In times like these I would gorge. I would fill my body with as much crap as possible, vomit.
 

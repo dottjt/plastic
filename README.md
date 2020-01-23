@@ -18,7 +18,7 @@ The Friend - Weebo Chinese Kid. (Hans)
 The Mother - Asian Tiger Parent.
 The Helper - Submissive Helper.
 The Therapist - Librarian woman.
-
+The Leech -
 
 Peter was an alcoholic.
 
@@ -144,4 +144,6 @@ treat.
 
 # TODO.
 
-Find colour note notes and add it here.
+- Find colour note notes and add it here.
+- Maybe have a look at some writing on tumblr regarding these events. 
+- Sign up for a dev account on tumblr, and download all your writing that way.

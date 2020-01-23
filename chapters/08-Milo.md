@@ -4,7 +4,7 @@ title: "Milo."
 
 <!-- Waking up together following the. -->
 
-
+Caught in a wisp of cold air, I was ecstatic.
 
 The air was thin this morning. It had been quite cold recently, and I wasn't quite sure
 
