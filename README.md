@@ -145,5 +145,6 @@ treat.
 # TODO.
 
 - Find colour note notes and add it here.
-- Maybe have a look at some writing on tumblr regarding these events. 
-- Sign up for a dev account on tumblr, and download all your writing that way.
+- Maybe have a look at some writing on tumblr regarding these events.
+- Sign up for a dev account on tumblr, and download all your writing that way. - 
+- Organise blogspot entries into their own formatted md files.

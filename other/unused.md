@@ -53,6 +53,8 @@ Mesmerisingly subterranean,
 
 live in front of a packed-out arena full of hardcore animal-rights activists
 
+
+
 in it's surreal propagation of pus and confetti
 
 I mean, can you even taste the salt in the air? It's everywhere. In my eyes. My lungs, oh those poor little lungs of mine. It's a bit like trying to breathe without the glamour of knowing where exactly the oxygen is coming from. Perhaps that's just how we do it here in Cattle Country, remise to the steak you gorge on and hoard. An excellent place to adore, as well as ignore, all kinds of pertinent squalor; the same kind you so profess as professional gold. Your rough heart creates many.

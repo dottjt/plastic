@@ -34,4 +34,7 @@ In part because it's incredibly difficult to pertain to the whimsical style of t
 
 # What do you do when you get stuck?
 
-I find that when you're feeling creatively stuck or frustrated, is when it's the perfect opportunity to edit your work. Because in these moments your mind simply refuses to work with you, is a perfect state of mind for picking out what's wrong with your writing. It forces you into a position where you absolutely must make your writing as readable as possible. 
+I find that when you're feeling creatively stuck or frustrated, is when it's the perfect opportunity to edit your work. Because in these moments your mind simply refuses to work with you, is a perfect state of mind for picking out what's wrong with your writing. It forces you into a position where you absolutely must make your writing as readable as possible.
+
+
+The character's life is largely expressed through dread and cynicism. Everything is weary. Everything is forced and feels artificial.
