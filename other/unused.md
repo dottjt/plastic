@@ -7,6 +7,7 @@ nauseous in the underlying assumptions creeping itself into our veins.
 
 , crown jewel to the unjustified misery we all mimic and pretend.
 
+
 until his bare nipples ran raw.
 
 one tippity-tap away from enlightened expedition,
@@ -15,8 +16,18 @@ Frantic dawdling on his notepad aside, an ancient treasure <!-- fit suitably for
 
 The one to concoct this evening's pseudo-salad of pain.
 
+faltering into a gargantuam puddle of chromatic green,
 
-.
+
+ even more so than my initial struggle to weasel myself into the world of publishing.
+
+as he attempt to deliberate another hard-hitting thought, the totality of his conscious reality faltering .
+
+Catching him off guard, now that I was fully disinterested in anything he had to say,
+
+
+At one point, I was convinced he was trying to sell me a phone plan, subtle in the dubious hints of unintelligible sign language his fingers deliberated in submissive resolution. Outweighing all logical possibility,
+
 
 dearly hoping it would kill me before rendering me entire paralysed from the waist down.
 
@@ -29,6 +40,10 @@ cowering itself into coddled destitution.
 at the clamature of the situation
 In contemporary fashion,
 followed by a unwitting gasp at the clamature of the situation,
+
+## part 2
+
+ready to sell or consume
 
 The expectation was vast, ripping itself into the skin and bone of the casual patron,
 
@@ -48,6 +63,7 @@ a misunderstood preamble of financial servitude and genetic shivery,
 
 shared amongst the consortium of bacteria suckling their teats upon the tears of happiness now drenched in acid, I proceeded to re-insert the misery module in the conveniently-placed
 
+Only to be complemented by the corduous stench which leaked from the mangled pipes from within the ceiling above. A welcome blessing to the establishment of fine-dine publishing, thankfully contained within the four walls of this room. The curse and downfall of a 70s' decor filled to the brim with unwashed tupperware and plastic varnish, tainted by a sickly yellow synthesis oozing itself from the congregation of fake Tulips situated to the north of the perimeter, coalescing in satanic droves into the decrepit atmosphere of the dimly lit room. All while providing just enough grim to keep the magic of creativity from harming the integrity of publishing itself.
 
 
 # 02-work.md
