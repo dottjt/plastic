@@ -62,46 +62,37 @@ The booth itself comfortably sat three, a necessary arrangement to accomodate fo
 
 "I mean, I gue..."
 
-"Hey, waiter! Where are the dumps at! I'm just kiddin', although I would really appreciate a fresh menu. This one smells like chicken, or some shit. Oh, and two seltzer waters please! The bubbly stuff. Man, it's like tryin' throat-fuck a sauna in here!" Only he would have the audacity to confuse verbal harassment for excellent customer service, as an ode to the millions of telemarkers makin' dime sellin' faulty car insurance to reckless youth with a mandatory requirement for debt. He even insisted that the waiter stand silently by, ink to be dispersed at any moment in an inexplicable rage of Chinese cursive, as he scanned through the menu with the hobbling globber of a dying senior on life-support. Although what perplexed me most was how the editor had managed to turn so suddenly against me, or was I simply being naive? Did he realise I was even here?
+"Hey, waiter! Where are the dumps at! I'm just kiddin', although I would really appreciate a fresh menu. This one smells like chicken, or some shit. Oh, and two seltzer waters please! The bubbly stuff. Man, it's like tryin' throat-fuck a sauna in here!" Only he would have the audacity to confuse verbal harassment with the extravagant excellence of five-star customer service, as an ode to the millions of telemarkers makin' dime sellin' faulty car insurance to reckless youth with a mandatory requirement for debt spending. He even insisted that the waiter stand silently by, ink to be dispersed at any moment in an inexplicable rage of Chinese cursive, as he scanned through the menu with the hobbling globber of a dying senior in the midst of cardiac arrest. What truly perplexed me most was how the editor had managed to turn so suddenly against me, or had I simply been naive? Perhaps it was just what I'd become accustomed to, another cunder to be punt. Chew edis.
 
+"Let's see. I will have the 6-piece pork dumpling set, a chicken n' corn soup and uhh, could I please also have a large serving of Singapore noodle! They're real Singapore noodles, right?"
 
-"Let's see. I will have the 6-piece pork dumpling set, a chicken n' corn soup and uhh, could I please also have a serving of Singapore noodles. They're real Singapore noodles, right?"
-
-The waiter, the holy accolade of Mr. Ming himself, exercised a compendium of boredom in the broken English she repeated in direct contempt of the editor's culinary sacrilege which trod on a level of disrespect and treachery that transcended almost all cultural and social boundaries. Certainly, I doubt the restaurant owners enjoyed their daughter being harassed by a mid-aged white sock, an over-worked Mr. Ming caught standing in the corner of the ward, cautiously eyeing his customers and their presence, to the deep sighs of a sous-chef cutting slabs of a pork into thinly-sliced bundles of coy. Noodle in. Noodle out. Break a hand and shut the fuck up. I was ready to order.
+Miss. waiter, the holy accolade of Mr. Ming himself, exercised a compendium of boredom in the broken English she repeated in direct contempt towards the editor, which trod on a level of disrespect which transcended all meaningful social boundaries. Certainly, I doubt the restaurant owners enjoyed their daughter being harassed by a mid-aged white sock, as a plesantly over-worked Mr. Ming stood cautiously in the corner of the ward on guard duty, eyeing his customer's every intent. The deep sighs of the underpaid sous-chef butchering slabs of a glazed pork into thinly-sliced bundles of coy, only adding to the tension. Noodle in. Noodle out. Break a hand and call me Gonzo. I was ready to order.
 
 "I think I'll have the..."
 
-"So junior, tell me about this book then. Are we talkin' fantasy? I mean, I don't remember readin' about no goblins or nuthin', but it seems a bit out there if you know what I mean," muttered the editor mid prawn cracker, as he threw his menu onto the table beside him, completely unaware that I had yet to order anything from Mr. Ming's consortium of unidentified protein products. At this point I was equally as hungry as I was keen to have him tied to a bench and water tortured, although realising my cake had already been spat, trampled and fuck on, it was clear misery module located conveniently via in a slot in my skull had already suppressed my appetite, now programmed to endure whatever existing attrition was being held against my soul.
+"So junior, tell me about this book then. Are we talkin' fantasy? I mean, I don't remember readin' about no goblins or nuthin'", muttered the editor mid prawn-cracker, as he threw his menu onto the table beside him. Completely unaware that I had yet to order anything from Mr. Ming's consortium of unidentified protein eschew. If only I had a gun and an incessant desire to kill Italians, then we could end this scene in a wok full of limbs and cheap hair gel. At this point I was equally as hungry as I was keen to have him tied to a bench and water tortured, although realising my cake had already been spat on, trampled and fucked on, it was clear I'd already delegated my mind to the misery module located conveniently via in a PCI slot in my skull. A dozy appetite suppressant, now programmed to endure whatever existing attrition was being held against my soul.
 
-"I suppose I would describe it as story which takes you through the thoughts and interactions of a character who violently degrades to a point of complete destitution," I answered, ready to endure a concise refraction of meaningless assault.
+"Well editor, I can call you that, right? I suppose I would describe it as story which takes you through the thoughts and interactions of a character who violently degrades to a point of complete destitution," I answered, ready to endure a concise refraction of meaningless assault.
 
-"You know I don't do fantasy, right? That sounds like some weird Tolkein shit. You know, I'm all about the human story. I'm a man of feeling and I love hot integrity pieces."
+"That sounds a lot like fantasy to me. You know I don't do fantasy, right? I'm personally all about the human story. Can you come back to me with that?"
 
-For sparse moment we both stared at each other, like two brothers who hadn't quite met before. Although we both knew what we wanted, maybe we'd reached a point of where we were both too old to truly understand each other. At the very least, I knew that I'd had enough of his antics and aside from literally grabbing my spoon and shoving it into his eye before skull-fucking him, I squeezed my lips and held on tightly to the anger and frustration that was desperately trying to release itself into the world.
+For sparse moment we both stared at each other like two brothers who hadn't quite met before. Maybe we were simply too old, too bothered in our own ways to truly want to understand each other. And aside from literally grabbing my spoon and shoving it into his eye, there was little I could do to contain the anger and frustration that had constructed itself to a point of
 
-"I don't think this is going to work out," I murmured, hand on my bag, ready to engage in a prison-break of fury, only to be interrupted by the waiter carrying plates full of hot, steaming food, fresh from the packet. And although it clearly felt like a bad-date gone worse, it also felt a bit like a bad break up, between yin and yang's relative domains. For a few moments he sat there, perhaps overcome by his own  crushing morality, confused by today's outcome. In fact, I'm not quite sure how he felt, as he sat there in relative silence, breaking into his Singapore noodles and gobbling up the rasher twins' lesser cousins, in an all-out homicide of culinary scorched-earth. All I knew was that the mood had soured and something vulnerable had touched his inner-human, as he broke down sobbing into the piffling steam of oyster-sauce particulate and inconsequential urine.
+"This isn't going to work out," I murmured in a tight-lipped outburst, hand on my bag, ready to engage in an unplanned prison-break, only to be interrupted by Miss. waiter carrying blue-laced bowls full of hot, steaming food. For a few moments he sat there, overcome by his own crushing morality, confused at the very fate which he had sealed with his own two hands. Well, I wasn't quite sure how he felt, as he sat there in relative silence, breaking his fork into the viridian shimmer of his Singapore noodles, gobblin' up the rasher twins' lesser cousins in an all-out homicide of culinary scorched-earth. All I knew was that the mood had soured into a guava pulp of rotten aspirations, held down following by a violent clash with his own worst vulnerabilities, as he broke down sobbing into the piffling steam of urinated oyster-sauce and bipartisan sacrilege.
 
-"Listen, I'm sorry. I'm really, really sorry," he said, with bits of noodle stuck to his face, like a child's mural gone horribly wrong.
+"Listen, I'm sorry. I'm really, really sorry," cried the editor, with bits of noodle stuck to his face.
 
-"I need this job. I really fucking do. Fuck. I'm on last strings buddy. You don't know how badly I need this. They're going to fire me, I know it, unless if I can... I promise I'll try harder, okay!?" As far as I was concerned, it wasn't a matter of effort, so much as it was a matter of incompatibility, and although he knew it too, I wasn't keen on teaching a dead dog new tricks. The plain insincerity on the walls, now shifting it's muted colours into a dark purple, served as a sore reminder not to address the poor yupie trying his best to remain sober on a Wednesday.
+"I need this job. I really fucking do. Fuck. I'm on last strings buddy. You don't know how badly I need this. They're going to fire me, I know it. I can give you anything you want, you have to work with me dude." His cheek-bones bore the pity of a decrepit widow, held together by a chain of cigarettes which kept those ol' lungs pretty. We were two incompatible fuck-buddies, with a schedule which barely fit in enough time to spent with our wives. He saw red and I saw yellow. And although he knew it too, I wasn't keen on teaching a dead dog new tricks. The plain insincerity of the flaked-walls shifted their muted colours into a dark purple of valiant rose, drawing the poor yupie into a fifth-week of sobriety.
 
-"I just don't think you get it," carried the words into the hollow cavern of his brain, now attempting to recruit a gallow of well-trained monkeys to decipher the ploy of sabotage being hurled his way. The mean man of intellectual steel, burning himself on
+"I just don't think you get it. It's almost as if you didn't even read the book," I announced, personally hand-crafting my words in such a way that they would eventually reach the hollow cavern of his brain, now attempting to recruit a gallow of well-trained monkeys to decipher the ploy of sabotage being hurled his way.
 
-
-
-It's almost as if you didn't even read the book,
-
-"What, are you calling me stupid?" retorted the Italian barbarism he sought as a defensive mechanism against all means of life.
+"What, are you calling me stupid?", retorted the barbaric child, a defensive mechanism sought to eradicate all means of life.
 
 "Does it even make a difference?"
 
-At this point, I was certain he'd finally crumble and return back into the pit of magma from which he formed. Scheming in delicate ways
+Certainly, he didn't have any answers. No way to win. No way to express how little control he had over the situation. No way to charm or linger in
 
-"What if I told you that
-
-
-The cheque came squalid
-
+At this point, I was certain he'd finally crumble and return back into the pit of magma from which he formed, although the entropy was unlikely. I lifted myself from the table and walked away.
 
 
 <!-- Restaurant Leave -->
