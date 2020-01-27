@@ -1,6 +1,12 @@
 
 # life-01.md
 
+you could sense his mind falter at the pseudo-salad slosh of defective commentary his mouth felt compelled to reveal.
+
+"Truly fantastic", the editor announces from across the room as he swivels his chair towards my general direction. Hesitant in a gleam of cheap cologne and uncompromising flattery, you could sense his mind falter at the pseudo-salad slosh of defective commentary his mouth felt compelled to reveal. Struck brazen in a dyslexic haze of powdered aspartame and lopsided cheese squares, only crumbs were left of the star-mangled biscuits. Presumably store-bought for our excited listeners at home. Dwadling frantic on a notepad fit suitably for a 90s' Nickelodeon pre-teen, he was the mindless operator who would introduce himself as my only lifeline into the world of publishing, and I was the pathetic liar who intended to milk his acquaintance for all it was worth.
+
+// working version.
+
 carelessly vague in it's accelerating motion
 
 nauseous in the underlying assumptions creeping itself into our veins.
@@ -51,6 +57,8 @@ The expectation was vast, ripping itself into the skin and bone of the casual pa
 
  within these doors. Those flakey lines of trodden harmony? Were they real? Did they seek pleasure?
 
+ stuffed and padded with the thick combustible muck of a flammable coolant used solely for the manufacturing of cheap plastic goods
+ 
 Balthazar, Gaspar and Melchior, a commercial success of comical foundry. First you cut the cunt down. Then you leave him bleeding in a flurry of panic and lean excavation. Then you crepe your victim via a most beautiful method of distortion, taught only by seventh century con-artists and those with a phonetic tradition to lie.
 
 Chinese daughter with a taste for obedience and a genetic

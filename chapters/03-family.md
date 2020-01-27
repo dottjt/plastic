@@ -30,9 +30,9 @@ Succulents and cacti of every kind, retrofit into all sorts of clay pots n' pans
 
 "I fucking hate you," I responded. Actually, that's not quite what I said, but it's precisely what my mouth wanted to say. Perhaps in a different universe
 
-Somewhere deep within my core was an inescapable pocket of hardened emotion, tumbling and forming under gargantuan pressure, ready to explode at even the slightest contact of oxygen. I really hated the way she would guilt you into believing that you owed her something. That she was completely responsible for you, not realising exactly what an awful experience the whole ordeal was. The constant baiting. The expectation of never quite meeting her unrealistic standards. The worst thing she would do was
+Somewhere deep within my core was an inescapable pocket of hardened emotion, tumbling and forming under gargantuan pressure, ready to explode at even the slightest contact of oxygen. I really hated the way she would guilt you into believing that you owed her something. That she was completely responsible for you, not realising exactly what an awful experience the whole ordeal was. The constant baiting. The expectation of never quite meeting her unrealistic standards. The worst thing she would do was compare me.
 
-Logan Mathews.
+There was this one asian kid who she'd compare my grades against.
 
 By the end of it, I didn't quite know how to feel about it all.
 
