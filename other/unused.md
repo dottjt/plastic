@@ -43,6 +43,8 @@ followed by a unwitting gasp at the clamature of the situation,
 
 ## part 2
 
+
+
 ready to sell or consume
 
 The expectation was vast, ripping itself into the skin and bone of the casual patron,
