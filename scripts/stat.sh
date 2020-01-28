@@ -64,7 +64,9 @@ accumulative_commit_word_stats() {
 
     for chapter_file in $(ls ./chapters)
     do
-      COMMIT_CHAPTER_WORD_COUNT=$(cat ./chapters/$chapter_file | sed -e :a -re 's/<!--.*?-->//g;/<!--/N;//ba' | wc -w | awk '{print $1}')
+      COMMIT_CHAPTER_WORD_COUNT=$(cat ./chapters/$chapter_file | sed 's/<!--[^>]*-->//g' | wc -w | awk '{print $1}')
+      # COMMIT_CHAPTER_WORD_COUNT=$(wc -w ./chapters/$chapter_file | awk '{print $1}')
+
       TOTAL_COMMIT_WORD_TOTAL=$(($TOTAL_COMMIT_WORD_TOTAL + $COMMIT_CHAPTER_WORD_COUNT))
     done
 
