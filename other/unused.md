@@ -58,7 +58,7 @@ The expectation was vast, ripping itself into the skin and bone of the casual pa
  within these doors. Those flakey lines of trodden harmony? Were they real? Did they seek pleasure?
 
  stuffed and padded with the thick combustible muck of a flammable coolant used solely for the manufacturing of cheap plastic goods
- 
+
 Balthazar, Gaspar and Melchior, a commercial success of comical foundry. First you cut the cunt down. Then you leave him bleeding in a flurry of panic and lean excavation. Then you crepe your victim via a most beautiful method of distortion, taught only by seventh century con-artists and those with a phonetic tradition to lie.
 
 Chinese daughter with a taste for obedience and a genetic
@@ -74,6 +74,10 @@ a misunderstood preamble of financial servitude and genetic shivery,
 shared amongst the consortium of bacteria suckling their teats upon the tears of happiness now drenched in acid, I proceeded to re-insert the misery module in the conveniently-placed
 
 Only to be complemented by the corduous stench which leaked from the mangled pipes from within the ceiling above. A welcome blessing to the establishment of fine-dine publishing, thankfully contained within the four walls of this room. The curse and downfall of a 70s' decor filled to the brim with unwashed tupperware and plastic varnish, tainted by a sickly yellow synthesis oozing itself from the congregation of fake Tulips situated to the north of the perimeter, coalescing in satanic droves into the decrepit atmosphere of the dimly lit room. All while providing just enough grim to keep the magic of creativity from harming the integrity of publishing itself.
+
+# part 3
+
+If only I had a gun and an incessant desire to kill Italians, then we could end this scene in a wok full of limbs and cheap hair gel. At this point I was equally as hungry as I was keen to have him tied to a bench and water tortured, although realising my cake had already been spat on, trampled and fucked on, it was clear I'd already delegated my mind to the misery module located conveniently via in a PCI slot in my skull. A dozy appetite suppressant, now programmed to endure whatever existing attrition was being held against my soul.
 
 
 # 02-work.md

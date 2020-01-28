@@ -40,7 +40,18 @@ Attempting to leave the office was a frivolous scruffle of hard tactics and self
 
 Chinatown is the same everywhere you go. Unadorned paper lanterns slathered in the inner-city embrace of particulate smog, carelessly branded in a patriotic slurry of interdependent conceit and uncanny menstruation. The colours of red and a cast-iron yellow, fucked and dribbled along an autistic array of blinding nationalism. A mass-produced line of chauvinistic spirit, shoved senseless within an ornate red-envelope raffishly stamped with symbols of luck and whore. Conveniently placed within arm's distance of a burnt-out firecracker and an unsteady hit of Fentanyl. An ancient mechanism designed to forget and impress, because as any good Chinaman worth his weight in Tang dynasty gold knows, family and tradition always come first. And when your dying relative collapses at your knees, vomiting coagulated semen in a patriotic display of sex and fervour, that's when you know you've truly made it as a father and son of the People's Republic of China.
 
-Colorful displays of neon lights and piccadilly extravagance shrouded the backdraw of the twisted lanes of Chinatwon, harbouring the forgotten faces and contorted postures defying anatomy in the hauling duck-fat laid behind. Leading us towards our stranded destination of food and decontamination. Heated in a squabble of polarising contention, it soon became apparent to our fundamental being that the very foundation of our fibrous existence was being annexed into the smells and riches of our landscape. Grandma's chicken stock, plagued weary amidst the granular undertones of Grandpa's cigarette ash. Served in an impure confederation of tripe and blood jelly. A cloud of billowing steam engulfs a bamboo chorus of squeamish roe, twisting and wrying in a undulating scream of mass extinction. I can feel it grasping at my lungs amongst a hidden stew of fermented ginger, tempered opium and kibbled rat hair, bubbling in wretched torment within the sewerage pipes below. A fatal delicacy most workers simply could not afford. Supple hastings, my friend, as our our view widened into a precarious shade of white, and our sense of place vanished into a cold dark room of orbital apprehension.
+Colorful displays of neon lights and piccadilly extravagance shrouded the backdraw of the twisted lanes of Chinatwon, harbouring the forgotten faces and contorted postures defying anatomy in the hauling duck-fat laid behind. Leading us towards our stranded destination of food and decontamination. Heated in a squabble of polarising contention, it soon became apparent to our fundamental being that the very foundation of our fibrous existence was being annexed into the smells and riches of our landscape. Grandma's chicken stock, plagued weary amidst the granular undertones of Grandpa's cigarette ash. Served in an impure confederation of tripe and blood jelly. A cloud of billowing steam engulfs a bamboo chorus of squeamish roe, twisting and wrying in a undulating scream of mass extinction. I can feel it grasping at my lungs amongst a hidden stew of fermented ginger, tempered opium and kibbled rat hair, bubbling in wretched torment within the sewerage pipes below. A fatal delicacy most workers simply could not afford.
+
+Naked children flocked the street
+
+<!-- describe chinatown more. Don't just leave it there. -->
+
+
+
+
+
+
+Supple hastings, my friend, as our our view widened into a precarious shade of white, and our sense of place vanished into a cold dark room of orbital apprehension.
 
 "I too wanted to become a writer once," the editor blurted, as if making some kind of ultimate sacrifice against his own will.
 
@@ -51,6 +62,16 @@ Colorful displays of neon lights and piccadilly extravagance shrouded the backdr
 The muted Tudor frizzle of the dilapidated walls enclosing the Chinese palace (suitably named, The Ming) drew a sense of familial brooding as I stepped through the battered corridors and into the bright fluorescent gaze of an oriental mental ward. The laminate rows of chairs and tables confounded the general sense of space it attempted to immitate, juxtaposed against the depleted faces of a trodden theatre affair, now racing frantically to eradicate all sense of pride and honor as part of a grand self-serving pursuit of cathartic emotional absolution. Only time would reveal the truth to our witness, presupposed only by the shockingly empty response we received from our waiter's distilled face, as she guided us to our booth in the far back corner of the asylum.
 
 The booth itself comfortably sat three, a necessary arrangement to accomodate for the timely addition of the editor's ego, a six-foot mirage resembling the entire backbench of Republican majority senate, driven mad by the delicate tension of an unforgiving racist and his gook-inspired raciee. Much to his character, he blatantly insisted on sitting his gargantuan ass on the cushioned fabric of the revered corner seat, because apparently the idea of anything less would have been considered treason. Rape, steal and murder at any cost, and be sure to gather the receipt come tax time to assure your place on Mr. Ming's throne. Perhaps it was American policy to be an asshole. I was almost certain of it.
+
+<!-- Scene 2 END -->
+
+<div style="display: flex; justify-content: center; align-items: center;">
+  <img src="other/page_break_1.png" alt="page break" width="80" height="60" />
+</div>
+
+<!-- Scene 3 START -->
+
+The persian dazzle of his two-piece suit hid behind
 
 "Listen, I know you think I'm not the BRIGHTEST guy, but you know, I'm more a connections kind of man. A Wowser. Fantastic bloody connections, I'd say," the editor remarked, unintentionally resolute in the valium-infused confines of a sedated cliche.
 
@@ -70,7 +91,7 @@ Miss. waiter, the holy accolade of Mr. Ming himself, exercised a compendium of b
 
 "I think I'll have the..."
 
-"So junior, tell me about this book then. Are we talkin' fantasy? I mean, I don't remember readin' about no goblins or nuthin'", muttered the editor mid prawn-cracker, as he threw his menu onto the table beside him. Completely unaware that I had yet to order anything from Mr. Ming's consortium of unidentified protein eschew. If only I had a gun and an incessant desire to kill Italians, then we could end this scene in a wok full of limbs and cheap hair gel. At this point I was equally as hungry as I was keen to have him tied to a bench and water tortured, although realising my cake had already been spat on, trampled and fucked on, it was clear I'd already delegated my mind to the misery module located conveniently via in a PCI slot in my skull. A dozy appetite suppressant, now programmed to endure whatever existing attrition was being held against my soul.
+"So junior, tell me about this book then. Are we talkin' fantasy? I mean, I don't remember readin' about no goblins or nuthin'", muttered the editor mid prawn-cracker, as he threw his menu onto the table beside him. Completely unaware that I had yet to order anything from Mr. Ming's consortium of unidentified protein eschew.
 
 "Well editor, I can call you that, right? I suppose I would describe it as story which takes you through the thoughts and interactions of a character who violently degrades to a point of complete destitution," I answered, ready to endure a concise refraction of meaningless assault.
 
@@ -78,7 +99,7 @@ Miss. waiter, the holy accolade of Mr. Ming himself, exercised a compendium of b
 
 For sparse moment we both stared at each other like two brothers who hadn't quite met before. Maybe we were simply too old, too bothered in our own ways to truly want to understand each other. And aside from literally grabbing my spoon and shoving it into his eye, there was little I could do to contain the anger and frustration that had constructed itself to a point of
 
-"This isn't going to work out," I murmured in a tight-lipped outburst, hand on my bag, ready to engage in an unplanned prison-break, only to be interrupted by Miss. waiter carrying blue-laced bowls full of hot, steaming food. For a few moments he sat there, overcome by his own crushing morality, confused at the very fate which he had sealed with his own two hands. Well, I wasn't quite sure how he felt, as he sat there in relative silence, breaking his fork into the viridian shimmer of his Singapore noodles, gobblin' up the rasher twins' lesser cousins in an all-out homicide of culinary scorched-earth. All I knew was that the mood had soured into a guava pulp of rotten aspirations, held down following by a violent clash with his own worst vulnerabilities, as he broke down sobbing into the piffling steam of urinated oyster-sauce and bipartisan sacrilege.
+"This isn't going to work out," I murmured in a tight-lipped fury, hand on my bag, ready to engage in an unplanned prison-break, only to be interrupted by Miss. waiter carrying blue-laced bowls full of hot, steaming food. For a few moments he sat there, overcome by his own crushing morality, confused at the very fate which he had sealed with his own two hands. Well, I wasn't quite sure how he felt, as he sat there in relative silence, breaking his fork into the viridian shimmer of his Singapore noodles, gobblin' up the rasher twins' lesser cousins in an all-out homicide of culinary scorched-earth. All I knew was that the mood had soured into a guava pulp of rotten aspirations, held down following by a violent clash with his own worst vulnerabilities, as he broke down sobbing into the piffling steam of urinated oyster-sauce and bipartisan sacrilege.
 
 "Listen, I'm sorry. I'm really, really sorry," cried the editor, with bits of noodle stuck to his face.
 
@@ -90,15 +111,21 @@ For sparse moment we both stared at each other like two brothers who hadn't quit
 
 "Does it even make a difference?"
 
-Certainly, he didn't have any answers. No way to win. No way to express how little control he had over the situation. No way to charm or linger in
+Certainly, he didn't have any answers. No way to win. No way to express how little control he had over the situation. No way to charm or linger in . He needed me . I lifted myself from the table and walked away.
 
-At this point, I was certain he'd finally crumble and return back into the pit of magma from which he formed, although the entropy was unlikely. I lifted myself from the table and walked away.
+<!-- Scene 3 END -->
+
+<div style="display: flex; justify-content: center; align-items: center;">
+  <img src="other/page_break_1.png" alt="page break" width="80" height="60" />
+</div>
+
+
+<!-- Scene 4 START -->
+
+As I gwaked walked out of The Ming, indifferent to these grease-ridden lanes, plastered many times over with a volcanic certainty of cheap glue and holographic print, all I could feel were the tip of my knees as they sank ever-so silently into the mound of my socks. Like a slow-tide of faithlessness being dragged back into reef, it was the kind of thing that would always unanimously end in a public cheer of despondence, gurgled in the mass-hysteria of the death of an enemy.
 
 
 <!-- Restaurant Leave -->
-
-As walked out of the Ming restaurant, indifferent to these grease-ridden lanes, plastered many times over with a volcanic certainty of cheap glue and holographic print, all I could feel were the tip of my knees as they sank ever-so silently into the mound of my socks. Like a slow-tide of faithlessness being dragged back into reef, it was the kind of thing that would always unanimously end in a public cheer of despondence, gurgled in the mass-hysteria of the death of an enemy.
-
 
 
 

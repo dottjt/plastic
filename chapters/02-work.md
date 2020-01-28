@@ -2,6 +2,8 @@
 title: "work."
 ---
 
+<!-- Scene 1 START -->
+
 <!-- Work Introduction -->
 
 In work we trust. A plutocratic orgy of totalitarian devastation, heiled as this week's perfect solution to society's rampant "black" problem. Mornin' coffee. Mornin' wank. Mornin' bowl. The diabolical mud seeps from your gums and into your cereal, immaculately programming you into an insoluble undying commitment of useful, well-behaved utility. Margarine's tainted folly of hardened disappoint has it's heels firmly dug into your brain, as you attempt to pry the concrete from your eyes with a miniature pickaxe at 5:20am in the morning. Shuckle up, bucko. It's time to cradle the flair.
@@ -22,9 +24,18 @@ Was it in my best interest to grab a conveniently-located bench and use it as a 
 
 "I guess I have indeed," as I stood there slightly enamoured with her presence. Well, it was more of an immediate obsession than it was a simple acknowledgement to be upheld. Those piercing Armenian eyes, wrapped thick in the shrill curls of a maniac-saviour. Ready to lure, attract and murder at an unintentional glance. Her body as slender and as elusive as the wisp of time itself, emancipated in a deformed stock of cigarette ash and compact opulence. It was everything I envisioned and more. I was sure there was an innate part of her brain that derived pleasure from drenching her lovers in coarse honey, before twisting them into all sorts of tautologically impossible shapes to be fucked and played with, or as she described, a short-stint in rehab. I'm sure my therapist wouldn't have been too happy with those thoughts.
 
+<!-- Scene 1 END -->
+
+<div style="display: flex; justify-content: center; align-items: center;">
+  <img src="other/page_break_1.png" alt="page break" width="80" height="60" />
+</div>
+
+<!-- Scene 2 START -->
+
 <!-- Describe building + Interaction with the receptionist -->
 
 Through the bright cellophane interiors of the refurbished lobby, fit with exotic Peruvian plants and a custom wood finish on the isolated desk ahead of me sat the receptionist. A messy ball of anxious wool and tangled cat hair, stunned in the bright pink, yellow and orange knitted jumpers she would wear all over her voluptuous body. She was a small personality trapped behind a big self-conscious smile, hidden beneath a desecrated tub of Neopolitan ice-cream she left under her bed, conveniently finished without even a trace of dairy to harm a lactose-intolerant child. Of course, I also wanted to fuck her too. Definitely worth paying to see a cam show, at the very least.
+
 
 "Good morning!" I shout, trying my best to sound like an all-inclusive trip to Disney Land.
 
@@ -50,7 +61,6 @@ It's a beautiful sight, as I gaze out into the foray of wild desks and fibre gla
 
 Crinkle n' cut, Benny boy. It's time to solder those wounds shut and call it a day. I know that's exactly how our good friend Jesus would want it. Recuperated within the space of a 10 minute smoko which clearly got waaaayyy out of hand. Keep the change sucker. It's all on me.
 
-
 "Well, it's a bit ridiculous, don't you think? Oh,  I'm going out for a fag, do you want one?"
 
 "You know I don't smoke."
@@ -63,6 +73,13 @@ I always found something sexual about casual smoking. Arguably I found everythin
 
 While the modern contemporary spaces of the 30 storey building above served to be a bastion
 
+<!-- Scene 2 START -->
+
+<div style="display: flex; justify-content: center; align-items: center;">
+  <img src="other/page_break_1.png" alt="page break" width="80" height="60" />
+</div>
+
+<!-- Scene 3 START -->
 
 
 "So, how did le meeting with the editor go?"
