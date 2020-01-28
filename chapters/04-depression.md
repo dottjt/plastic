@@ -57,3 +57,9 @@ I would go as far as to write erotica for them.
 
 
 <!-- erotica excerpt -->
+
+
+
+<!-- Talk about guilt I felt disowning my mother. -->
+
+Talk about the guilt you feel as a son.
