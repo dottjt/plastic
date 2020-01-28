@@ -34,6 +34,7 @@ Catching him off guard, now that I was fully disinterested in anything he had to
 
 At one point, I was convinced he was trying to sell me a phone plan, subtle in the dubious hints of unintelligible sign language his fingers deliberated in submissive resolution. Outweighing all logical possibility,
 
+Only to be complemented by the corduous stench which leaked from the mangled pipes from within the ceiling above. A welcome blessing to the establishment of fine-dine publishing, thankfully contained within the four walls of this room. The curse and downfall of a 70s' decor filled to the brim with unwashed tupperware and plastic varnish, tainted by a sickly yellow synthesis oozing itself from the congregation of fake Tulips situated to the north of the perimeter, coalescing in satanic droves into the decrepit atmosphere of the dimly lit room. All while providing just enough grim to keep the magic of creativity from harming the integrity of publishing itself.
 
 dearly hoping it would kill me before rendering me entire paralysed from the waist down.
 
@@ -47,7 +48,7 @@ at the clamature of the situation
 In contemporary fashion,
 followed by a unwitting gasp at the clamature of the situation,
 
-## part 2
+### part 2
 
 
 
@@ -73,9 +74,13 @@ a misunderstood preamble of financial servitude and genetic shivery,
 
 shared amongst the consortium of bacteria suckling their teats upon the tears of happiness now drenched in acid, I proceeded to re-insert the misery module in the conveniently-placed
 
-Only to be complemented by the corduous stench which leaked from the mangled pipes from within the ceiling above. A welcome blessing to the establishment of fine-dine publishing, thankfully contained within the four walls of this room. The curse and downfall of a 70s' decor filled to the brim with unwashed tupperware and plastic varnish, tainted by a sickly yellow synthesis oozing itself from the congregation of fake Tulips situated to the north of the perimeter, coalescing in satanic droves into the decrepit atmosphere of the dimly lit room. All while providing just enough grim to keep the magic of creativity from harming the integrity of publishing itself.
-
 # part 3
+
+muttered the editor mid prawn-cracker, as he threw his menu onto the table beside him. Completely unaware that I had yet to order anything from Mr. Ming's consortium of unidentified protein eschew.
+
+"Well editor, I can call you that, right? I suppose I would describe it as story which takes you through the thoughts and interactions of a character who violently degrades to a point of complete destitution," I answered, ready to endure a concise refraction of meaningless assault.
+
+"That sounds a lot like fantasy to me. You know I don't do fantasy, right? I'm personally all about the human story. Can you come back to me with that?"
 
 If only I had a gun and an incessant desire to kill Italians, then we could end this scene in a wok full of limbs and cheap hair gel. At this point I was equally as hungry as I was keen to have him tied to a bench and water tortured, although realising my cake had already been spat on, trampled and fucked on, it was clear I'd already delegated my mind to the misery module located conveniently via in a PCI slot in my skull. A dozy appetite suppressant, now programmed to endure whatever existing attrition was being held against my soul.
 

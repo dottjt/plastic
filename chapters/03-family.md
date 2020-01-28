@@ -12,6 +12,18 @@ A ten-ounce packet o' Hershey's sperm is all it takes a to ruin a household. One
 
 I always wondered if I'd have a piece of this one day, as I stared out of the scratched-out glaze of the train windows ahead and into the rolling hills of splendor, surrounded by the lush green crust which upholds the mountains of concrete and inflated stock options breathing life into the thick insoluble clay leeching into the 60s' architecture which hadn't quite bucked the trend. These are the amiable foundings of a worthy few, perched by an incomplete set of Chinese housewives and their $5 cardigans made of refined polyester and hints of Worcester sauce. Monstrous structures built from Communist Party exuberance, host to an extravagant marble display of finger-lickin' grandeur, taint to the mistress currently tying your illegible wife to a makeshift torture device as she fires holy incense into the deepest parts of her clitoris. The artificial lakes and sprawling villages, thrust manic through a vision which holds itself together in fake competition, moaning anguish at the avaricious cancer it identifies as growth. Prams constructed of recycled children, quietly moan in the whispers of future generations, packed raving into a frantic frenzy of kleptocratic privilege. A homeless man wearing a gold, jade necklace, cock erect at the thought of dinner. It was a demented hound of global atrocity; a facade upon which stitched the delicate fabric of the upper-middle class and their lofty ideals.
 
+<!-- Describe rich Chinese people -->
+
+The rich 21st Century asian was . It did not know what it needed, only what it thought was Western.
+
+White Mercedes Benz, 
+
+<!-- Scene 1 END -->
+
+---
+
+<!-- Scene 2 START -->
+
 <!-- Describe mother -->
 
 Admittedly, I wasn't particularly keen to kick the dirt with my own mother. A coarse judgement of moistureless tree-sap,  slathered and smeared onto the mummified corpse of a freeze-dried tibetan whore, operational only in the sheer amount of high thread-count linen required to prevent the awful stench of yesterday's lingering bamboo cookware and fermented Tuscan crustaceans from melding with your senses. I doubt you even could have called her a mother, neither in a traditional sense nor in any type of convoluted metaphor. I never loved her. I never felt anything for her, with exception to the seeping animosity which bloomed like a pond of algae, suffocating all life below. She was nothing more than a sully pair of hands, pushing and shoving me towards the human equivalent of an emotional meat-mincer. Forget the hugs and the punishing positivity, and lay welcome to our new forefathers of back-handed compliments and soul-piercing judgements. A faulty groundwork of stifling insecurity and suicidal thoughts, elegantly packaged to assist you in creatively discovering new ways to feel helpless and sad about yourself, later to be confused with the primordial lust you conjure at even the slightest sight of affection. I remember she would constantly compare me. In particular, she would consistently measure my height, telling me that I would just be a bit better if only I

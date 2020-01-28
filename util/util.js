@@ -8,13 +8,22 @@ const stringFromArray = (website_content_array) => {
   return final_string;
 }
 
+const fancyBreakString = () => `
+  <div style="display: flex; justify-content: center; align-items: center;">
+    <img src="other/page_break_1.png" alt="page break" width="80" height="60" />
+  </div>
+`;
+
 const getHead = (fileContents) => {
   const headRegex = new RegExp(/---(.|[\r\n])+---/);
   const head = fileContents.match(headRegex)[0];
 
   const rawWithHTMLContent = fileContents.split('---')[2];
 
-  const content = rawWithHTMLContent.replace(/(?=<!--)([\s\S]*?)-->/g, '')
+  const content =
+    rawWithHTMLContent
+      .replace(/(?=<!--)([\s\S]*?)-->/g, '')
+      .replace(/---/g, fancyBreakString())
 
   return {
     head,
