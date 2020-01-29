@@ -2,11 +2,16 @@
 title: "life."
 ---
 
-<!-- Scene 1 START -->
+<!-- START -->
 
-<!-- Editor Introduction -->
+<!-- Scene 1 START -->
+<!-- This chapter introduces the character, the editor, a description of Chinatown, an outing at lunch, as well as their break up. -->
+
+<!-- Openner -->
 
 Welcome to life. A rancid fascination of all things particular. An overwhelming sense of asymptotic reference. America's rag-doll daddy of putty intentions, spluttered viscous into the cultural misappropriation you witness before your very eyes. This is where all stories begin, end and...
+
+<!-- Editor Introduction -->
 
 "Truly fantastic", the editor announces from across the room as he swivels his chair towards my general direction. Hesitant in a gleam of cheap cologne and uncompromising flattery, mouth struck brazen in a dyslexic haze of powdered aspartame and lopsided cheese squares. Only crumbs were left of the star-mangled biscuits, presumably store-bought for our excited listeners at home. Dwadling frantic on a notepad fit suitably for a 90s' Nickelodeon pre-teen, he was the mindless operator who would introduce himself as my only lifeline into the world of publishing, and I was the pathetic liar who intended to milk his acquaintance for all it was worth.
 

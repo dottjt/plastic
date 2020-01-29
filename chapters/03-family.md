@@ -2,14 +2,14 @@
 title: "family."
 ---
 
+<!-- START -->
+
 <!-- Scene 1 START -->
+<!-- A chapter about reproduction, the Chinese suburbs, my mother and my porn addiction. We argue and I cut her off. -->
 
 <!-- Reproduction Introduction -->
 
 A ten-ounce packet o' Hershey's sperm is all it takes a to ruin a household. One faulty dig into nature's great big ol' sack of genetic fanaticism, splendid within the pseudoephedrine-encapsulated collaborations encrusting the outline of your mother's vagina, a relative cum dumpster of fire and frothy regret. Crunch n' sizzle bitches, groan in the delirious mannequin coquette causing you to screech in hallowing pleasure, daffle at the primal misery you fuck like peppermint candy. Involving a three-year technical specialisation in al fresco self-abuse and the practical mastery of an erroneous puppet, your fortunes and valid have been generously funded by the Catholic Cum Laude and their pack of Irish henchmen. And for the almost inconspicuous price of college admission, it only takes an entire hoard of sperm to push n' pull through our beautiful fuck-thing, as our dashing pre-star surrounds herself in the presence of anxious young men, pumped full of imitation testosterone and a natural tendency for the knucklehead life. A daring challenge for a new generation of Ikea-inspired holes designed only to generously fit three fingers and a vape kit for use in-between Russian lit lectures.
-
-Hungarian Cheese
-
 
 <!-- Describe suburbs -->
 
@@ -22,6 +22,10 @@ The rich 21st Century asian was . It did not know what it needed, only what it t
 White Mercedes Benz,
 
 Council men
+
+Spread legs gather around a plate of Hungrarian
+Hungarian heese grown from a
+
 
 
 <!-- Approach the house -->
@@ -58,6 +62,8 @@ There was this one asian kid who she'd compare my grades against.
 
 By the end of it, I didn't quite know how to feel about it all.
 
+It was all about the beat-down.
+
 Thankfully, she was getting old. Her greying hairs now dominating her futile attempts to stamp them out with black ink, she was too weak to control the world around her, yet completely comfortable in her incessant complaints of the world, as if the vitality of expression were an improvement within itself.
 
 <!-- Mother Greeting -->
@@ -70,11 +76,13 @@ Thankfully, she was getting old. Her greying hairs now dominating her futile att
 
 <!-- Describe porn usage -->
 
-You see, kids like me didn't have mothers. We had pornstars, playful fun-things of deluded femininity and simulated courage. A kind of twisted fundamental truth that would allow you to twirl for hours on end, as you attempt to dangle a mammoth-sized strap-on around your knee in order to satisfy your quench for inclusion. There are no barriers. No shady cum-ridden hand to shake in a confined petrol station restroom, just to witness your first set of fake breasts. You don't even have to leave your room, let alone the shadows of your own past. It's just there. 24/7. Happy to guide you into the fantastic lust-filled imagination of, providing you with your most fundamental desire to seek clarity in a world so lost with purpose. A young child sits in a room alone, awaiting cross-legged for his favourite cam girl to smile, if only to feel the warm embrace of a hug, held by his hands frantically masturbating the glowing rash developing from within his shaft. Welcome our new defacto parents of the world. An opportunity to rid the stain from your genes and introduce yourself to a new life of agrarian pleasure.
+You see, kids like me didn't have mothers. We had neglected computer screens of pornstars and colourful smut, playful fun-things of deluded femininity and simulated courage. A kind of twisted fundamental truth that would allow you to twirl for hours on end, as you attempt to dangle a mammoth-sized strap-on around your knee in order to satisfy your quench for inclusion. There are no barriers. No shady cum-ridden hand to shake in a confined petrol station restroom, just to witness your first set of fake breasts. You don't even have to leave your room, let alone the shadows of your own past. It's just there. 24/7. Happy to guide you into the fantastic lust-filled imagination of, providing you with your most fundamental desire to seek clarity in a world so lost with purpose. A young child sits in a room alone, awaiting cross-legged for his favourite cam girl to smile, if only to feel the warm embrace of a hug, held by his hands frantically masturbating the glowing rash developing from within his shaft. Welcome our new defacto parents of the world. An opportunity to rid the stain from your genes and introduce yourself to a new life of agrarian pleasure.
 
-I remember participating in my first gang-bang at 12. There I was. Sitting in my chair. Brain enveloped in something magical. At first it was truly mesmerising, like placing your hand into a soulless lucky dip to find some authentic caricature of a set of laced panties. Eyes darting around the screen in a morbid photographic fixation with the imposing image of breast and triggering keywords. Fuck. Whore. XXX. The vocabulary was your play-pen. A visual casino without walls, glittering in the cerulean madness restraining you suspenseful initiation. Then it becomes routine. A bashful kingdom of constant warfare, keeping your brain intact and out of stunted order. A need. A dire situation of requirement. A lethargic reminder of your own existence, as you enclave your existence within an overwhelming bombardment of smut and obscene destitution. Then begins the rape. The Lithuanian gang bangs. The brutality of forced-torture and poly-amorous anthropomorphism, shoved into the sweaty paws of a furry suit fit for enough disenfranchised cocks to choke a small horse to death. Orphaned children dying in a fledgling fuck-storm of medical disaster, fists shoved so deep into so many tight spaces that not even the coroner can keep up.
+I remember participating in my first gang-bang at 12. There I was. Sitting in my chair. Brain enveloped in something magical. At first it was truly mesmerising, like placing your hand into a soulless lucky dip to find some authentic caricature of a set of laced panties. Eyes darting around the screen in a morbid photographic fixation with the imposing image of breast and triggering keywords. Fuck. Whore. XXX. The vocabulary was your play-pen. A visual casino without walls, glittering in the cerulean madness restraining you suspenseful initiation. Then it becomes routine. A bashful kingdom of constant warfare, keeping your brain intact and out of stunted order. A need. A dire situation of requirement. A lethargic reminder of your own existence, as you enclave your existence within an overwhelming bombardment of obscene destitution. Then begins the rape. The Lithuanian gang bangs. The brutality of forced-torture and poly-amorous anthropomorphism, shoved into the sweaty paws of a furry suit fit for enough disenfranchised cocks to choke a small horse to death. Orphaned children dying in a fledgling fuck-storm of medical disaster, fists shoved so deep into so many tight spaces that not even the coroner can keep up.
 
-A small girl thigh-high tights flashes her vagina in an inconsequential.
+A small girl thigh-high tights flashes her vagina in an inconsequential display of voyeurism.
+
+Japanese AV models were the closest thing I ever had to a mother, and it showed in the trembled lustre rotting through my kidneys.
 
 <!-- Talk about relationship -->
 
@@ -91,6 +99,7 @@ It's probably why I refuse to have sex with an asian woman. There was no thought
 
 <!-- Scene 3 START -->
 
+<!-- Eat lunch with my mother -->
 
 On the vintage dining table of the traumatic in front of us which uncomfortably sat a broken family of none,
 
@@ -107,7 +116,7 @@ As I sat there in a spire of modern arcadia, mind prefixed on grabbing mother's 
 
 <!-- Father -->
 
-I didn't know a lot about my father, let alone whether he was still alive. He was more of a blur, than a curiosity. Admittedly it never really bothered me a great deal. It's hard to complain about something that you didn't have, and had no reference to compare to. Well, I did have my mother, and that was bad enough. Perhaps that was part of reason why I got along with dad in the short time that we were together before he had left, simply due to the misery that was mum. I guess I can't blame him, but I also can't praise him for anything he's done.
+I didn't know a lot about my father. He was more of a blur, than a curiosity. Admittedly it never really bothered me a great deal. It's hard to complain about something that you didn't have, and had no reference to compare to. Well, I did have my mother, and that was bad enough. Perhaps that was part of reason why I got along with dad in the short time that we were together before he had left, simply due to the misery that was mum. I guess I can't blame him, but I also can't praise him for anything he's done.
 
 
 "You need to find a partner," she says.
@@ -137,12 +146,16 @@ Hopefully I would never have to see her again.
 
 <!-- Scene 4 START -->
 
-<!-- The train ride back -->
+<!-- Describe Suburbs -->
 
 Purple houses. Red parlours. Caracature crackers with an assortment of porous scars, silly with their dilly in this well sought-after town. The voice of a frail American approaches a caustic Chinese housewife, strapped with a yoga mat and a bottle of plum sauce lubricant, re-used from next door's shoot. Several cars arrive at the mansion. A camera crew and a giant dildo in the shape of a plastic dragon. The Shenzhen steel conglomeration were in for a real treat this year. Wild game, they called it. A royal competition where the wives of Communist Party leaders were wrapped inside a thick blanket of dyed red-ink, fucked with a Communist Party sponsored dildo and those that survived the 8-foot long dragon would be crowned winner, the ornament permanently lodged inside their vagina. The civility was bare, although I doubt they could have ever imagined it any other way. The pacing was off, for sure.
+
+<!-- Train Ride Back -->
 
 Although I could feel myself gasping at the recklessness of my actions, there was also something quite magical about the calm tingle of the rush that had persisted till now. Like a giant dove carrying me in a wet drove of uncertainty, as the country-bound train forced itself along the motionless barren tracks, facilitating my desire to simply shut down and remove myself from the world. Was I bad person? Did I inflict harm onto others? Do I even have a choice. It felt as if I was part of some kind of definitive cycle of abusive psychopaths and manipulative low-lives, born out of a never-ending chain of bad parenting and alcohol abuse. I guess everyone wants to be 'the one' who breaks the cycle, but whether that were even humanely possible, I couldn't say for sure.
 
 I closed my laptop and broke down in a tidal wave of tears and emotion. Maybe the lady sitting in front of me would even find the sensitivity attractive, before propositioning to hold me and later provide me with a cheeky hand-job in the latter part of the carriage. And if only I weren't such a good liar. It was just me alone in this brightly-lit space. Trapped with all the time in the world to think less of my uncontrollable actions.
+
+<!-- Scene 4 END -->
 
 <!-- END -->

@@ -2,7 +2,20 @@
 title: "Milo."
 ---
 
-<!-- Waking up together following the. -->
+<!-- START -->
+
+<!-- Scene 1 START -->
+<!-- A chapter where the character expresses his love for Milo. She freaks out. They break up. -->
+
+<!-- Expressing love  -->
+
+I felt love.
+
+The perfect image of cuckholdry.
+
+<!-- Waking up with Milo -->
+
+I could feel her body pressed against mine.
 
 Caught in a wisp of cold air, I was ecstatic.
 
@@ -24,6 +37,15 @@ The air was thin this morning. It had been quite cold recently, and I wasn't qui
 
 (maybe make it about trust issues)
 
+
+
+<!-- Scene 1 END -->
+
+---
+
+<!-- Scene 2 START -->
+
+
 <!-- The breakup. -->
 
 "I don't think I can do this anymore. I like you n' all, and I think you're a really smart and funny guy, but you're just not really my type."
@@ -43,3 +65,8 @@ Careful not to think, I picked myself up and slowly
 I walked my
 
  Someone shove a shard of glass into
+
+
+<!-- Scene 2 END -->
+
+<!-- END -->

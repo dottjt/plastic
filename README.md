@@ -24,7 +24,7 @@ Peter was an alcoholic.
 
 ## Chapters.
 
-<!-- 00 - The Setup -->
+  <!-- 00 - The Setup -->
 
 ### 01 - life.
 
@@ -81,7 +81,7 @@ Stevie was a stewer. Stevie loved to stew.
 - Character takes drugs. Becomes an addict. The degradation.
 
 
-<!-- 11 -->
+  <!-- 11 -->
 
 ### market.
 
@@ -98,7 +98,7 @@ Stevie was a stewer. Stevie loved to stew.
 
 
 ### date.
-<!-- I don't think this will be a long chapter -->
+  <!-- I don't think this will be a long chapter -->
 
 - This chapter develops Milo and the Character's love story.
 - Character goes to the movies with Milo.
@@ -109,7 +109,7 @@ Stevie was a stewer. Stevie loved to stew.
 
 - Talk about working in tele-marketing.
 
-<!-- 16 -->
+  <!-- 16 -->
 
 ### slave.
 
@@ -146,5 +146,5 @@ treat.
 
 - Find colour note notes and add it here.
 - Maybe have a look at some writing on tumblr regarding these events.
-- Sign up for a dev account on tumblr, and download all your writing that way. - 
+- Sign up for a dev account on tumblr, and download all your writing that way. -
 - Organise blogspot entries into their own formatted md files.

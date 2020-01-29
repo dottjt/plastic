@@ -2,9 +2,11 @@
 
 I suppose there's a few themes at play. The main character is part Chinese and the book describes his gradual degradation in life. Even though killing seems like something instantaneous, the character is very much experiencing a slow death. Perhaps he is already in purgatory, who knows.
 
-#
 
-Hi. I hoped you liked my book. Firstly, I would like to say although the book touches on some very dark moments and overall paints a very broken man, I am doing fine.
+
+# Am I mentally okay?
+
+Although the book touches on some very dark moments and overall paints a very broken man, I am doing fine. There is no possibly way I could have written a book without my mental health intact.
 
 
 # Why do some characters not have names? In fact, why does Milo only have a name?

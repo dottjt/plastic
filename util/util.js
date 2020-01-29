@@ -22,7 +22,7 @@ const getHead = (fileContents) => {
 
   const content =
     rawWithHTMLContent
-      .replace(/(?=<!--)([\s\S]*?)-->/g, '')
+      .replace(/(?=  <!--)([\s\S]*?)-->/g, '')
       .replace(/---/g, fancyBreakString())
 
   return {

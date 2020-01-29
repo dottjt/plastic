@@ -64,7 +64,7 @@ accumulative_commit_word_stats() {
 
     for chapter_file in $(ls ./chapters)
     do
-      COMMIT_CHAPTER_WORD_COUNT=$(cat ./chapters/$chapter_file | sed 's/<!--[^>]*-->//g' | wc -w | awk '{print $1}')
+      COMMIT_CHAPTER_WORD_COUNT=$(cat ./chapters/$chapter_file | sed 's/  <!--[^>]*-->//g' | wc -w | awk '{print $1}')
       # COMMIT_CHAPTER_WORD_COUNT=$(wc -w ./chapters/$chapter_file | awk '{print $1}')
 
       TOTAL_COMMIT_WORD_TOTAL=$(($TOTAL_COMMIT_WORD_TOTAL + $COMMIT_CHAPTER_WORD_COUNT))
@@ -83,7 +83,7 @@ accumulative_commit_word_stats() {
 latest_total_branch_stats() {
   for chapter_file in $(ls ./chapters)
   do
-    CHAPTER_WORD_COUNT=$(cat ./chapters/$chapter_file | sed 's/<!--[^>]*-->//g' | wc -w | awk '{print $1}')
+    CHAPTER_WORD_COUNT=$(cat ./chapters/$chapter_file | sed 's/  <!--[^>]*-->//g' | wc -w | awk '{print $1}')
     TOTAL_CURRENT_BOOK_WORD_COUNT=$(($TOTAL_CURRENT_BOOK_WORD_COUNT + $CHAPTER_WORD_COUNT))
     echo "$chapter_file - Word Count: $CHAPTER_WORD_COUNT"
   done
