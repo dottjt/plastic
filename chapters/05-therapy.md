@@ -55,7 +55,7 @@ Truth is, the bitch had no idea what she was talkin' about.
 
 <!-- Scene 1 END -->
 
----
+###
 
 <!-- Scene 2 START -->
 
@@ -101,7 +101,7 @@ A mature fight-fighter with a body like a well-kept fire axe, covered in the tan
 
 <!-- Scene 2 END -->
 
----
+###
 
 <!-- Scene 3 START -->
 

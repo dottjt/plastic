@@ -9,9 +9,9 @@ const stringFromArray = (website_content_array) => {
 }
 
 const fancyBreakString = () => `
-  <div style="display: flex; justify-content: center; align-items: center;">
-    <img src="other/page_break_1.png" alt="page break" width="80" height="60" />
-  </div>
+<div style="display: flex; justify-content: center; align-items: center;">
+  <img src="other/page_break_1.png" alt="page break" width="80" height="60" />
+</div>
 `;
 
 const getHead = (fileContents) => {
@@ -23,7 +23,7 @@ const getHead = (fileContents) => {
   const content =
     rawWithHTMLContent
       .replace(/(?=  <!--)([\s\S]*?)-->/g, '')
-      .replace(/---/g, fancyBreakString())
+      .replace(/###/g, fancyBreakString())
 
   return {
     head,

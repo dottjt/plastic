@@ -37,7 +37,7 @@ Attempting to leave the office was a frivolous scruffle of hard tactics and self
 
 <!-- Scene 1 END -->
 
----
+###
 
 <!-- Scene 2 START -->
 
@@ -66,7 +66,7 @@ The booth itself comfortably sat three, a necessary arrangement to accomodate fo
 
 <!-- Scene 2 END -->
 
----
+<!-- ### -->
 
 <!-- Scene 3 START -->
 
@@ -114,7 +114,7 @@ For bare moment we both stared at each other like a set of long-lost brothers wh
 
 "Does it even make a difference, you FUCKING idiot!?"
 
-Certainly, he didn't have any answers to the looming divorce of thy editer and thy writer. No way to win. No way to express how little control he had over the situation, other than to continue bashing heads. No way to charm or linger in a bid to truly convey how much he needed me. He was a puddle of defeat, and made sure to let him know in the crinkle disappoint I displayed on my face, as I lifted myself up from the table and walked away, brushing my fingers along the slippery, tiled walls of the dining room covered in a fine grain of silt. Regaining what little composure I had. I honestly couldn't have put up with this fool any longer. Chinatown had spoken.
+Perhaps for the first time in his, the editor didn't quite know how to respond. No answer to the looming divorce of thy union. No conceivable way to slither his way to victory. No way to express how little control he had over the situation, other than with a set of words which had lost all meaning. No way to charm or linger in a bid to truly convey how much he needed me. He was a puddle of defeat, and made sure to let him know in the crinkle disappoint I displayed on my face, as I lifted myself up from the table and walked away, brushing my fingers along the slippery, tiled walls of the dining room covered in a fine grain of silt. Regaining what little composure I had. I honestly couldn't have put up with this fool any longer. Chinatown had spoken.
 
 <!-- Leaves Restaurant -->
 
