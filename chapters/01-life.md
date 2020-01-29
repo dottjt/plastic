@@ -98,17 +98,17 @@ Miss. waiter, the holy accolade of Mr. Ming himself, exercised a compendium of b
 
 "So junior, tell me about this book then. Are we talkin' fantasy? I mean, I don't remember readin' about no goblins or nuthin'. You know I don't do fantasy, right? There's no sense of romance "
 
-For bare moment we both stared at each other like a set of long-lost brothers who hadn't quite met before. Maybe we were simply too old, too bothered in our own ways to truly want to understand each other. And aside from literally grabbing my spoon and shoving it into his eye, there was little I could do to contain the anger and frustration that had constructed itself to a point of
+For bare moment we both stared at each other like a set of long-lost brothers who hadn't quite met before. Maybe we were simply too old, too bothered in our own ways to truly want to understand each other. And aside from literally grabbing my spoon and shoving it into his eye, there was little I could do to contain the anger and frustration that had constructed itself to a maze of smouldering evisceration.
 
 <!-- The character gives up -->
 
-"This isn't going to work out," I murmured in a tight-lipped fury, hand on my bag, ready to engage in an unplanned prison-break, only to be interrupted by Miss. waiter carrying blue-laced bowls full of hot, steaming food. For a few moments he sat there, overcome by his own crushing morality, confused at the very fate which he had sealed with his own two hands. Well, I wasn't quite sure how he felt, as he sat there in relative silence, breaking his fork into the viridian shimmer of his Singapore noodles, gobblin' up the rasher twins' lesser cousins in an all-out homicide of culinary scorched-earth. All I knew was that the mood had soured into a guava pulp of rotten aspirations, held down following by a violent clash with his own worst vulnerabilities, as he broke down sobbing into the piffling steam of urinated oyster-sauce and bipartisan sacrilege.
+"This reaaaallly isn't going to work out," I scowled in a tight-lipped fury, hand on my bag, ready to engage in an unplanned prison-break, only to be interrupted by Miss. waiter carrying blue-laced bowls full of hot, steaming food. For a few moments he sat there, overcome by his own crushing morality, confused at the very fate which he had sealed with his own two hands. Well, I wasn't quite sure how he felt, as he sat there in relative silence, breaking his fork into the viridian shimmer of his Singapore noodles, gobblin' up the rasher twins' lesser cousins in an all-out homicide of culinary scorched-earth. All I knew was that the mood had soured into a guava pulp of rotten aspirations, held down following by a violent clash with his own worst vulnerabilities, as he broke down sobbing into the piffling steam of urinated oyster-sauce and bipartisan sacrilege.
 
 "Listen, I'm sorry. I'm really, really sorry," cried the editor, with bits of noodle stuck to his face.
 
-"I need this job. I really fucking do. Fuck. I'm on last strings buddy. You don't know how badly I need this. They're going to fire me, I know it. I can give you anything you want, you have to work with me dude." His cheek-bones bore the pity of a decrepit widow, held together by a chain of cigarettes which kept those ol' lungs pretty. We were two incompatible fuck-buddies, with a schedule which barely fit in enough time to spent with our wives. He saw red and I saw yellow. And although he knew it too, I wasn't keen on teaching a dead dog new tricks. The plain insincerity of the flaked-walls shifted their muted colours into a dark purple of valiant rose, drawing the poor yupie into a fifth-week of sobriety.
+"I need this job. I really fucking do. Fuck. I'm on last strings buddy. You don't know how badly I need this. They're going to fire me, I know it. I can give you anything you want, you have to work with me dude." His cheek-bones bore the pity of a decrepit widow, held together by a chain of cigarettes which kept those ol' lungs pretty. Two incompatible fuck-buddies, with a schedule which barely fit in enough time to spend with our lesbian wives. He saw red and I saw yellow. He wanted cream and I wanted to spit in his mouth and fuck his daughter with a knife to her throat, before killing the rest of the family in a postal slaughter of unkempt rape, because this cunt had it coming to him. And although he knew it too, I wasn't keen on teaching a dead dog new tricks. The plain insincerity of the flaked-walls shifted their muted colours into a dark purple of valiant rose, drawing the poor yupie into a fifth-week of sobriety.
 
-"I just don't think you get it. It's almost as if you didn't even read the book," I announced, personally hand-crafting my words in such a way that they would eventually reach the hollow cavern of his brain, now attempting to recruit a gallow of well-trained monkeys to decipher the ploy of sabotage being hurled his way.
+"It's almost as if you didn't even read the book. How can you be so fucking dense?", I yelled, personally hand-crafting my words in such a way that they would eventually reach the hollow cavern of his brain, now attempting to recruit a gallow of well-trained monkeys to decipher the ploy of sabotage being hurled his way.
 
 "What, are you callin' me stupid?", retorted the barbaric child, a defensive mechanism sought to eradicate all means of life.
 
@@ -122,16 +122,9 @@ As I gwaked my way out of The Ming, dead in a primal pursuit for Sicilian rage, 
 
 <!-- Chinese man prophecy -->
 
-I pass an old Chinese man selling chop-chop along the side of the road. His glass bead eyes
+I pass an old Chinese man selling chop-chop along the side of the road. He begins shouting at me in a slade of incomprehensible Chinese, the harsh bite of the refracting from his glass bead eyes. Perhaps he recognised me. Perhaps he wanted to tell me something important. I threw him a dollar, bewildered at the generosity of a man in a withered green coat. I wasn't in the mood to play prophecy. At the very least I understood how I didn't want my book abused in a slaw slimey knockdown of bad taste, although maybe I didn't have a choice.
 
-. He starts shouting at me in a slade of incomprehensible Chinese.
-
-
-<!-- Final words -->
-
-I wasn't sure exactly what I had to do to get my book published, but at the very least I understood how I didn't want it abused. Slaw, slimey n' knocked about under the stripped guise of a
-
-Fuck, it was only 3 and I still had to work.
+Fuck, it was only 2 in the afternoon and I still had to work. Hopefully no one had realised how long I'd disappeared for, although I found that highly unlikely. I tightened my backpack and began to walk.
 
 <!-- Scene 3 END -->
 
