@@ -1,6 +1,7 @@
+
 # Why is it called How to kill a Chinaman?
 
-I suppose there's a few themes at play. The main character is part Chinese and the book describes his gradual degradation in life. Even though killing seems like something instantaneous, the character is very much experiencing a slow death. Perhaps he is already in purgatory, who knows.
+I suppose there's a few themes at play. The book is about the slow degredation of a Chinense person. As in, this is the kind of life that would kill a Chinaman. Perhaps indicating that all roads for the Chinaman lead to death in some respects.
 
 
 
@@ -40,3 +41,8 @@ I find that when you're feeling creatively stuck or frustrated, is when it's the
 
 
 The character's life is largely expressed through dread and cynicism. Everything is weary. Everything is forced and feels artificial.
+
+# What are some challenges?
+
+As a fictional title, there is no blueprint. Ultimately I'm trying to create an story that I hope engages people. That's the best I can achieve and it's hard, because I don't know what that is.
+

@@ -5,7 +5,7 @@ title: "life."
 <!-- START -->
 
 <!-- Scene 1 START -->
-<!-- This chapter introduces the character, the editor, a description of Chinatown, an outing at lunch, as well as their break up. -->
+<!-- This chapter introduces the character, the editor, Chinatown, a Chinese Restaurant, as well as their conclusion. -->
 
 <!-- Openner -->
 
@@ -47,22 +47,16 @@ Chinatown is the same everywhere you go. Unadorned paper lanterns slathered in t
 
 Colorful displays of neon lights and piccadilly extravagance shrouded the backdraw of the twisted lanes of Chinatwon, harbouring the forgotten faces and contorted postures defying anatomy in the hauling duck-fat laid behind. Leading us towards our stranded destination of food and decontamination. Heated in a squabble of polarising contention, it soon became apparent to our fundamental being that the very foundation of our fibrous existence was being annexed into the smells and riches of our landscape. Grandma's chicken stock, plagued weary amidst the granular undertones of Grandpa's cigarette ash. Served in an impure confederation of tripe and blood jelly. A cloud of billowing steam engulfs a bamboo chorus of squeamish roe, twisting and wrying in a undulating scream of mass extinction. I can feel it grasping at my lungs amongst a hidden stew of fermented ginger, tempered opium and kibbled rat hair, bubbling in wretched torment within the sewerage pipes below. A fatal delicacy most workers simply could not afford.
 
-<!-- The darkness of china town  -->
+<!-- Chinatown Description continues  -->
 
-Naked children flock the streets,
-
-Hundreds of by-standers encircle a young man who had been knocked from his bike by a speeding van,
-
-The ravage of the Chinatown streets was near. Men and women alike, beating each other senseless with pipes over the heritage
-
+Naked children flock the streets, prancing to a Communist funeral melody, tucked inside their little foreskin gashes for the greasy meat cleavers of Chinatown to delight. The Chinese butcher was a simple potato-shaped man with a wife-beating tendency, wearing nothing but a kitchen appron made from crow's feet and a gold-chain necklace. Further down the street, through a thick haze of SARS eminating from a badly cut-up swine with a heinous cough of regurgitated blood and maggot soup, was a gathering of hundreds, encircling a young man who'd been knocked from his bike by a speeding lagoon. His brain, a battered mess of week-old congee, moulding to a point of anemia, streaming down into the sewers of the hotpot kitchen next door; they had hit jackpot. The ravage of the Chinatown had commenced. Men and women alike, beating each other senseless over the asshole of a Peking duck, considered by many to bring luck and good-fortune. An old aunt in a brown floral dress violently rubs her clitoris with a pair of coarse chopsticks, before shoving them into her nephew's ear, to be chewed and suckled while he completed his homework. No one was safe. No one was spared. The hunger was real and the people had spoken. Thankfully we were near to our destination, as our our view widened into a precarious shade of white, and our sense of place vanished into a cold dark room of orbital apprehension.
 
 <!-- Restaurant Arrival -->
-
-Supple hastings, my friend, as our our view widened into a precarious shade of white, and our sense of place vanished into a cold dark room of orbital apprehension.
 
 "I too wanted to become a writer once," the editor blurted, as if making some kind of ultimate sacrifice against his own will.
 
 "But I figured the money was better on the other side of the fence. You know? And man, fuck all that writing. I couldn't think of anything worse." Although certain in what I heard, I wasn't quite sure how to respond, let alone comprehend the complete destruction of the English language as I knew it within a brief passing moment, as I pushed through the plastic beads designed to keep his ugly type out.
+
 
 <!-- The Ming Description -->
 
@@ -116,31 +110,21 @@ For bare moment we both stared at each other like a set of long-lost brothers wh
 
 "I just don't think you get it. It's almost as if you didn't even read the book," I announced, personally hand-crafting my words in such a way that they would eventually reach the hollow cavern of his brain, now attempting to recruit a gallow of well-trained monkeys to decipher the ploy of sabotage being hurled his way.
 
-"What, are you calling me stupid?", retorted the barbaric child, a defensive mechanism sought to eradicate all means of life.
+"What, are you callin' me stupid?", retorted the barbaric child, a defensive mechanism sought to eradicate all means of life.
 
-"Does it even make a difference?"
+"Does it even make a difference, you FUCKING idiot!?"
 
-Certainly, he didn't have any answers to the looming divorce of editer and writer. No way to win. No way to express how little control he had over the situation. No way to charm or linger in . He needed me . I lifted myself from the table and walked away, brushing my fingers along the slippery, tiled walls covered in a fine grain of silt.
-
-<!-- Scene 3 END -->
-
----
-
-<!-- Scene 4 START -->
+Certainly, he didn't have any answers to the looming divorce of thy editer and thy writer. No way to win. No way to express how little control he had over the situation, other than to continue bashing heads. No way to charm or linger in a bid to truly convey how much he needed me. He was a puddle of defeat, and made sure to let him know in the crinkle disappoint I displayed on my face, as I lifted myself up from the table and walked away, brushing my fingers along the slippery, tiled walls of the dining room covered in a fine grain of silt. Regaining what little composure I had. I honestly couldn't have put up with this fool any longer. Chinatown had spoken.
 
 <!-- Leaves Restaurant -->
 
-As I gwaked my way out of The Ming, dead in a primal pursuit for
-
-indifferent to these grease-ridden lanes, plastered many times over with a volcanic certainty of cheap glue and holographic print, all I could feel were the tip of my knees as they sank ever-so silently into the mound of my socks. Like a slow-tide of faithlessness being dragged back into reef, it was the kind of thing that would always unanimously end in a public cheer of despondence, gurgled in the mass-hysteria of the death of an enemy.
-
-
+As I gwaked my way out of The Ming, dead in a primal pursuit for Sicilian rage, I stopped for a moment in the middle of the sidewalk to return myself to a more cozy collection of thoughts. A delicious ramen soup, I thought to myself. That's what I craved. And yet as I walked down these these disease-ridden lanes, plastered many times over with a volcanic certainty of cheap glue and holographic print used solely to promote Chinese folk singers from the 80s', I couldn't quite shake the anger that I felt for life, as the tip of my knees sank ever-so silently into the mound of my socks. Like a slow-tide of faithlessness being dragged back into reef, it was the kind of deuce which would unanimously end in a public cheer of despondence, gurgled in a mass-hysteria of archival gromair. I didn't need him, he was trash, I would find another editor to publish my book, and everything was going to be fine.
 
 <!-- Chinese man prophecy -->
 
-I pass an old Chinese man selling chop-chop along the side of the road, his glass bead eyes
+I pass an old Chinese man selling chop-chop along the side of the road. His glass bead eyes
 
-. He starts shouting at me in a slade of
+. He starts shouting at me in a slade of incomprehensible Chinese.
 
 
 <!-- Final words -->
@@ -148,5 +132,7 @@ I pass an old Chinese man selling chop-chop along the side of the road, his glas
 I wasn't sure exactly what I had to do to get my book published, but at the very least I understood how I didn't want it abused. Slaw, slimey n' knocked about under the stripped guise of a
 
 Fuck, it was only 3 and I still had to work.
+
+<!-- Scene 3 END -->
 
 <!-- END -->

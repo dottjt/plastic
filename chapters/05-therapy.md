@@ -5,7 +5,7 @@ title: "therapy."
 <!-- START -->
 
 <!-- Scene 1 START -->
-<!-- A short chapter with a therapist to discuss success, my potential bipolar . -->
+<!-- A short chapter with a therapist to discuss success, depression and potential bipolar. -->
 
 <!-- Human Fantasy Discussion -->
 

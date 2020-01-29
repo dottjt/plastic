@@ -2,6 +2,11 @@
 title: "house."
 ---
 
+<!-- START -->
+
+<!-- Scene 1 START -->
+<!-- Chapter about the fringe -->
+
 <!-- Describe Fringe -->
 
 All aboard the fringe. An effervescent display of gaudy rigour wrapped-fancy in a quarter-mile sweat-band of pound and flesh. Don't we all just love a set of fresh dazzling eyes, daudy fuckin' crand, carrying themselves helplessly towards the emotionless gaze of triumph tying us all together into this absolute pit of love and despair. My fingers dig-deep into the scar tissue oozing from my imagination, manic to the pixie queen shaking violently to an empty bottle of cultivar gin.

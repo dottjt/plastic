@@ -9,13 +9,25 @@ title: "Milo."
 
 <!-- Expressing love  -->
 
-I felt love.
+An acoustic stream of pink decorations fluttering around me, gently letting me down ina a confetti of fairy dust. I couldn't have imagined anything more perfect than the sanctuary of her presence, held in esteem beyond the very words which brought her to life. More than anything, I simply wanted to hold her in my hand, pretending to be hers in every sense of the word. A lucky charm of eternity which
 
-The perfect image of cuckholdry.
+
+
+
+So this is what love was. A pure evaporation if cynicism, .
+
+
+. It was like staring at a godess.
+
+.
 
 <!-- Waking up with Milo -->
 
-I could feel her body pressed against mine.
+I could have stared at her for hours, absorbing the finer details of her skin. Hold her tight
+
+The perfect image of cuckholdry
+
+I could feel her body pressed against mine. The soft touch of her pores
 
 Caught in a wisp of cold air, I was ecstatic.
 

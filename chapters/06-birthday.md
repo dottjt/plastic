@@ -9,7 +9,7 @@ title: "birthday."
 
 <!-- Birthday Monologue -->
 
-My birthday is the loneliest day of the year. It's an empty echo-chamber of must-haves and has-beens, drowning in a slurry of desperate pleas for love and lace. I often wonder what a birthday message actual is, aside from a fine-grained permission to feel. A pity cookie for old time's sake, just to prove that you haven't been raped and tortured by some Taliban rookie in a silk robe, growing opium from his ranch south of the capital. Glutinous fingers , fiercely bidding for the surface of your attention. Hoping to disperse it's lovely little claws into your spread, violating what little aspiration you have to weed your way back to safety. At first it shrieks in a mad outburst, indicating it's own displeasure with the world. Then it withers into a cloud of mould to suffocate any amount of apprehension from gaining necessary foothold. Lastly it smothers in absolute quantity, absorbing scar tissue and trauma at an incomprehensible rate. And once it's all over, in the snap of a heartbeat, it was as if nothing remained at all. A desolate fire of dementia, swept clean in an enticing devastation of brilliance.
+My birthday is the loneliest day of the year. An empty echo-chamber of must-haves and has-beens, drowning in a slurry of desperate pleas for love and lace. I often wonder what a birthday message actual is, aside from a fine-grained permission to feel. A pity cookie for old time's sake, just to prove that you haven't been raped and tortured by some Taliban rookie in a silk robe, growing opium from his ranch south of the capital. Glutinous fingers , fiercely bidding for the surface of your attention. Hoping to disperse it's lovely little claws into your spread, violating what little aspiration you have to weed your way back to safety. At first it shrieks in a mad outburst, indicating it's own displeasure with the world. Then it withers into a cloud of mould to suffocate any amount of apprehension from gaining necessary foothold. Lastly it smothers in absolute quantity, absorbing scar tissue and trauma at an incomprehensible rate. And once it's all over, in the snap of a heartbeat, it was as if nothing remained at all. A desolate fire of dementia, swept clean in an enticing devastation of brilliance.
 
 <!-- Attempted Suicide -->
 
@@ -47,7 +47,7 @@ If I could fuck any emotion I would fuck sadness. It would be your most malleabl
 
 <!-- Describe Stripmall -->
 
-The Mexican restaurant made it's home within the gutted interior of a refurbished Church, house to slurry of canned beans and quarter-ounce jars
+The Mexican restaurant made it's home within the matchwood interiors of a refurbished Church, house to slurry of canned beans and quarter-ounce jars
 
 
 
@@ -72,7 +72,7 @@ Hid behind my over-sized sombrero, the streaming lights of the 8pm disco-ball.
 
 
 
-I sat back at my desk. 
+I sat back at my desk.
 
 <!-- Scene 3 END -->
 

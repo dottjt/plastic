@@ -3,7 +3,7 @@ title: "depression."
 ---
 
 <!-- Scene 1 START -->
-<!-- A short chapter about some of the character's darker, hopeless feelings, as well as their coping mechanisms. Weed, porn and bitcoin. -->
+<!-- A short chapter about character's darker feelings, guilt he feels, weed addiction, cam girl, buys a gun online. -->
 
 <!-- Self-perceived reality -->
 
@@ -64,10 +64,8 @@ I always used a bong, made of a retrofitted gatorade bottle and cut government p
 
 Usually my plan was to buy as much as much junk as possible from the supermarket. We're talkin' .
 
-Then I would purge so I could consume more. Admittedly I enjoyed the feeling of emptying my stomach. No matter what, you could always console in the fact that you were going to feel better afterwards.
+Then I would purge so I could consume more. Admittedly I enjoyed the feeling of emptying my stomach. No matter what, you could always console in the fact that you were going to feel better afterwards. Purging was the ultimate cathartic
 
-
-I always liked the feeling of purp
 I put on my headphones and
 
 
@@ -82,6 +80,11 @@ As I
 I would go as far as to write erotica for them.
 
 
+
+I came into my hands, cusping the overflowing semen in the rim of my index finger. Then I reach for the tissue to clean up the mess. It was the same routine of glue and bleached tree wafer, scrumped into a ball and buried deep underground to be turned into fossilised shame. I always wondered if my addiction was a form of self-hate. A way to express how much I didn't like myself. I couldn't logically comprehend why I did it, but when your eyes are fixed on some blonde getting t-boned by two black men with a high school education, it turned you sour.
+
+. Why I stared at a screen
+
 <!-- erotica excerpt -->
 
 
@@ -95,5 +98,10 @@ I would go as far as to write erotica for them.
 ---
 
 <!-- Scene 3 START -->
+
+Everyone learns to love the plastic dragon. The way it chokes you by the throat and
+
+
+<!-- Buys a gun -->
 
 <!--  -->

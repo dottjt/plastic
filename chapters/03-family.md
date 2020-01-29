@@ -5,7 +5,7 @@ title: "family."
 <!-- START -->
 
 <!-- Scene 1 START -->
-<!-- A chapter about reproduction, the Chinese suburbs, my mother and my porn addiction. We argue and I cut her off. -->
+<!-- This chapter introduces reproduction, the Chinese suburbs, my mother, my porn addiction, our lunch, our difference, our conclusion, train ride home. -->
 
 <!-- Reproduction Introduction -->
 

@@ -3,7 +3,7 @@ title: "work."
 ---
 
 <!-- Scene 1 START -->
-<!-- This chapter describes his attitude towards work, his workplace, the receptionist, his love Milo and which leads to a date with Milo. -->
+<!-- This chapter describes his ideals of work, the receptionist, his workplace, his job, his love for Milo, date with Milo. -->
 
 <!-- Work Introduction -->
 
