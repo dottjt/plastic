@@ -3,8 +3,6 @@
 
 I suppose there's a few themes at play. The book is about the slow degredation of a Chinense person. As in, this is the kind of life that would kill a Chinaman. Perhaps indicating that all roads for the Chinaman lead to death in some respects.
 
-
-
 # What are some of the central themes of the novel?
 
 In essence, this is a novel about bipolar disorder. The first half of the novel describes the depression and the downfall and the second half of the novel describes the ascent.
@@ -57,4 +55,13 @@ The idea behind this novel is that you never really get to know too much about t
 In fact, the moment you start talking about specifics is when you not only begin to lose the charm of the writing, but it also destroys the illusion that the character is being honest.
 
 Ultimately the character is trying to prove that he's human. He wants that so badly.
+
+# Brief description.
+
+The story begins with a Chinese man's quest to get his book published. The actual story follows his suicidal descent into destitution, between falling out with his mother, losing his job, and dealing with a break up, which leads to an untimely drug overdose. As a counter-culture book however, what truly sets it apart is the writing style. Readers will fall in love with the style of the writing, well before the story. 40% of the book was inspired by real events from my life, another 60% of the book is extreme hyperbole.
+
+# Why am I qualified to write this book?
+
+I'm half Chinese, with a fairly traditional Chinese upbringing. I had to attend Saturday School, play an instruction, along with all that jazz. I have since disowned my mother. The main reason why I'm qualified to write this book is because I've been writing in this counter-culture style since I started my first blog at 14. Following a few years of experimenting with my writing style in the form of short essasy. Once I felt like I'd truly discovered my writing style, I then decided that I would have the maturity to write a novel.
+
 
