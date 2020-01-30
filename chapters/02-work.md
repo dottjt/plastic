@@ -49,20 +49,15 @@ Perhaps I'd simply didn't care, because it conflicted what I wanted as a creep. 
 
 <!-- Orange back, Blue back -->
 
-"Oh right, I had no idea," I remarked with an unconvincing smirk and a jovial two-thumbs up, now pacing myself through the vast cavern of the kitchen area and to my desk, in a blitzkrieg of dirty thoughts and deranged requirements. Kaleidoscopic in a tangerine muse of teak stripes and amusing spaces, the office tended to reveal itself in the on-going tension of the class-warfare taking place between the predominant factions. You were either an orange-back or a blue-back. A bottom-feeder or cut-throat liar. Usually it was obvious who was who, but it was those who manually blurred the lines of requirement, who truly left you afraid.
+"Oh right, I had no idea," I remarked towards the reception, tattered with unconvincing smirk and my two thumbs up in a jovial point of discretion, now pacing myself through the vast cavern of the kitchen and to my desk, in a blitzkrieg of dirty thoughts and deranged requirements. Kaleidoscopic in a tangerine muse of teak stripes and amusing spaces, the office had a habit of revealing itself in the on-going tension between the two predominant factions haunting these halls. You were either an orange-back or a blue-back. A bottom-feeder or cut-throat liar. Usually it was obvious who was who, but it was those who blurred the lines of liquidity who truly left you afraid.
 
-The orange-backs maintained the Machine of Profit™. Hardened loyalists with an obsessive personality to the highest degree. Fanatic in their pursuit for operational perfection. Tested individuals and praised scavangers, known to survive for weeks on end from the enamated moisture from their keyboards. An introverted cog of documentation and low self-esteem. Servants to the establishment. The blue-backs on the other hand were the source of the Machine of Profit™ itself. The privileged life-blood which kept it's precious profits flowing, in a ritual sacrifice known as the accordance. Two blue-backs chosen from the chantry, would simultaneously slit theirs wrists, conbinding them together to be fused in . The blue-blood were proud meatshields, ready to be churned into profit at any given moment. It was their duty to churn, and a be churned. It was the ultimate sacrifice
+The orange-backs maintained the Machine of Profit™. Hardened loyalists with an obsessive personality of the highest degree. Fanatic in their pursuit for operational perfection, every single aspect of the Machine of Profit™ was documented, studied and lauded over in an entire library full of arcane functions, tested and praised for their striking simulation of reality. Thrifty scavengers, orange-backs have been known to survive for weeks on end from the enamating moisture of their desks, an ability which has allowed them to work for days on end, without even a puddle of hue. An introverted cog of divine certification and low self-esteem, they were the ultimate servants to the establishment, vaticinal in their ability to optimise even the most basic of algorithms.
+
+The blue-backs on the other hand were the very source of the Machine of Profit™ itself. The privileged emissaries which kept it's precious profits flowing, in a ritual of sacrifice known as the accordance. At the dot of every hour, two blue-backs would be chosen from the chantry by the high priest of profit, where they would simultaneously slit theirs wrists to provide sustainance to the ever-growing profit flowing from the glowing aura of the surfeit lands. Their bodies were then stripped of necessity and rubbed with a diamond paste of grandoise pomposity, soon to be fed into the Machine of Profit™. A beautiful death in the eyes of the communion, ready to be churned into profit for the greatness of the cause. It was the sole duty of the blue-back to churn, and a be churned. Their veins awash with the twadiness of vigour which kept their faces in deep attention with profit. Together they worked tireless to ensure that the money ran aflush, and their chains well lubricated.
 
 <!-- Describe Desk -->
 
-I didn't care for both. A sloucher with a dip in his walk, I was just a leech in the system. Neither useful, nor indispensible. Neither clean, nor dirty. Another drifter with a sock for a shoe, cause I ain't what I'm gettin' paid, honey.
-
-The office opened itself up in a heightened display of fluorescent blindness. The refraction of the sun now 
-
-I never really knew what to expect at my desk, but there was always something missing from the night before. Either I was an easy target to steal from, or the nightly cleaner seemingly hated absolute everything about my existence. Either way,
-
-
-
+Admittely, I didn't care for both. I was nothing more than a sloucher with a dip in his walk. Another leech in the system to be powdered in caesin and stashed away for the apocalypse. Neither useful, nor indispensible. A self-sustaining pile of consistent trouble, enough to make my existence seem worthwhile. Another drifter with a sock for a shoe, cause the paper simply ain't gonna push itself, honey. In the fluorscent blindness of my office space, the refraction of the sun onto the cluttered mess of my desk was a welcome touch to the hundreds of unanswered emails lurked within my mailbox. Warmth was a commodity in this office, forever displaced by the orange-back's desire to be thawed into a flawless image of cognnitive certainty, and the blue-back's inherent misandry for molten cleansing. Pushing aside a folder of printed pamphlets from last year's #excite conference, I sat patiently in my chair, entirely ready to get right back up and go home.
 
 <!-- Milo Conversation -->
 
@@ -87,7 +82,6 @@ Crinkle n' cut, Benny boy. It's time to solder those wounds shut and call it a d
 "You know I don't smoke."
 
 "I saw your drunk at last year's Christmas party, buddy. Flinging yourself around like a desperate chimney," she playfully accused, dangling a cigarette from her fingers as she pranced out of the room and into the foyer, her petite silhouette causing all sorts of mischievous in my mind. I only knew because I followed her out of the room, in dire need of a cigarette. Women really were the worst in the absolute best possible way.
-
 
 <!-- Scene 2 END -->
 
