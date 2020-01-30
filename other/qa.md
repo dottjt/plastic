@@ -5,22 +5,6 @@ I suppose there's a few themes at play. The book is about the slow degredation o
 
 
 
-# Am I mentally okay?
-
-Although the book touches on some very dark moments and overall paints a very broken man, I am doing fine. There is no possibly way I could have written a book without my mental health intact.
-
-
-# Why do some characters not have names? In fact, why does Milo only have a name?
-
-It’s to emphasis the priority of the character and how he thinks. He only cares about what he can fuck.
-
-The idea behind this novel is that you never really get to know too much about the character. The actual details of his life is inconsequential. Rather, the idea is that you only get to experience his life through his own observations. His subjective understanding.
-
-In fact, the moment you start talking about specifics is when you not only begin to lose the charm of the writing, but it also destroys the illusion that the character is being honest.
-
-Ultimately the character is trying to prove that he's human. He wants that so badly.
-
-
 # What are some of the central themes of the novel?
 
 In essence, this is a novel about bipolar disorder. The first half of the novel describes the depression and the downfall and the second half of the novel describes the ascent.
@@ -45,4 +29,32 @@ The character's life is largely expressed through dread and cynicism. Everything
 # What are some challenges?
 
 As a fictional title, there is no blueprint. Ultimately I'm trying to create an story that I hope engages people. That's the best I can achieve and it's hard, because I don't know what that is.
+
+# What is my intention with this book? / Why would I want to read this book?
+
+My primary intention with this book is to create Chinese counter-culture.
+
+
+make Chinese culture, relative to Western culture, cool (obviously the first rule of being cool, is to never use the word cool, but I suppose I'm trying to illustrate a point). In other words, what's sorely lacking in Western culture is Chinese counter-culture. You know, the kind of stuff that kids listen to on their Spotify accounts, which tell you to go fuck yourself, and which helps develop their sense of purpose and self-esteem in life.
+
+And although I think Chinese people are killin' it in the art world, arguably because art is not limited by language, we're absolutely getting destroyed in terms of literature and music (especially music, it's like we're not even there). Put it this way. Transgender people and drag queens are doing a better job at penetrating mainstream discourse than Chinese people currently are and it's absolutely insane. I want to help change that.
+
+How to Kill a Chinaman is pure, unadultered counter-culture which I believe competes with the best of them. I wanted to recreate the sense of feeling that I had as a young adult reading William S. Burroughs' Naked Lunch, for a new generation. Disgust. Obsession. Depravity. Whore. It is a contemporary reflection of a Chinese man's experience in Western society, which intends to smear shit into the reader's eyes, and leave them in a puddle of their own guilt. All while, written
+
+
+# Am I mentally okay?
+
+Although the book touches on some very dark moments and overall paints a very broken man, I am doing fine. There is no possibly way I could have written a book without my mental health intact.
+
+My secondary intention was to demonstrate that you can still have creative flair without being mentally ill. Although the book contains the severe ramblings of a person with bipolar disorder, who I am today is quite different.
+
+# Why do some characters not have names? In fact, why does Milo only have a name?
+
+It’s to emphasis the priority of the character and how he thinks. He only cares about what he can fuck.
+
+The idea behind this novel is that you never really get to know too much about the character. The actual details of his life is inconsequential. Rather, the idea is that you only get to experience his life through his own observations. His subjective understanding.
+
+In fact, the moment you start talking about specifics is when you not only begin to lose the charm of the writing, but it also destroys the illusion that the character is being honest.
+
+Ultimately the character is trying to prove that he's human. He wants that so badly.
 
