@@ -17,15 +17,12 @@ I always wondered if I'd have a piece of this one day, as I stared out of the sc
 
 <!-- Describe Rich Chinese -->
 
-The rich 21st Century asian was . It did not know what it needed, only what it thought was Western.
-
-White Mercedes Benz,
+The 21st Century asian was a relic to be imagined. A creature which did not see needed, only what it saw on Western TV. White Mercedes Benz, 
 
 Council men
 
 Spread legs gather around a plate of Hungrarian
 Hungarian heese grown from a
-
 
 
 <!-- Approach the house -->

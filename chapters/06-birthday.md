@@ -17,16 +17,16 @@ Saturday morning. Sunday autopsy. Duck-taped to the underside of my desk, I vain
 
 <!-- Introduce Friend -->
 
-"Show us some cleave, honey," boasts the man at the door, holding a half opened-can of Guinness and poorly wrapped . A suitable greeting for this 27 year old writer, dressed in yesterday's t-shirt. A stain on this earth to be admonished in ever diminishing quantities, sunken without Christ.
+"Show us some cleave, honey," boasts the man at the door, holding a half opened-can of Guinness and poorly wrapped . A suitable greeting for this 27 year old writer, dressed in yesterday's t-shirt. A stain on this earth to be admonished in ever diminishing quantities, sunken without Christ. His coarse facial hair brushes against my cheek as he dives in for a hug.
 
 
 
-The doorbell rings again. It's Milo.
 
+The doorbell rings again. It's Milo. Queen Bee. I race to the door in a rush of excitement, bumping my knee on a bookshelf full of Victorian classics. Surely it made girls wet.
 
 <!-- Friends on the couch -->
 
-
+The boob and the sex-queen sat together on the couch opposing, trying to figure out exactly how they fit into this scenario. Was he the child-abuser that he constantly referenced at work? Had they fucked at one point? Why was her hand on my leg?
 
 
 
@@ -38,7 +38,9 @@ The doorbell rings again. It's Milo.
 
 <!-- Describe Taxi Ride -->
 
-The driver was a bit of a fuckin' winky. I'm allowed to call him a winky on my Birthday, right? You could tell he was having  . I noted not to shake his hand.
+The driver was a bit of a fuckin' winky. I'm allowed to call him a winky on my Birthday, right? A 
+
+You could tell he was having  . I noted not to shake his hand.
 
 The driver spoke three different languages. Japanese, Chinese and Korean.
 
