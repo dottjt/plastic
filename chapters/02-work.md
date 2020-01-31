@@ -35,13 +35,13 @@ Was it in my best interest to grab a conveniently-located bench and use it as a 
 
 <!-- Describe Building -->
 
-Through the bright cellophane interiors of the refurbished lobby and into the preliminary trust of the mind, a variety of wireframe chairs and manufactured see-through resin table, laid the Machine of Profit™ which bore the deceased flesh of a prominent businessman. Through prayer and worship, the ancient artifact existed to serve purpose to it's subjects, communicating through the extensive network of viridian tubes, abrassive in a retina display of conflicting messages. NOW. JUMP. UP. NOW. It was the life and blood of the company. The candy confectionary company for human waste, states the first div element of our website, hand-crafted in pure HTML by an autistic child with tiny keyboard inputs for fingers.
+Through the bright cellophane interiors of the refurbished lobby and into the preliminary trust of the mind, a variety of wireframe chairs surrounding a manufactured see-through resin table, laid the Machine of Profit™ which bore the deceased flesh of a prominent businessman. Through prayer and worship, the ancient artifact existed to serve purpose to it's subjects, communicating through the extensive network of viridian tubes, abrassive in a retina display of conflicting messages. NOW. JUMP. UP. NOW. It was the life and blood of the company. The candy confectionary company for human waste, states the first div element of our website, hand-crafted in pure HTML by an autistic child with tiny keyboard inputs for fingers.
 
 <!-- Describe Receptionist -->
 
 Latching themselves in an entwined ensemble of endless tranquility, an impressive assortment of exotic Pruvian vines which formed into the company's logo. A custom wood finish with a bit of slut. Below the logo, on an isolated desk ahead, sat the receptionist. A messy ball of anxious wool and tangled cat hair, stunned in the bright pink, yellow and orange knitted jumpers she would wear all over her voluptuous body. She was a small personality trapped behind a big self-conscious smile, hidden beneath a desecrated tub of Neopolitan ice-cream she left under her bed, conveniently finished without even a trace of dairy to harm a lactose-intolerant child. Of course, I also wanted to fuck her too. Definitely worth paying to see a cam show, at the very least.
 
-"Good morning!" I shout, trying my best to sound like an all-inclusive trip to Disney Land.
+"Good morning!", I shout, trying my best to sound like an all-inclusive trip to Disney Land.
 
 "You know it's like, mid-afternoon, right?" Fuck. Just, fuck. I suppose it wasn't that bad. Maybe she found the aloofness attractive. My lovely self, that quirky asian wall-flower to be subtly admired with a nonchalant book on the intricate ironies of organic gardening. Perhaps it was an equivocal event to be pre-supposed by a romantic date on a sunset promenade, candle-lit in serene curiosity, followed by a weekend of average uninspired sex. Although I highly doubted my desirability as a man. No one wants to swipe right on the weird looking pervert licking his lips feverously at the sight of a bucket of chicken. Perhaps it was an extension of the self-hate that I felt for myself. The paradox of being Asian. Our own kind are too racist to fuck each other, yet too demanding to accept anything else than a perfect SAT score. I suspected most women were suspicious of Chinese men. Filthy chinks with a cushy for refined shirmp paste.
 
@@ -107,7 +107,7 @@ I wasn't sure if love quite described how I felt about Milo, but there was somet
 
 "Like, let's say we were trapped down here and we only had five minutes to live before the building collapsed and crushed us. What would you do?"
 
-Her question made me anxious. It felt a bit like having needles forced through my liver in an exercise of pre-marital self-care. Obviously, I wanted to fuck her, but there was no
+Her question made me anxious. It felt a bit like having needles forced through my liver in an exercise of pre-marital self-care. Obviously, I wanted to fuck her. In almost every single way possible. But if it were that easy then I probably wouldn't have any self-esteem issues. She dipped her finger in her mouth, ditzy with a coy gesture of . She didn't seem right.
 
 "I'd probably, uh..."
 
@@ -115,9 +115,9 @@ Her question made me anxious. It felt a bit like having needles forced through m
 
 "...and hold me, and tell me that everything was going to be okay as you rammed my tight little pussy?" I bit my lip.
 
-"Yeah, probably that."
+"Yeah. Probably that."
 
-My heart pounded into a schizophrenic drumbeat of pounding restlessness. What had just happened? Was this real? Was this finally happening? In a sense, felt like being eaten alive by a Lion. My arms limp from the impact-trauma of smashing my head against a rock, as it's large teeth tore through my legs, snapping bone n' blood into a
+My heart pounded into a schizophrenic drumbeat of pounding restlessness. What had just happened? Was this real? Was this finally happening? In a sense, felt like being eaten alive by a Lion. My arms limp from the impact-trauma of smashing my head against a rock, as it's large teeth tore through my legs, snapping bone n' blood into a sludge of stomach acid.
 
 "Then take me out this Friday night. Will you do that for me?", she gasped in a vulnerable, childish voice, whispering her words with an intricate frown, as she approached closer and closer towards me, before eventually holding her hand out to the tip of my chin for my mouth to kiss.
 
@@ -125,41 +125,10 @@ My heart pounded into a schizophrenic drumbeat of pounding restlessness. What ha
 
 <!-- Elevator ride back -->
 
-We chatted casually about key deliverables on the elevator ride back up to the kitchen, as I gazed senselessly into her eyes, shaken at the events prior. Although it was something I'd always wanted, something which still didn't seem at all real. Something which also filled me with anxiety, like trying to tee a golf ball inside a glass dome. That I didn't even have the courage to ask her out myself. I still wasn't quite sure what even happened in those moments. I was both glad and sad. A glasim, if you will.
+We chatted casually about key deliverables on the elevator ride back up to the kitchen, subtly shaken by the events prior. Although it was something I'd always wanted, it also didn't feel natural. Something which also filled me with anxiety, like trying to tee a golf ball inside a glass dome. That I didn't even have the courage to ask her out myself. I still wasn't quite sure what even happened in those moments. I was both glad and sad. A glasim, if you will.
 
-As I sludged my way back to our office area, Milo decided to pick up a coffee and a grin, two things I'd never seen her without. She smiled at me from her desk, perhaps feeling the same things I were feeling too. Maybe she'd always felt it for a while.
-
-
-
-<!-- Describe the process of work -->
-
-Rhetoric aside, I actually quite like work. THANK YOU, EMPLOYEE #545. And aside from literally being paid by the hour to make this company-wide announcement, I genuinely think it's a perfect package of routine and marriage. A fat bitch with rolls of potato gravy arrives at your trailer for a quick fuck, lipped with a ciggie that mostly consisted of ash and methylated wallpaper, gunt the size of a pregnant gorilla, comes right on over . The trailer trash next door, bringing a six-pack and a nangs
-
-Milo returned with a coffee and a grin. Two things I've never seen her without.
-
-
-I always maintained an innately intimate relationship with my monitor, like an adorable sibling that spent all their time admiring your talents. It was the first thing that greeted me every morning, joining me for a brief moment as I relieved myself to a bunch of videos featuring.
-
-Perhaps because it was the thing I spent most my life staring at, yet never really quite noticing.
-
-I suppose the ancient equivalent would be falling in-love with your servant who cleaned the house and did your laundry.
-
-Whether through watching
-
-
-
+As I sludged my way back to our office area, Milo decided to pick up a coffee and a grin, two things I'd very rarely seen her without. Sitting down with her legs cross, she smiled at me from her desk, battered in the light consistency of a French dough. Perhaps she shared the same feelings that I had for her. Perhaps she had simply broken down. I wasn't quite sure, but it still made me hard. 
 
 <!-- Scene 3 END -->
-
-###
-
-<!-- Scene 4 START -->
-
-<!-- Monologue #2 -->
-
-
-
-<!-- Milo approaches with a date -->
-
 
 <!-- END -->

@@ -110,6 +110,12 @@ An exciting state of explicit premonition, as your father dies in front of you w
 
 imprint to the segregation our society loves to weep
 
+
+I always maintained an innately intimate relationship with my monitor, like an adorable sibling that spent all their time admiring your talents. It was the first thing that greeted me every morning, joining me for a brief moment as I relieved myself to a bunch of videos featuring. Perhaps because it was the thing I spent most my life staring at, yet never really quite noticing. I suppose the ancient equivalent would be falling in-love with your servant who cleaned the house and did your laundry.
+
+Rhetoric aside, I actually quite like work. THANK YOU, EMPLOYEE #545. And aside from literally being paid by the hour to make this company-wide announcement, I genuinely think it's a perfect package of routine and marriage. A fat bitch with rolls of potato gravy arrives at your trailer for a quick fuck, lipped with a ciggie that mostly consisted of ash and christened wallpaper, gunt the size of a pregnant gorilla, comes right on over . The trailer trash next door, bringing a six-pack and a nangs
+
+
 # 03-family.md
 
 Next minute you're dashing down the street, holding a laptop in one hand with a sandwich in the other, kickin' the leash of glory to

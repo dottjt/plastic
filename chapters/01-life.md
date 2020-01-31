@@ -124,7 +124,7 @@ As I gwaked my way out of The Ming, dead in a primal pursuit for Sicilian rage, 
 
 I pass an old Chinese man selling chop-chop along the side of the road. He begins shouting at me in a slade of incomprehensible Chinese, the harsh bite of the refracting from his glass bead eyes. Perhaps he recognised me. Perhaps he wanted to tell me something important. I threw him a dollar, bewildered at the generosity of a man in a withered green coat. I wasn't in the mood to play prophecy. At the very least I understood how I didn't want my book abused in a slaw slimey knockdown of bad taste, although maybe I didn't have a choice.
 
-Fuck, it was only 2 in the afternoon and I still had to work. Hopefully no one had realised how long I'd disappeared for, although I found that highly unlikely. I tightened my backpack and began to walk.
+Fuck, it was only 2 in the afternoon and I still had to work. Hopefully no one had realised how long I'd disappeared for, although I found that highly unlikely. I tightened my backpack and continued to walk.
 
 <!-- Scene 3 END -->
 
