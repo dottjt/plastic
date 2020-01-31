@@ -19,6 +19,8 @@ So this is what love was. A pure evaporation if cynicism, .
 
 . It was like staring at a godess.
 
+// Maybe she could claim that it was just a bipolar episode she was having, not how she truly felt.
+
 .
 
 <!-- Waking up with Milo -->

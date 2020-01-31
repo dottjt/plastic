@@ -1,7 +1,7 @@
 
 # Why is it called How to kill a Chinaman?
 
-I suppose there's a few themes at play. The book is about the slow degredation of a Chinense person. As in, this is the kind of life that would kill a Chinaman. Perhaps indicating that all roads for the Chinaman lead to death in some respects.
+The book is a reflection of the slow degredation of a Chinese man in modern society.
 
 # What are some of the central themes of the novel?
 
@@ -59,6 +59,12 @@ Ultimately the character is trying to prove that he's human. He wants that so ba
 # Brief description.
 
 The story begins with a Chinese man's quest to get his book published. The actual story follows his suicidal descent into destitution, between falling out with his mother, losing his job, and dealing with a break up, which leads to an untimely drug overdose. As a counter-culture book however, what truly sets it apart is the writing style. Readers will fall in love with the style of the writing, well before the story. 40% of the book was inspired by real events from my life, another 60% of the book is extreme hyperbole.
+
+It's told entirely through the first-hand thoughts of the character.
+
+
+
+
 
 # Why am I qualified to write this book?
 

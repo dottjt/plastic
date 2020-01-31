@@ -5,7 +5,7 @@ title: "depression."
 <!-- Scene 1 START -->
 <!-- A short chapter about character's darker feelings, guilt he feels, weed addiction, cam girl, buys a gun online. -->
 
-<!-- Self-perceived reality -->
+<!-- Self-perceived reality - enthralling -->
 
 "Moderately entertaining." Tonight's obligations are being delivered pro rata in cheerless harmony of , as these subversive words drag themselves miserably along a serrated tarmac of circular needles and profane blather. Dead unlike the recurved skunk which lies on it's belly in the tall notched grass besides knurled quandary grasping at it's toes, sneaking itself scalloped into the vice of our dreams in a cheeky attempt to tell a misplaced joke about the inequality of ethically-sourced nuts. Victorian times, oh dear. The scant face behind the ceiling snarls in grave fashion, hushing at the feint tapper of lovely's past. "Does the knife hurt, sweetie? Can you feel it grasp at your pain? Do you need it slightly closer to the edge of your heart so you can satirise my maltreatment!?"
 

@@ -53,7 +53,7 @@ Perhaps I'd simply didn't care, because it conflicted what I wanted as a creep. 
 
 The orange-backs maintained the Machine of Profit™. Hardened loyalists with an obsessive personality of the highest degree. Fanatic in their pursuit for operational perfection, every single aspect of the Machine of Profit™ was documented, studied and lauded over in an entire library full of arcane functions, tested and praised for their striking simulation of outer reality. Thrifty scavengers with a gifted sense of time, orange-backs have been known to survive for weeks on end from the enamating moisture of their desks, an ability which has allowed them to work for days on end, without even a puddle of hue. An introverted cog of divine certification and low self-esteem, they were the ultimate servants to the establishment, vaticinal in their ability to optimise even the most basic of algorithms.
 
-The blue-backs on the other hand were the very source of the Machine of Profit™ itself. The privileged emissaries which kept it's precious profits flowing, in a ritual of sacrifice known as the accordance. At the dot of every hour, two blue-backs would be chosen from the chantry by the high priest of profit, where they would simultaneously slit theirs wrists to provide sustainance to the ever-growing profit flowing from the glowing aura of the surfeit lands. Their bodies were then stripped of necessity and rubbed with a diamond paste of grandoise pomposity, soon to be fed into the Machine of Profit™. A beautiful death in the eyes of the communion, ready to be churned into profit for the greatness of the cause. It was the sole duty of the blue-back to churn, and a be churned. Their veins awash with the twadiness of vigour which kept their faces in deep attention with profit. Together they worked tireless to ensure that the money ran aflush, and their chains well lubricated.
+The blue-backs on the other hand were the very source of the Machine of Profit™ itself. The privileged emissaries which kept it's precious profits flowing, in a ritual of sacrifice known as the accordance. At the dot of every hour, two blue-backs would be chosen from the chantry by the high priest of profit, where they would simultaneously slit theirs wrists to provide sustainance to the ever-growing profit flowing from the glowing aura of the surfeit lands. Their bodies were then stripped of necessity and rubbed with a diamond adhesive of grandoise pomposity, soon to be fed into the Machine of Profit™. A beautiful death in the eyes of the communion, ready to be churned into profit for the greatness of the cause. It was the sole duty of the blue-back to churn, and a be churned. Their veins awash with the twadiness of vigour which kept their faces in deep attention with profit. Together they worked tireless to ensure that the money ran aflush, and their chains well lubricated.
 
 <!-- Describe Desk -->
 
@@ -97,26 +97,46 @@ Below the stark corridors of the cubular profit centre for methylated individual
 
 "Ah well, you know how it is. Churn in, churn out."
 
-I wasn't sure if love quite described how I felt about Milo, but there was something magical which would coarse through my body each and every time I looked at her. An incontrollable surge of . Maybe it was because she was the only female I spent more than an hour with each day, and I was nothing more than a desperate pile of pre-war matchsticks, ready to played with at any minute.
+I wasn't sure if love quite described how I felt about Milo, but there was something magical which would coarse through my body each in a stretch of lavish joy, each and every time I looked at her. An uncontrollable surge of attraction, causing my eyes to glisten in a glee of transparent sincerity. Maybe it was because she was the only female I spent more than 30 minutes with each day, and I was nothing more than a desperate pile of pre-war matchsticks, excited to be struck into a flicker of puff.
+
+<!-- Flirt/Proposal -->
 
 "Do you ever think about death?", she asked.
 
-"Probably no more than most people."
+"Not really. Probably no more than most people. Why?"
 
 "Like, let's say we were trapped down here and we only had five minutes to live before the building collapsed and crushed us. What would you do?"
 
-The tease made me anxious. It felt like having needles forced through my liver in an exercise of pre-marital self-care. Obviously, I wanted to fuck her, but did she want to fuck me? Was I fuckable?
+Her question made me anxious. It felt a bit like having needles forced through my liver in an exercise of pre-marital self-care. Obviously, I wanted to fuck her, but there was no
 
-"I'd probably, uh. Maybe I would..."
+"I'd probably, uh..."
 
-"Would you fuck me, and hold me, and tell me that everything was going to be okay as you rammed my tight little pussy?"
+"Would you fuck me?", she unveiled, licking the outline of her lips with her wet pink tongue, gazing her eyes deeply into mine as if to suggest we were one.
+
+"...and hold me, and tell me that everything was going to be okay as you rammed my tight little pussy?" I bit my lip.
 
 "Yeah, probably that."
 
-"I mean, I am the only female down here.
+My heart pounded into a schizophrenic drumbeat of pounding restlessness. What had just happened? Was this real? Was this finally happening? In a sense, felt like being eaten alive by a Lion. My arms limp from the impact-trauma of smashing my head against a rock, as it's large teeth tore through my legs, snapping bone n' blood into a
+
+"Then take me out this Friday night. Will you do that for me?", she gasped in a vulnerable, childish voice, whispering her words with an intricate frown, as she approached closer and closer towards me, before eventually holding her hand out to the tip of my chin for my mouth to kiss.
+
+"Yeah, sure. I can do that. I would love to do that. Do you have my number?"
+
+<!-- Elevator ride back -->
+
+We chatted casually about key deliverables on the elevator ride back up to the kitchen, as I gazed senselessly into her eyes, shaken at the events prior. Although it was something I'd always wanted, something which still didn't seem at all real. Something which also filled me with anxiety, like trying to tee a golf ball inside a glass dome. That I didn't even have the courage to ask her out myself. I still wasn't quite sure what even happened in those moments. I was both glad and sad. A glasim, if you will.
+
+As I sludged my way back to our office area, Milo decided to pick up a coffee and a grin, two things I'd never seen her without. She smiled at me from her desk, perhaps feeling the same things I were feeling too. Maybe she'd always felt it for a while.
+
 
 
 <!-- Describe the process of work -->
+
+Rhetoric aside, I actually quite like work. THANK YOU, EMPLOYEE #545. And aside from literally being paid by the hour to make this company-wide announcement, I genuinely think it's a perfect package of routine and marriage. A fat bitch with rolls of potato gravy arrives at your trailer for a quick fuck, lipped with a ciggie that mostly consisted of ash and methylated wallpaper, gunt the size of a pregnant gorilla, comes right on over . The trailer trash next door, bringing a six-pack and a nangs
+
+Milo returned with a coffee and a grin. Two things I've never seen her without.
+
 
 I always maintained an innately intimate relationship with my monitor, like an adorable sibling that spent all their time admiring your talents. It was the first thing that greeted me every morning, joining me for a brief moment as I relieved myself to a bunch of videos featuring.
 
@@ -137,18 +157,9 @@ Whether through watching
 
 <!-- Monologue #2 -->
 
-Rhetoric aside, I actually quite like work. THANK YOU, EMPLOYEE #545. And aside from literally being paid by the hour to make this company-wide announcement, I genuinely think it's a perfect package of routine and marriage. A fat bitch with rolls of potato gravy arrives at your trailer for a quick fuck, lipped with a ciggie that mostly consisted of ash and methylated wallpaper, gunt the size of a pregnant gorilla, comes right on over . The trailer trash next door, bringing a six-pack and a nangs
-
-Milo returned with a coffee and a grin. Two things I've never seen her without.
 
 
 <!-- Milo approaches with a date -->
 
-I fingered through my manuscript.
-
-"Hey, would you like to go on a date?"
-
-
-The euphoria surged through my body like a jack hammer without an off-switch, pacts of brain cells exploding in a suicidal
 
 <!-- END -->
