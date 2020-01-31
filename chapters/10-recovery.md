@@ -46,6 +46,11 @@ I dipped my finger into a container of marshmellow fluff, flipping it out in a
 In times like these I would gorge. I would fill my body with as much crap as possible, vomit.
 
 
+
+<!-- Masturbating to Milo -->
+
+Anaphylactically gaping in a heaping mess of cum, tepid in the shame piling from my shaft, I cautious put away the image of my ex, frustrated in the coy optimism I promised myself hours ago never to revisit those memories again. I wasn't quite sure what kind of a future I had without my failure to function as a human being, but it managed to hold me down and actively dilute me at every possible chance. It was hard to even identify who I really was. I was uncouth.
+
 <!-- Chinese Cultural Revolution -->
 
 Time means nothing when you have nothing left.

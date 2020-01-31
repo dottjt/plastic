@@ -38,7 +38,7 @@ The boob and the sex-queen sat together on the couch opposing, trying to figure 
 
 <!-- Describe Taxi Ride -->
 
-The driver was a bit of a fuckin' winky. I'm allowed to call him a winky on my Birthday, right? A 
+The driver was a bit of a fuckin' winky. I'm allowed to call him a winky on my Birthday, right? A
 
 You could tell he was having  . I noted not to shake his hand.
 
