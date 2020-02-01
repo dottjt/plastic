@@ -14,7 +14,7 @@ How to Kill a Chinaman is delicate construction of hard-hitting counter-culture 
 
 # Why is it called How to kill a Chinaman?
 
-The book is a reflection of the slow degredation of a Chinese man attempting his best to copie in Western society. The title may also been seen as a reflection of the character's self-worth; a person worth dying.
+The book is a reflection of the slow degredation of a Chinese man attempting his best to copie in Western society. The title may also been seen as a reflection of the character's self-worth; a person worth dying. It doesn't intend to be a statement against China. It intends to be a statement against the individual.
 
 # What are some of the central themes of the novel?
 
@@ -40,7 +40,7 @@ My secondary intention was to demonstrate that you can still have creative flair
 
 # Why do some characters not have names? In fact, why does Milo only have a name?
 
-It’s to emphasis the priority of the character and how he thinks. It really is a reflection of his idea of romance. He only cares about that image of perfection he has in his mind, which he has equated with 
+It’s to emphasis the priority of the character and how he thinks. It really is a reflection of his idea of romance. He only cares about that image of perfection he has in his mind, which he has equated with
 
 The idea behind this novel is that you never really get to know too much about the character. The actual details of his life is inconsequential. Rather, the idea is that you only get to experience his life through his own observations. His subjective understanding.
 

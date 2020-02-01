@@ -60,6 +60,8 @@ ready to sell or consume
 
 The expectation was vast, ripping itself into the skin and bone of the casual patron,
 
+ usually .
+
  within these doors. Those flakey lines of trodden harmony? Were they real? Did they seek pleasure?
 
  stuffed and padded with the thick combustible muck of a flammable coolant used solely for the manufacturing of cheap plastic goods
@@ -77,6 +79,8 @@ on an excruciating timeline
 a misunderstood preamble of financial servitude and genetic shivery,
 
 shared amongst the consortium of bacteria suckling their teats upon the tears of happiness now drenched in acid, I proceeded to re-insert the misery module in the conveniently-placed
+
+by a shockingly empty response we received from
 
 # part 3
 
