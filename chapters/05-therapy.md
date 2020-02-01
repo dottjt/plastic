@@ -17,6 +17,7 @@ Everyone dreams. It's on the front cover of every magazine, sizing and measuring
 
 "Well, what's your idea of success?" the therapist responded.
 
+
 "I don't know. Maybe it's having sex three times a week. Owning a home. I just don't feel successful," I said, as I dipped my face into my coffee cup like a stubborn penguin. In actual fact my dream was to become a writer. I'm not quite sure when the obsession began, but it was an all-consuming affair with my imagination. An innocent ploy for self-discovery, held in sanctuary by
 
 "What do you think success would feel like?"
