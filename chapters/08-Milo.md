@@ -9,7 +9,7 @@ title: "Milo."
 
 <!-- Expressing love  -->
 
-An acoustic stream of pink decorations fluttering around me, gently letting me down ina a confetti of fairy dust. I couldn't have imagined anything more perfect than the sanctuary of her presence, held in esteem beyond the very words which brought her to life. More than anything, I simply wanted to hold her in my hand, pretending to be hers in every sense of the word. A lucky charm of eternity which
+An acoustic stream of pink decorations fluttered around me, gently letting me down ina a confetti of fairy dust. I couldn't have imagined anything more perfect than the sanctuary of her presence, held in esteem beyond the very words which brought her to life. More than anything, I simply wanted to hold her in my hand, pretending to be hers in every sense of the word. A lucky charm of eternity which
 
 
 

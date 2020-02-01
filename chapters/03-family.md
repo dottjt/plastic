@@ -17,11 +17,11 @@ I always wondered if I'd have a piece of this one day, as I stared out of the sc
 
 <!-- Describe Rich Chinese -->
 
-The 21st Century Asian was a fickle creature which did not need what it saw and only wanted what it had been told. A Hollywood bonanza of Western desires, trained inside an inferiority complex constructed since birth. In this ten-part series we will be demonstrating how you, an aspiring middle-aged Asian man, can also bring down the average. At the pyramid of the chain was the White Mercedes Benz, a status of council for lonely asian man in grey overalls. Spread legs wide around a plate of Hungrarian cheese, slopped around the mouth with a dollop of hoisin sauce.
+The 21st Century Asian is a fickle creature which did not need what it saw and only wanted what it had been told. A Hollywood bonanza of Western desires, trained inside an inferiority complex constructed since birth. In this ten-part series we will be demonstrating how you, an aspiring middle-aged Asian man, can also bring down the average. At the pyramid of the chain was the White Mercedes Benz, a status of council for lonely asian man in grey overalls. Spread legs wide around a plate of Hungrarian cheese, slopped around the mouth with a dollop of hoisin sauce.
 
 <!-- Approach the house -->
 
-As I approached the rickety front gate of the dilapidated two-storey weatherboard estate, I couldn't help but notice the surreal cheapness of it all. Succulents and cacti of every kind, retrofit into an assortment of clay pots n' rusted pans, braced along the newly-concreted driveway held together by particles of dust and refined palm oil, perfectly serene in it's chemical absolution. I'd never seen a guava tree before, this great monstrous shrub which ate the leaves of the tiny mandarin tree near the spralling rhododendrons. Behind the house was the outline of the shed, an endless hoarders orgy of junk.
+As I approached the rickety gate of the unkept two-storey weatherboard estate, I couldn't help but notice the surreal cheapness of what I was witnessing through the winter smog. Succulents and cacti of every kind, retrofit into an assortment of smashed clay pots and scratched non-stick pans, braced along the newly-concreted driveway held together by particles of dust and refined palm oil, perfectly serene in it's chemical absolution. I'd never seen a guava tree before, this great monstrous shrub which gorged upon the leaves of the tiny mandarin tree near the spralling rhododendrons. Behind the house was the outline of the shed, an endless hoarders orgy of junk.
 
 I quietly slipped in through the backdoor in hopes of avoiding her entirely, knowing deep-down inside that it was merely postponing the primitive courage required to deal with the barrage of not-quite-disappoint which was certain to come my way.
 
@@ -44,45 +44,29 @@ Thankfully, she was getting old. Her greying hairs now dominating her futile att
 
 <!-- Mother Greeting -->
 
-"You're late," responds a small upright figure, face like a porcelain horse. Spatula in hand, ready to strike at any moment. Her helper sits besides her, acute in the Stockholm complex wrapping his hooligan brain in an enticing fantasy land of denial. Neither lover, nor friend, I never quite understood the relationship the helper wore. Although he was older, married and unsuitably kind in his rhetoric, he yet preferred to spend his time in the company of cretin scum. Building. Sowing. Tending to his leash on a mortified penance of penalty and punishment. Only my mother was capable of deceiving the very basis of human evolution, raw in a pursuit of self-preservation which tore at the old white men of societies past. Especially when they were carrying her shopping.
+"You're late," responds a small upright figure, face like a porcelain horse. Spatula in hand, ready to strike at any moment. Her helper sits beside her, acute in the Stockholm complex wrapping his hooligan brain in an enticing fantasy land of denial. Neither lover, nor friend, I never quite understood the relationship the helper wore. Although he was older, married and unsuitably kind in his rhetoric, he yet preferred to spend his time in the company of cretin scum. Building. Sowing. Tending to his leash on a mortified penance of penalty and punishment. Only my mother was capable of deceiving the very basis of human evolution, raw in a pursuit of self-preservation which tore at the old white men of societies past. Especially when they were carrying her shopping.
 
-"Why don't you ever see me any more? I wasted my entire life looking after you, and this is how you treat me?"
+"Why you not come see me anymore? I waste my life feeding you, and this is how you treat me?"
 
-"I fucking hate you," I responded. Actually, that's not quite what I said, but it's precisely what my mouth wanted to say. Perhaps it was a cry from a different dimension. A prophecy fulfilled. I'd cunt punt her and knock her out with a bar of silver, if only I could find a way to mask the awful stench of old white dick emanating from her pussy.
+"I fucking hate you," I responded. Actually, that's not quite what I said, but it's precisely what my mouth wanted to say. Perhaps it was a cry from a different dimension. A prophecy fulfilled. I'd cunt punt her and knock her out with a bar of silver, if only I could find a way to mask the awful stench of old white dick emanating from her pussy. I suppose that really summarised our relationship. A mechanical exchange of contracts and titles, sacred in the punishment which disguised itself as a motherly love. Another sad case of right time, wrong hole. I'm sure my birth certificant wasn't too inaccurate in that respect.
 
 <!-- Describe porn usage -->
 
-You see, kids like me didn't have mothers. We had computer screens. More often than not, full of video games and colourful smut. Playful fun-things for our deluded femininity to simulate with thousands of other neglected children, as a gentle introduction to the world of shadows. A kind of twisted fundamental truth that would allow you to twirl your ego for hours on end, as you attempt to dangle a mammoth-sized strap-on around your knee in order to satisfy your quench for cradled inclusion. On the internet there were no barriers. You didn't have to shake some shady cum-ridden hand within a confined petrol station restroom, just to witness your first set of silicone breasts. You did't even have to leave your own room, let alone the own auspices of your bed-ridden shame. The screen was just there. 24/7. Happy to guide you into the fantastic lust-filled imagination of sex and gore, tweaking your most fundamental ambitions into an inclination for intimate pixels. A young child sits in a room alone, awaiting cross-legged for his favourite cam girl to smile, if only to feel the warm embrace of a hug, held by his hands frantically masturbating the glowing rash developing from within his shaft.
+You see, kids like me didn't have mothers. We had computer screens. Static interactions full of colourful smut and pornographic titilation. Playful fun-things for our deluded femininity to simulate with thousands of other neglected children, as a gentle introduction to the world of shadows. A kind of twisted fundamental truth that would allow you to twirl your ego for hours on end, as you attempt to dangle a mammoth-sized strap-on around your knee in order to satisfy your quench for cradled inclusion. On the internet there were no barriers. You didn't have to shake some shady cum-ridden hand within a confined petrol station restroom, just to witness your first set of silicone breasts. You did't even have to leave your own room, let alone the own auspices of your bed-ridden shame. The screen was just there. 24/7. Happy to guide you into the fantastic lust-filled imagination of sex and gore, tweaking your most fundamental ambitions into an inclination for flickering pixels. A young child sits in a room alone, awaiting cross-legged for his favourite cam girl to smile, if only to feel the warm embrace of a hug, held by his hands frantically masturbating the glowing rash developing from within his shaft. Welcome our new defacto parents of the world. An opportunity to rid the stain from your genes and introduce yourself to a new life of agrarian pleasure.
 
-Welcome our new defacto parents of the world. An opportunity to rid the stain from your genes and introduce yourself to a new life of agrarian pleasure. I remember participating in my first gang-bang at 12. There I was. Sitting in my chair. Brain enveloped in something magical. At first it was truly mesmerising, like placing your hand into a soulless lucky dip to find some authentic caricature of a set of laced panties. Eyes darting around the screen in a morbid photographic fixation with the imposing image of breast and triggering keywords. Fuck. Whore. XXX. The vocabulary was your play-pen. A visual casino without walls, glittering in the cerulean madness restraining you suspenseful initiation. A small girl thigh-high tights flashes her vagina in an inconsequential display of voyeurism. It is class.
-
-Then it becomes routine. A bashful kingdom of constant warfare, keeping your brain intact and out of stunted order. A need. A dire situation of requirement. A lethargic reminder of your own existence, as you enclave your existence within an overwhelming bombardment of obscene destitution. Then begins the rape. The Lithuanian gang bangs. The brutality of forced-torture and poly-amorous anthropomorphism, shoved into the sweaty paws of a furry suit fit for enough disenfranchised cocks to choke a small horse to death. Orphaned children dying in a fledgling fuck-storm of medical disaster, fists shoved so deep into so many tight spaces that not even the coroner can keep up.
-
-Japanese AV models were the closest thing I ever had to a mother, and it showed in the trembled lustre rotting through my kidneys.
-
-<!-- Talk about relationship -->
-
-
-<!-- Scene 2 END -->
-
-###
-
-<!-- Scene 3 START -->
+I remember participating in my first gang-bang at 12. There I was. Sitting in my chair. Brain enveloped in something magical. At first it was truly mesmerising, like placing your hand into a soulless lucky dip to find some authentic caricature of a set of laced panties. Eyes darting around the screen in a morbid photographic fixation with the imposing image of breast and triggering keywords. Fuck. Whore. XXX. The vocabulary was your play-pen. A visual casino without walls, glittering in the cerulean madness restraining you suspenseful initiation. A small girl thigh-high tights flashes her vagina in an inconsequential display of voyeurism. It is class. Then it becomes routine. A bashful kingdom of vaseline warfare, keeping your brain intact and out of stunted order. A need. A dire situation of requirement. A lethargic reminder of your own existence, as you enclave your existence within an overwhelming bombardment of obscene destitution. Then begins the rape. The Lithuanian gang bangs. The brutality of forced-torture and poly-amorous anthropomorphism, shoved into the sweaty paws of a furry suit fit for enough disenfranchised cocks to choke a small horse to death. Orphaned children dying in a fledgling fuck-storm of medical disaster, fists shoved so deep into so many tight spaces that not even the coroner can keep up.
 
 <!-- Eat lunch with my mother -->
 
-On the vintage dining table of the traumatic in front of us which uncomfortably sat a broken family of none,
+The vintage dining table reached out towards a broken family of none. The helper sat with his ankles tied in a handcuff knot of submissive apprehension, agitated in the scars he picked from his face in an imperfect spiral of manic paranoia. His long fingers tenderly clutching a pair of chopsticks which bore the word 'slave' in traditional Chinese. I didn't know what to say to him, other than to shrewdly poke my eyes at the way he would sneak ounces of snuff into his gums, as he began to yearn in a smitten barm of deranged twitching. The confidence in his eyes, hemorrhaging draino by the trench full. Besides the table was a mosaic of childhood pictures and , stepelled
 
-Besides the table where a mosaic of childhood pictures, stepelled
+"Why you not help bring food to table?"
 
-<!-- Talk about meal. -->
+"Alright, calm down."
 
-She popped down a bowl of rice, mixed with a variety of dried-fish
+"Don't tell me to calm down! I am your mother! Now go get food!"
 
-dishes ladden with enough dehydrated corn flour and
-
-As I sat there in a spire of modern arcadia, mind prefixed on grabbing mother's face and shredding it along the outside brick wall.
-
+Carrying back a bowl of rice and a mixed variety of dried fish and roasted porcupine, I sat for a second time next to the helper, now passed out in a nicotine mist of hoarfrost. The pickled cabbage and muzzy black bean cauliflower were ladden with enough dehydrated corn flour to kill a small horse. The rice entered my mouth, as I sat there in a spire of modern arcadia, mind prefixed on grabbing mother's face and shredding it along the outside brick wall. Usually we didn't speak. The only time she would speak was to tell me off or criticise me for not being more like her. A decrepit pit of satanic translucence and hardened cum.
 
 <!-- Father -->
 
@@ -92,7 +76,6 @@ I didn't know a lot about my father. He was more of a blur, than a curiosity. Ad
 "You need to find a partner," she says.
 
 Most of what she said usually drowned itself out into an inconsequential wave of white noise, streaming itself as quickly out of my mind as possible.
-
 
 <!-- I end up breaking up, never seeing her again -->
 
@@ -106,15 +89,19 @@ You could tell something had changed in her.
 
 "That's it. I've had enough get fucked."
 
-"What do you mean you're breaking up?
+"WHAT!?"
+
+She grabbed .
+
+"That's right, you fucking bitch. Go fuck yourself.
 
 Hopefully I would never have to see her again.
 
-<!-- Scene 3 END -->
+<!-- Scene 2 END -->
 
 ###
 
-<!-- Scene 4 START -->
+<!-- Scene 3 START -->
 
 <!-- Describe Suburbs -->
 

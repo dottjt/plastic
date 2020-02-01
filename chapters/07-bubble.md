@@ -77,7 +77,7 @@ THe room was so small you'd thought you were
 
 <!-- Sodomy monologue -->
 
-There's something fantastic about sodomy. A religious travesty of heightened caution, no different to blowing up a entire school bus full of Indonesian school children, limbs akimbo, crisp sheets of trigonometry fluttering down in a cascade of ceremony, only to condemn those who practice formal expression in a much, much less formal way.
+There's something fantastic about sodomy. A religious travesty of heightened caution, no different to blowing up a entire school bus full of Indonesian school children, limbs akimbo, crisp sheets of trigonometry pouring down in a cascade of ceremony, only to condemn those who practice formal expression in a much, much less formal way.
 
 "You really are evil, aren't you?" says Milo, skipping about on the side walk, a-twirl in her own world of disturbing imagination of primary fascination. A curious beast I one-day hoped to tame and unleash, like a feel-good tsunami of sexual domination. Clearly, you didn't need to hear that.
 
@@ -108,7 +108,7 @@ Clashed against the senses,
 
 In a deafening reverberation of broken noise, the singing cheers and alcoholic folly of the bar left open a new a generation of patrons to falter and despair, clashing slovenly against the senses in an agonising huff of futility. It was clear who had become adjusted to the rein, those blacked out youth in their cordoroy t-shirts and labelled affair, justifying confidence with another stint at the bar. A drunken man swerves around me, smashing his head into the Irish trims lacing their way around the liquor tetrohedron of doom.
 
-"Man, where do they find these women," I shout, knowing full-well that no one can hear me. I see Milo head to the bar, flirting with the waitress, before turning her head towards me with sharp smirk and a brief flutter in her eye, as if to suggest that I had some part to play
+"Man, where do they find these women," I shout, knowing full-well that no one can hear me. I see Milo head to the bar, flirting with the waitress, before turning her head towards me with sharp smirk and a brief sneer in her eye, as if to suggest that I had some part to play
 
 I always felt out of place at bars. Not that it felt artificial, but it's not the kind of place you would live in, so why would you want to hang out there?
 
