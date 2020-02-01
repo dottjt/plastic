@@ -27,6 +27,8 @@ Was it in my best interest to grab a conveniently-located bench and use it as a 
 
 "I guess I have indeed," as I stood there slightly enamoured with her presence. Well, it was more of an immediate obsession than it was a simple acknowledgement to be upheld. Those piercing Armenian eyes, wrapped thick in the shrill curls of a maniac-saviour. Ready to lure, attract and murder at an unintentional glance. Her body as slender and as elusive as the wisp of time itself, emancipated in a deformed stock of cigarette ash and compact opulence. It was everything I envisioned and more. I was sure there was an innate part of her brain that derived pleasure from drenching her lovers in coarse honey, before twisting them into all sorts of tautologically impossible shapes to be fucked and played with, or as she described, a short-stint in rehab. I'm sure my therapist wouldn't have been too happy with those thoughts.
 
+Truth was, Milo was a bipolar baby. One minute she would be ecstatic, jumping about, grabbing you .  and . I don't know why I sexualise mental illness, perhaps because I was mentally ill myself.
+
 <!-- Scene 1 END -->
 
 ###

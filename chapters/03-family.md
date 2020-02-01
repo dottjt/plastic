@@ -21,7 +21,7 @@ The 21st Century Asian is a fickle creature which did not need what it saw and o
 
 <!-- Approach the house -->
 
-As I approached the rickety gate of the unkept two-storey weatherboard estate, I couldn't help but notice the surreal cheapness of what I was witnessing through the winter smog. Succulents and cacti of every kind, retrofit into an assortment of smashed clay pots and scratched non-stick pans, braced along the newly-concreted driveway held together by particles of dust and refined palm oil, perfectly serene in it's chemical absolution. I'd never seen a guava tree before, this great monstrous shrub which gorged upon the leaves of the tiny mandarin tree near the spralling rhododendrons. Behind the house was the outline of the shed, an endless hoarders orgy of junk.
+As I approached the rickety gate of the unkept two-storey weatherboard estate, I couldn't help but notice the surreal cheapness of what I was witnessing through the winter smog. Succulents and cacti of every kind, retrofit into an assortment of smashed clay pots and scratched non-stick pans, braced along the newly-concreted driveway held together by particles of dust and refined palm oil, perfectly serene in it's chemical absolution. I'd never seen a guava tree before, this great monstrous shrub which gorged upon the leaves of the tiny mandarin tree near the spralling gather of quaint sexual tension. Behind the house was the outline of the shed, an endless hoarders orgy of junk.
 
 I quietly slipped in through the backdoor in hopes of avoiding her entirely, knowing deep-down inside that it was merely postponing the primitive courage required to deal with the barrage of not-quite-disappoint which was certain to come my way.
 

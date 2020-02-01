@@ -1,6 +1,8 @@
 
 # life-01.md
 
+until his Sicilian nipples ran raw.
+
 you could sense his mind falter at the pseudo-salad slosh of defective commentary his mouth felt compelled to reveal.
 
 "Truly fantastic", the editor announces from across the room as he swivels his chair towards my general direction. Hesitant in a gleam of cheap cologne and uncompromising flattery, you could sense his mind falter at the pseudo-salad slosh of defective commentary his mouth felt compelled to reveal. Struck brazen in a dyslexic haze of powdered aspartame and lopsided cheese squares, only crumbs were left of the star-mangled biscuits. Presumably store-bought for our excited listeners at home. Dwadling frantic on a notepad fit suitably for a 90s' Nickelodeon pre-teen, he was the mindless operator who would introduce himself as my only lifeline into the world of publishing, and I was the pathetic liar who intended to milk his acquaintance for all it was worth.
@@ -51,6 +53,8 @@ followed by a unwitting gasp at the clamature of the situation,
 ### part 2
 
 that the very foundation
+
+our fibrous existence
 
 ready to sell or consume
 
