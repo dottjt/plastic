@@ -64,28 +64,32 @@ The vintage dining table reached out towards a broken family of none. The helper
 
 "Alright, calm down."
 
-"Don't tell me to calm down! I am your mother! Now go get food!"
+"Don't tell me to calm down! I am your mother! Now you go get food!"
 
 Carrying back a bowl of rice and a mixed variety of dried fish and roasted porcupine, I sat for a second time next to the helper, now passed out in a nicotine mist of hoarfrost. The pickled cabbage and muzzy black bean cauliflower were ladden with enough dehydrated corn flour to kill a small horse. The rice entered my mouth, as I sat there in a spire of modern arcadia, mind prefixed on grabbing mother's face and shredding it along the outside brick wall. Usually we didn't speak. The only time she would speak was to tell me off or criticise me for not being more like her. A decrepit pit of satanic translucence and hardened cum.
 
 <!-- Father -->
 
-I didn't know a lot about my father. He was more of a blur, than a curiosity. Admittedly it never really bothered me a great deal. It's hard to complain about something that you didn't have, and had no reference to compare to. Well, I did have my mother, and that was bad enough. Perhaps that was part of reason why I got along with dad in the short time that we were together before he had left, simply due to the misery that was mum. I guess I can't blame him, but I also can't praise him for anything he's done.
+I didn't know a lot about my father. He was more of a blur, than a curiosity. Admittedly it never really bothered me a great deal. It's hard to complain about something that's not there, that you don't have a mental reference to compare against. No one to blame. No one to praise.
 
+"You need to find a partner," she blurts, fish-bone stuck between her two front teeth.
 
-"You need to find a partner," she says.
+"I don't know." That was how I usually responded to her antics.
+
+// What is the climax which reaches this point? I don't know yet.
 
 Most of what she said usually drowned itself out into an inconsequential wave of white noise, streaming itself as quickly out of my mind as possible.
 
-<!-- I end up breaking up, never seeing her again -->
+There was always a sense of hope that one day she would change. That she would one day wake with a kind of clarity that would completely flush he brain out and allow her to truly understand who she was. Instead, her mind seem liked a hotpot of sharpnel, forever reacting with
+
+
+
+For a split second, I had an epiphany. There I was, suspended in time. I could see myself in plain view. I realised that I didn't have to put up with this. That I physically could remove myself from this situation.
+
+
 
 I couldn't take it anymore. I was going to do it. My gosh, I was actually going to do it. I couldn't quite believe it, but it was finally going to happen. Ecstatic with a burst of infinite possibility, I stood up from my chair, told my mother to fuck herself, and left the room. It felt as if I'd transformed into a butterfly. I felt enummerably lighter than I did before. Calmer. More in control. At this point, I really didn't care about . For the first time in my entire life, I felt in-control.
 
-You could tell something had changed in her.
-
-"
-
- burst from my chair, slamming my cup down
 
 "That's it. I've had enough get fucked."
 
@@ -95,7 +99,10 @@ She grabbed .
 
 "That's right, you fucking bitch. Go fuck yourself.
 
-Hopefully I would never have to see her again.
+
+<!-- Mother turns -->
+
+Something had changed in her. The moment had arrived. In an incredulous panic of resounding fear, she runs for me. But I am not there. Her prize had disappeared from her grasp. From her far-reaching judgement.
 
 <!-- Scene 2 END -->
 
