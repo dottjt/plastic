@@ -2,16 +2,24 @@
 
 Margarine's tainted folly digs it's five-inch heels firmly into your hardened arteries, as you attempt to pry the concrete from your eyes with a miniature pickaxe at 5:20am in the morning.
 
+Margarine's tainted folly of hardened bliss.
+
 Mesmerisingly subterranean,
 
 live in front of a packed-out arena full of hardcore animal-rights activists
 
 
+immaculately programming you
+
+This week's perfect solution to the rampant "black" problem.
 
 
 in it's surreal propagation of pus and confetti
 
 I mean, can you even taste the salt in the air? It's everywhere. In my eyes. My lungs, oh those poor little lungs of mine. It's a bit like trying to breathe without the glamour of knowing where exactly the oxygen is coming from. Perhaps that's just how we do it here in Cattle Country, remise to the steak you gorge on and hoard. An excellent place to adore, as well as ignore, all kinds of pertinent squalor; the same kind you so profess as professional gold. Your rough heart creates many.
+
+
+intense with the fervour of an over-cooked bucket of ravioli slosh,
 
 
 of being a cute millennial, that you really can't help but wonder how you deliberate any sort of significant meaning, beyond the corpse you just laid to rest with a blunt knife and a resolve to inflict meaningless revenge.
