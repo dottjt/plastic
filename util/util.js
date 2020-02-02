@@ -56,10 +56,17 @@ const extractData = (file_contents, file_name, type) => {
 const generatePage = async folder => {
   try {
     const folder_files = await fse.readdir(`${folder}`, 'utf8');
+    const exclude_files = [
+      '01-life.md'
+    ];
+
+    const filtered_folder_files = folder_files.filter(file => (
+      !exclude_files.includes(file)
+    ));
 
     let new_list = [];
     let new_string = '';
-    for (const file_name of folder_files) {
+    for (const file_name of filtered_folder_files) {
       const file_contents = await fse.readFile(`${folder}/${file_name}`, 'utf8');
       const { new_list_item, new_string_item } = extractData(file_contents, file_name, 'page');
       new_list.push(new_list_item);

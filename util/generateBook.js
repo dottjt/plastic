@@ -14,6 +14,7 @@ const generateBook = async () => {
     generatePage('./chapters'),
   ]);
 
+
   const website_content_array = [
     // CHAPTERS
     chapters.string,
