@@ -19,7 +19,7 @@ until his bare nipples ran raw.
 
 one tippity-tap away from enlightened expedition,
 
-Frantic dawdling on his notepad aside, an ancient treasure   <!-- fit suitably for a 90s' Nickelodeon pre-teen -->, and I think we have a winner.
+Frantic dawdling on his notepad aside, an ancient treasure   ## fit suitably for a 90s' Nickelodeon pre-teen , and I think we have a winner.
 
 The one to concoct this evening's pseudo-salad of pain.
 

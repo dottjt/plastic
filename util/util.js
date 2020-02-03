@@ -23,7 +23,9 @@ const getHead = (fileContents) => {
   const content =
     rawWithHTMLContent
       .replace(/(?=  <!--)([\s\S]*?)-->/g, '')
+      .replace(/##/g, '')
       .replace(/###/g, fancyBreakString())
+      .replace(/####/g, '')
 
   return {
     head,
@@ -34,19 +36,23 @@ const getHead = (fileContents) => {
 const extractHeadContents = (headContents) => {
   const titleRegex = new RegExp(/title: .+/);
   const rawTitle = headContents.match(titleRegex)[0];
-
   const title = rawTitle.split('"')[1].replace('"', '');
+
+  const descriptionRegex = new RegExp(/description: .+/);
+  const rawDescription = headContents.match(descriptionRegex)[0];
+  const description = rawDescription.split('"')[1].replace('"', '');
 
   return {
     title,
+    description,
   }
 }
 
 const extractData = (file_contents, file_name, type) => {
   const { head, content } = getHead(file_contents);
-  const { title } = extractHeadContents(head);
+  const { title, description } = extractHeadContents(head);
 
-  const new_list_item = { content, title };
+  const new_list_item = { content, title, description };
   return {
     new_list_item,
     new_string_item: `# ${title}\n${content}\n\n\n`, // \n${date}

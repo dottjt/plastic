@@ -1,18 +1,16 @@
 ---
 title: "house."
+description: "Chapter about the fringe"
 ---
 
-<!-- START -->
+#### Scene 1 START
 
-<!-- Scene 1 START -->
-<!-- Chapter about the fringe -->
-
-<!-- Describe Fringe -->
+## Describe Fringe
 
 All aboard the fringe. An effervescent display of gaudy rigour wrapped-fancy in a quarter-mile sweat-band of pound and flesh. Don't we all just love a set of fresh dazzling eyes, daudy fuckin' crand, carrying themselves helplessly towards the emotionless gaze of triumph tying us all together into this absolute pit of love and despair. My fingers dig-deep into the scar tissue oozing from my imagination, manic to the pixie queen shaking violently to an empty bottle of cultivar gin.
 
 
-<!-- Buy House -->
+## Buy House
 
 Recently I decided to buy a house, something which I would consider an achievement. Surely, anything which defines necessity should be considered an achievement, or has the necessity trumped me as part of some underground ritual of autonomous self-hate and misdemeanour. It has windows with a tight sheen for upper-class movement, and it's doors come fixed with an embrace for communal living. The backyard by any means, is a timid beast. It's what the vicar ordered and more.
 

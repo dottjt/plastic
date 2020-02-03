@@ -24,7 +24,7 @@ Peter was an alcoholic.
 
 ## Chapters.
 
-  <!-- 00 - The Setup -->
+  ## 00 - The Setup
 
 ### 01 - life.
 
@@ -81,7 +81,7 @@ Stevie was a stewer. Stevie loved to stew.
 - Character takes drugs. Becomes an addict. The degradation.
 
 
-  <!-- 11 -->
+  ## 11
 
 ### market.
 
@@ -98,7 +98,7 @@ Stevie was a stewer. Stevie loved to stew.
 
 
 ### date.
-  <!-- I don't think this will be a long chapter -->
+  ## I don't think this will be a long chapter
 
 - This chapter develops Milo and the Character's love story.
 - Character goes to the movies with Milo.
@@ -109,7 +109,7 @@ Stevie was a stewer. Stevie loved to stew.
 
 - Talk about working in tele-marketing.
 
-  <!-- 16 -->
+  ## 16
 
 ### slave.
 
@@ -136,7 +136,7 @@ Possibly chapters/explorations:
 
 - Assuming that I manage to write 1,000 words a day, I'll be able to have enough words for a novel within 90 days, or perhaps three months. I imagine that's not reasonable, so it will probably take 6 months to produce those words. Within that period, I will also need to edit and refine the story. I imagine that will take probably
 
-- I really need to build up Milo's bipolar personality throughout chapter 2. It's integral to her actions later on in the chapter when he proposes to the main character. 
+- I really need to build up Milo's bipolar personality throughout chapter 2. It's integral to her actions later on in the chapter when he proposes to the main character.
 
 
 # used.

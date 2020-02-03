@@ -1,13 +1,11 @@
 ---
 title: "death."
+description: "A chapter where the character is at his lowest. Takes acid. Freak trip. Hospitalised."
 ---
 
-<!-- START -->
+#### Scene 1 START
 
-<!-- Scene 1 START -->
-<!-- A chapter where the character is at his lowest. Takes acid. Freak trip. Hospitalised. -->
-
-<!-- Help Monologue -->
+## Help Monologue
 
 Hi. Have we met before? I know we probably haven't met before, but it's really nice to meet you. I like your hair. I think it's pretty. The way it flows. I definitely think we're going to get along. I'm probably sounding cheesy, but I feel that you're not quite like the others. You have a really beautiful smile and I really like the way your eyes blink. I think it's classy. Oh, and I promise not to sexualise you. As of this very moment, I've decided to take the time to write to you. To admire you. To bring you to life. Really, I spend most of my free time writing, and it's something I really enjoy doing. Hopefully enough to inspire others to write, although I'm not sure if that's such a good idea. You might even call me a writer, not that I do it for a living. It's just something that helps me feel a little more ...connected with myself.
 
@@ -15,7 +13,7 @@ You're reading this message today because I'm in dire need of help. I'm not okay
 
 Which means I created you. I created you, because I have great taste in words. Isn't that right? Yeah, I think so too. Words are fun because they help me understand the world a little bit better. Words are friends, because they . Don't you love how the curves around the . I love the way you hold me.
 
-<!-- Describe Morning -->
+## Describe Morning
 
 I didn't really feel much that morning. I didn't have the desire to feel, nor did I feel anything at all.
 
@@ -24,7 +22,7 @@ I didn't really feel much that morning. I didn't have the desire to feel, nor di
 
 But hey, it was a Saturday morning, the lungs were still breathing and I didn't quite have the courage to pull the trigger,  which essentially meant only one thing. It was time to tab.
 
-<!-- The Tab. -->
+## The Tab.
 
 I couldn't remember when I first started taking tabs, but teenage me was always keen to try new things. Subtle ways to break the thin vein of tension which arose from thy evil, thy mother and thy sin. Tot n' trot. Thankfully adult me was even more than keen to spend his adult credits pursuing such desires, uncouth in the odities of human existence.
 
@@ -40,60 +38,60 @@ The key with takin' tabs is to keep them away from light. It was also important 
 
 Thankfully the tabs were nothing like the seeds. You'd have to perform an alcohol extraction on them. I personally used methylated spirits, which more-or-less was pure ethanol, minus some compounds which were placed inside it to make you want to purge yourself. Some methylated spirits actually contain compounds which make you go blind. Thankfully I called the manufacturer and they confirmed that it was fully safe. They must have known that I was up to something.
 
-<!-- Describe The Wait -->
+## Describe The Wait
 
 
 
 In. Out. In. Out.
 
 
-<!-- Scene 1 END -->
+#### Scene 1 END
 
 ###
 
-<!-- Scene 2 START -->
+#### Scene 2 START
 
 
 
-<!-- Hang out with a bad person. -->
+## Hang out with a bad person.
 
 I receive a text from an old acquaintance. Dealer. Badlands. Claims city. Fight club. The leech. Here at the bank of assistance, we truly value your customer service. Sign here, please. There was never an unopportune time for the leech to sink his insinuous teeth into your collarbone, holding on for dear life as you trash about in a manic frenzy. But he was company, and I needed company.
 
 He rocks up in a stolen vehicle, licence plates removed from both rears. High on synthetic marijuana. Without a driver's licence to your name.
 
 
-<!-- Waiting at town -->
+## Waiting at town
 
 
 
-<!-- Trickery - Bad Trip -->
+## Trickery - Bad Trip
 
 Fading away.
 
 I kicked the car door down.
 
-<!-- Scene 2 END -->
+#### Scene 2 END
 
 ###
 
-<!-- Scene 3 START -->
+#### Scene 3 START
 
-<!-- Lost -->
+## Lost
 
 
 
-<!-- The conflict -->
+## The conflict
 
 We stop at the centro.
 
 
-<!-- Confrontation with house owner -->
+## Confrontation with house owner
 
 I screamed
 
 Blue men point their guns at me. I scream.
 
 
-<!-- Scene 3 END -->
+#### Scene 3 END
 
-<!-- END -->
+
