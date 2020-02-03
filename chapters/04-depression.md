@@ -3,9 +3,9 @@ title: "depression."
 description: "A short chapter about character's darker feelings, guilt he feels, weed addiction, cam girl, buys a gun online."
 ---
 
-#### Scene 1 START
+## Scene 1 START
 
-## Self-perceived reality - enthralling
+### Self-perceived reality - enthralling
 
 "Moderately entertaining." Tonight's obligations are being delivered pro rata in cheerless harmony of , as these subversive words drag themselves miserably along a serrated tarmac of circular needles and profane blather. Dead unlike the recurved skunk which lies on it's belly in the tall notched grass besides knurled quandary grasping at it's toes, sneaking itself scalloped into the vice of our dreams in a cheeky attempt to tell a misplaced joke about the inequality of ethically-sourced nuts. Victorian times, oh dear. The scant face behind the ceiling snarls in grave fashion, hushing at the feint tapper of lovely's past. "Does the knife hurt, sweetie? Can you feel it grasp at your pain? Do you need it slightly closer to the edge of your heart so you can satirise my maltreatment!?"
 
@@ -17,7 +17,7 @@ It's apparent there's trouble. A whole defeated sunk of loss and perish, because
 
 "What am I doing," I wonder, depleted in the struggle of my confusion. The gristle on my chin scrapes against the crumpled linen sheets shrouding the glob of human sinew supporting my disenchantment with the world. I look up from the below the covers and into the indicator of my youth. 10:20am. That can't be good for the kidneys. Merged like oxidised gum to underside of a train station bench, hard n' gunky. I shook off the dread with a grave muddy sigh, and attempted to push the sheets from my body. It was no use. My arms were simply too heavy to budge. I had become a gelatine puddle of goop. Dog shit cloaked in chocolate sprinkles. Enjoy the funk, cum daddy.
 
-## Talk about guilt
+### Talk about guilt
 
 Maybe I felt guilt over the way I treated my mother, my emotions still smack-bang in the middle of a vicious civil war. Anger, sadness, self-righteousness. Equally caught in a quaint requiem of on-going misery. Fumbling my way through the drull beat in my heart, all I could feel was my star-studded torso being pulled and ripped apart by the actions of my past. Sometimes, it feels like I'm granted permission to be an awful person. To express how little my emotions would allow me to feel and to become so absolutely consumed in hatred, to a point where my eyes would feel sore for days. I wasn't exactly sure why I hated my mother so much, but it felt so right, so integral to my experience as a human being. The pain. The judgement. The hurt which shoved it's precious little fingers into my gut. Yet it just was. My anger and my sorrow, nothing more than an immediate reaction to the tumor I recognised as a blight on this earth to excuse and
 
@@ -26,7 +26,7 @@ It was a state of mind which my brain had defaulted to. Certainly, I believe tha
 Japanese AV models were the closest thing I ever had to a mother.
 
 
-## Existential Crisis
+### Existential Crisis
 
 I feel unadjusted. I feel unprepared for a life without meaning, though perhaps I'm simply unable to produce meaning without spreading my intellectual tar as a gift to the inconsequence slicing me open. It's a delicate buffet, so please dig in. An unpleasant feeling, a kind of surreal suffocation, that blinds me as welcomingly as it graces. I would happily equate it to grafting impure enamel into the soft edges of my eye-lids, allowing me to process what little conscious thought I have towards cultivating my dull insensitivity to .
 
@@ -40,14 +40,14 @@ What did it mean to cope?
 
 Maybe I'd feel better after a wake n' bake. Yeah, that's what I needed. It was time to degrade.
 
-#### Scene 1 END
+## Scene 1 END
 
-###
+#
 
-#### Scene 2 START
+## Scene 2 START
 
 
-## Weed
+### Weed
 
 Fly away
 
@@ -66,7 +66,7 @@ I put on my headphones and
 
 
 
-## Cam girl
+### Cam girl
 
 I loved cam girls. I mean, that's what they were there for. To be believed. To be loved. To provide some kind of
 
@@ -79,7 +79,7 @@ I came into my hands, cusping the overflowing semen in the rim of my index finge
 
 . Why I stared at a screen
 
-## erotica excerpt
+### erotica excerpt
 
 
 
@@ -87,15 +87,15 @@ I came into my hands, cusping the overflowing semen in the rim of my index finge
 
 
 
-#### Scene 2 END
+## Scene 2 END
 
-###
+#
 
-#### Scene 3 START
+## Scene 3 START
 
 Everyone learns to love the plastic dragon. The way it chokes you by the throat and
 
 
-## Buys a gun
+### Buys a gun
 
 ##

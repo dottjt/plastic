@@ -22,7 +22,7 @@ The Leech -
 
 Peter was an alcoholic.
 
-## Chapters.
+### Chapters.
 
   ## 00 - The Setup
 
@@ -129,7 +129,7 @@ Possibly chapters/explorations:
 ### blog. - talks about the blog he writes.
 ### church. - talks about his faith.
 
-## maybe talk about the supermarket.
+### maybe talk about the supermarket.
 
 
 # NOTES:

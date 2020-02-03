@@ -3,9 +3,9 @@ title: "recovery."
 description: "Chapter about the aftermath of destruction that was the overdose."
 ---
 
-#### Scene 1 START
+## Scene 1 START
 
-## At Hospital
+### At Hospital
 
 I lay beside a juicebox with a picture of a green hippo on it. Animated with suspicion. My vision from the previous night hadn't quite returned, supplemented in
 
@@ -14,7 +14,7 @@ I hope
 Emptiness.
 
 
-## The Mall
+### The Mall
 
 After a certain point I'd realised I didn't have any shoes.
 
@@ -23,19 +23,19 @@ I didn't have any shoes. I went into the local mall.
 A pair of flip-flops.
 
 
-## Train Ride Home
+### Train Ride Home
 
 The same damn houses.  I suppose I was grateful to be alive.
 
 
-#### Scene 1 END
+## Scene 1 END
 
-###
+#
 
-#### Scene 2 START
+## Scene 2 START
 
 
-## Arriving Home
+### Arriving Home
 
 I dipped my finger into a container of marshmellow fluff, flipping it out in a
 
@@ -43,11 +43,11 @@ In times like these I would gorge. I would fill my body with as much crap as pos
 
 
 
-## Masturbating to Milo
+### Masturbating to Milo
 
 Anaphylactically gaping in a heaping mess of cum, tepid in the shame piling from my shaft, I cautious put away the image of my ex, frustrated in the coy optimism I promised myself hours ago never to revisit those memories again. I wasn't quite sure what kind of a future I had without my failure to function as a human being, but it managed to hold me down and actively dilute me at every possible chance. It was hard to even identify who I really was. I was uncouth.
 
-## Chinese Cultural Revolution
+### Chinese Cultural Revolution
 
 Time means nothing when you have nothing left.
 
