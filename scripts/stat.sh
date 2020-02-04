@@ -1,5 +1,4 @@
 #!/bin/sh
-set -eu
 
 # VARS
 TOTAL_CURRENT_BOOK_WORD_COUNT=0
