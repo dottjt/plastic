@@ -1,6 +1,16 @@
 # 02-work.md
 
+Mornin' coffee. Mornin' wank. Mornin' grain.
+
+ as it cries idly by in native tongue
+
 the fabled black problem.
+
+place my finger firm on the trigger, emptying
+
+crying idly by in it's native tongue
+
+an event which had spawned an all-out war between my brain and my stomach.
 
 Margarine's tainted folly digs it's five-inch heels firmly into your hardened arteries, as you attempt to pry the concrete from your eyes with a miniature pickaxe at 5:20am in the morning.
 
@@ -10,6 +20,7 @@ Mesmerisingly subterranean,
 
 live in front of a packed-out arena full of hardcore animal-rights activists
 
+as if express-shipped from the Carribean in an unmarked package covered in sea urchins, just
 
 North vs South in a diluted battle of makeshift terms, fuzzy in the lack of genuine discourse being discussed amongst the various allies of tongue and cheek.
 
