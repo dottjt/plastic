@@ -60,5 +60,27 @@ An exciting state of explicit premonition, as your father dies in front of you w
 imprint to the segregation our society loves to weep
 
 
+# part-2
+
+drenched in a cake of warm semen and indecent sweat. Mortal indecency sopping in the crimes of a sex-offender.
+
+I was a creep and a saboteur, and there was little I could do about it.
+
+"A candy confectionary company for human pets", states the first h1 element of our serverless website, hand-crafted in pure HTML by
+
+A custom wood finish with a bit of slut.
+
+amongst a variety of wireframe chairs surrounding a manufactured see-through resin table.
+
+Definitely worth paying to see a cam show, at the very least.
+
+delectable disgust
 
 Rhetoric aside, I actually quite like work. THANK YOU, EMPLOYEE #545. And aside from literally being paid by the hour to make this company-wide announcement, I genuinely think it's a perfect package of routine and marriage. A fat bitch with rolls of potato gravy arrives at your trailer for a quick fuck, lipped with a ciggie that mostly consisted of ash and christened wallpaper, gunt the size of a pregnant gorilla, comes right on over . The trailer trash next door, bringing a six-pack and a nangs
+
+No one wants to swipe right on the weird looking pervert licking his lips feverously at the sight of a bucket of chicken.
+
+At least in my mind, every romance was a mirage. I suspected most women were suspicious of Chinese men. Filthy chinks with a cushy for refined shirmp paste.
+
+
+And below the logo, on
