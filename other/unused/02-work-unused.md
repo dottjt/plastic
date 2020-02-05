@@ -22,9 +22,17 @@ live in front of a packed-out arena full of hardcore animal-rights activists
 
 as if express-shipped from the Carribean in an unmarked package covered in sea urchins, just
 
+It was too bad she knew nothing of my obsession, shrouded in the ripped veil of velvet rouge, only for my imagination to see. I dearly hoped she felt the same of me, although I knew it was wishful thinking.
+
+, wrapped thick in the shrill curls of a maniac-saviour
+
+Well, it was more of an immediate obsession than it was a simple acknowledgement to be upheld.
+
 North vs South in a diluted battle of makeshift terms, fuzzy in the lack of genuine discourse being discussed amongst the various allies of tongue and cheek.
 
 , given it was past lunch time and I'd decided not to even bother showing up to work to begin with. Especially since I knew my boss was going to be away, if not out of chance, just like he'd been for most of my child and adult life. Maybe that explained my erratic behaviour and desperate attention-seeking prowess, the proud legacy of professional neglect and ineffective HR practice. Obviously, my options were limited to the pocket-sized grain of rationality that hadn't yet been completed consumed by the creeping anxiety of being fired in some dramatic shootout in the carpark, so I had to think fast.
+
+ fit with enough connective fibre to meet Ethiopia's anal porn needs
 
 immaculately programming you
 
