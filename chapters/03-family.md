@@ -35,7 +35,7 @@ Thankfully, she was getting old. Her greying hairs now dominating her futile att
 
 ## Scene 1 END
 
-#
+---
 
 ## Scene 2 START
 
@@ -104,7 +104,7 @@ Something had changed in her. The moment had arrived. In an incredulous panic of
 
 ## Scene 2 END
 
-#
+---
 
 ## Scene 3 START
 

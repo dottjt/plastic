@@ -31,7 +31,7 @@ The only person who didn't quite seem so dejected was Milo, who leaning back in 
 
 "Very funny," I noted in extreme caution, knowing full-well that there was a 1 in 10 chance that her flirtatious actions could result in a round of heated bathroom sex, unfortunate for the disabled sod in a 60s' wheel chair holding on for dear life to the ambient noise of sexual wear n' tear.
 
-"A candy confectionary company for human pets", states the first h1 element of our serverless website, hand-crafted in pure HTML by some orange-back. 
+"A candy confectionary company for human pets", states the first h1 element of our serverless website, hand-crafted in pure HTML by some orange-back.
 
 
 "What's up with everyone? It seems a bit tense out there. You didn't attack some poor girl in the toilets again, did you?"
@@ -42,7 +42,7 @@ Milo looked at me with wide-open eyes, tautologically drawing the outline of my 
 
 ## Scene 1 END
 
-#
+---
 
 ## Scene 2 START
 
@@ -72,7 +72,7 @@ THe room was so small you'd thought you were
 
 ## Scene 2 END
 
-#
+---
 
 ## Scene 3 START
 

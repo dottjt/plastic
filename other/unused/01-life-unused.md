@@ -35,7 +35,9 @@ Catching him off guard, now that I was fully disinterested in anything he had to
 
 At one point, I was convinced he was trying to sell me a phone plan, subtle in the dubious hints of unintelligible sign language his fingers deliberated in submissive resolution. Outweighing all logical possibility,
 
-Only to be complemented by the corduous stench which leaked from the mangled pipes from within the ceiling above. A welcome blessing to the establishment of fine-dine publishing, thankfully contained within the four walls of this room. The curse and downfall of a 70s' decor filled to the brim with unwashed tupperware and plastic varnish, tainted by a sickly yellow synthesis oozing itself from the congregation of fake Tulips situated to the north of the perimeter, coalescing in satanic droves into the decrepit atmosphere of the dimly lit room. All while providing just enough grim to keep the magic of creativity from harming the integrity of publishing itself.
+Only to be complemented by the corduous stench which leaked from the mangled pipes from within the ceiling above. A welcome blessing to the establishment of fine-dine publishing, thankfully contained within the four walls of this room.
+
+<!-- The curse and downfall of a 70s' decor filled to the brim with unwashed tupperware and plastic varnish, tainted by a sickly yellow synthesis oozing itself from the congregation of fake Tulips situated to the north of the perimeter, coalescing in satanic droves into the decrepit atmosphere of the dimly lit room. All while providing just enough grim to keep the magic of creativity from harming the integrity of publishing itself. -->
 
 dearly hoping it would kill me before rendering me entire paralysed from the waist down.
 

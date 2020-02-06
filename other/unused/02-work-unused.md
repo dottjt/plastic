@@ -86,3 +86,11 @@ At least in my mind, every romance was a mirage. I suspected most women were sus
 
 
 And below the logo, on
+
+alieu in a blitzkrieg of dirty thoughts and deranged requirements.
+
+my two opposable thumbs springing spastic in a jovial haste of pittered discretion.
+
+Decidedly leaving the situation as soon as my legs would allow me,
+
+My legs decidedly
