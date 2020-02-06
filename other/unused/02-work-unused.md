@@ -62,6 +62,8 @@ imprint to the segregation our society loves to weep
 
 # part-2
 
+laid what was known to it's employees as the Machine of Profit™
+
 drenched in a cake of warm semen and indecent sweat. Mortal indecency sopping in the crimes of a sex-offender.
 
 I was a creep and a saboteur, and there was little I could do about it.
