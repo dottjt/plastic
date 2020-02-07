@@ -94,3 +94,5 @@ my two opposable thumbs springing spastic in a jovial haste of pittered discreti
 Decidedly leaving the situation as soon as my legs would allow me,
 
 My legs decidedly
+
+surrounded by a variety of nouveau contemporary portraiture,
