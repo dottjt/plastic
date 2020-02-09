@@ -35,7 +35,7 @@ I decided to reach for the mug o' water conveniently placed next to the picture 
 
 ## Scene 1 END
 
----
+####
 
 ## Scene 2 START
 
@@ -69,7 +69,7 @@ The muted Tudor frizzle of the dilapidated walls enclosing the Chinese palace (s
 
 ## Scene 2 END
 
----
+####
 
 ## Scene 3 START
 
@@ -119,7 +119,7 @@ For bare moment we both stared at each other like an opposing pack of hyenas, re
 
 ## Scene 3 END
 
----
+####
 
 ## Scene 4 START
 

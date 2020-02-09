@@ -2,7 +2,7 @@ const fse = require('fs-extra');
 
 const {
   generatePage,
-  stringFromArray,
+  // stringFromArray,
 } = require('./util');
 
 const generateBook = async () => {
@@ -15,12 +15,13 @@ const generateBook = async () => {
   ]);
 
 
-  const website_content_array = [
-    // CHAPTERS
-    chapters.string,
-  ];
+  // const website_content_array = [
+  //   // CHAPTERS
+  //   chapters.string,
+  // ];
 
-  fse.outputFileSync(`ebook/book.md`, stringFromArray(website_content_array));
+  // fse.outputFileSync(`ebook/book.md`, stringFromArray(website_content_array));
+  fse.outputFileSync(`ebook/book.md`, chapters.string);
 };
 
 generateBook();

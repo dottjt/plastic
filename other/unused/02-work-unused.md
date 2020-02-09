@@ -1,5 +1,6 @@
 # 02-work.md
 
+
 Mornin' coffee. Mornin' wank. Mornin' grain.
 
  as it cries idly by in native tongue
@@ -31,6 +32,8 @@ Well, it was more of an immediate obsession than it was a simple acknowledgement
 North vs South in a diluted battle of makeshift terms, fuzzy in the lack of genuine discourse being discussed amongst the various allies of tongue and cheek.
 
 , given it was past lunch time and I'd decided not to even bother showing up to work to begin with. Especially since I knew my boss was going to be away, if not out of chance, just like he'd been for most of my child and adult life. Maybe that explained my erratic behaviour and desperate attention-seeking prowess, the proud legacy of professional neglect and ineffective HR practice. Obviously, my options were limited to the pocket-sized grain of rationality that hadn't yet been completed consumed by the creeping anxiety of being fired in some dramatic shootout in the carpark, so I had to think fast.
+
+
 
  fit with enough connective fibre to meet Ethiopia's anal porn needs
 
@@ -68,6 +71,8 @@ drenched in a cake of warm semen and indecent sweat. Mortal indecency sopping in
 
 I was a creep and a saboteur, and there was little I could do about it.
 
+, so the idea of surrounding myself in the politics of youth put a fluff
+
 "A candy confectionary company for human pets", states the first h1 element of our serverless website, hand-crafted in pure HTML by
 
 A custom wood finish with a bit of slut.
@@ -96,3 +101,21 @@ Decidedly leaving the situation as soon as my legs would allow me,
 My legs decidedly
 
 surrounded by a variety of nouveau contemporary portraiture,
+
+in a vicious zest of a tentative survival, \\
+
+Brewing within the on-going tension between the orange-backs and blue-backs,
+
+Together with the Orange-backs, they worked tireless to ensure that the profit ran aflush, and their chains remained well-lubricated for the .
+
+suffocating the office in a ream of travesty
+
+from last year's #excite conference, ironically the most boring 2-day retreat any single person could have ever experienced,
+
+within a 10 minute smoko.
+
+. Oh, what am I even saying. When was it home time?
+
+A thought in time, devilishly recuperated within a 10 minute smoko which clearly got waaaayyy out of hand. It's
+
+to be devilishly recuperated
