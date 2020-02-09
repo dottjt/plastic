@@ -16,10 +16,10 @@ const fancyBreakString = () => `
 
 const getHead = (fileContents) => {
   try {
-    const headRegex = new RegExp(/####(.|[\r\n])+####/);
+    const headRegex = new RegExp(/---(.|[\r\n])+---/);
     const head = fileContents.match(headRegex)[0];
 
-    const rawWithHTMLContent = fileContents.split('####')[2];
+    const rawWithHTMLContent = fileContents.split('---')[2];
 
     const content =
       rawWithHTMLContent

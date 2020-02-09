@@ -62,6 +62,8 @@ Peter was an alcoholic.
 
 - The stock market crashes and the character loses their job. Hangs out with Milo and gets very drunk.
 
+- Maybe he can't cum?
+
 ###  night.
 
 - It's late at night. Describe their observations as he walks towards the city.

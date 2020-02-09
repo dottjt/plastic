@@ -1,9 +1,8 @@
 # 02-work.md
 
-
 Mornin' coffee. Mornin' wank. Mornin' grain.
 
- as it cries idly by in native tongue
+as it cries idly by in native tongue
 
 the fabled black problem.
 
@@ -106,7 +105,7 @@ in a vicious zest of a tentative survival, \\
 
 Brewing within the on-going tension between the orange-backs and blue-backs,
 
-Together with the Orange-backs, they worked tireless to ensure that the profit ran aflush, and their chains remained well-lubricated for the .
+Together with the orange-backs, they worked tireless to ensure that the profit ran aflush, and their chains remained well-lubricated for the .
 
 suffocating the office in a ream of travesty
 
@@ -119,3 +118,23 @@ within a 10 minute smoko.
 A thought in time, devilishly recuperated within a 10 minute smoko which clearly got waaaayyy out of hand. It's
 
 to be devilishly recuperated
+
+# part-3
+
+for methylated individuals
+
+around in small lurches
+
+in a stretch of lavish joy, each
+
+and I was nothing more than a desperate pile of pre-war matchsticks, excited to be struck into a flicker of puff.
+
+during a live performance of Romeo and Juliet or
+
+She wasn't wrong. I could get at least 800 quality words done during my lunch break and another 3,000 words if I happened to have the flu that day. I'm sure faking cancer would haved allowed me at least another month worth of sick days to complete my second novel.
+
+, like trying to tee a golf ball inside a glass dome. Was
+
+, like trying to tee a golf ball inside a glass dome. Was  I still wasn't quite sure what even happened in those moments. I was both glad and sad. A glasim, if you will.
+
+, battered in the light consistency of a French dough. Perhaps she shared the same feelings that I had for her. Perhaps she had simply broken down. I wasn't quite sure, but it still made me hard.
