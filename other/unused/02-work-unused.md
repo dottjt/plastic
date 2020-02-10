@@ -1,10 +1,12 @@
 # 02-work.md
 
-Mornin' coffee. Mornin' wank. Mornin' grain.
+A universal craving without a suitable name. A crap-stick unhinged.
+Craving your expedition without a suitable name.
 
 as it cries idly by in native tongue
 
 the fabled black problem.
+This week's perfect solution to the rampant "black" problem.
 
 place my finger firm on the trigger, emptying
 
@@ -14,7 +16,6 @@ an event which had spawned an all-out war between my brain and my stomach.
 
 Margarine's tainted folly digs it's five-inch heels firmly into your hardened arteries, as you attempt to pry the concrete from your eyes with a miniature pickaxe at 5:20am in the morning.
 
-Margarine's tainted folly of hardened bliss.
 
 Mesmerisingly subterranean,
 
@@ -32,19 +33,13 @@ North vs South in a diluted battle of makeshift terms, fuzzy in the lack of genu
 
 , given it was past lunch time and I'd decided not to even bother showing up to work to begin with. Especially since I knew my boss was going to be away, if not out of chance, just like he'd been for most of my child and adult life. Maybe that explained my erratic behaviour and desperate attention-seeking prowess, the proud legacy of professional neglect and ineffective HR practice. Obviously, my options were limited to the pocket-sized grain of rationality that hadn't yet been completed consumed by the creeping anxiety of being fired in some dramatic shootout in the carpark, so I had to think fast.
 
-
-
  fit with enough connective fibre to meet Ethiopia's anal porn needs
 
 immaculately programming you
 
-This week's perfect solution to the rampant "black" problem.
-
-
 in it's surreal propagation of pus and confetti
 
 I mean, can you even taste the salt in the air? It's everywhere. In my eyes. My lungs, oh those poor little lungs of mine. It's a bit like trying to breathe without the glamour of knowing where exactly the oxygen is coming from. Perhaps that's just how we do it here in Cattle Country, remise to the steak you gorge on and hoard. An excellent place to adore, as well as ignore, all kinds of pertinent squalor; the same kind you so profess as professional gold. Your rough heart creates many.
-
 
 intense with the fervour of an over-cooked bucket of ravioli slosh,
 
@@ -64,7 +59,18 @@ imprint to the segregation our society loves to weep
 
 # part-2
 
+The orange-backs maintained the Machine of Profit™. They were hardened loyalists with an obsessive personality, fanatic in their pursuit for operational perfection. They documented, studied and lauded over every single aspect of the Machine of Profit™ in an entire library full of arcane functions. Tested and praised for their striking simulation of reality. They were thrifty scavengers with a gifted sense of time, known to survive for weeks on end without nourishment, readied in travelled groves to suckle the moisture from their weary foes. An ability which allowed them to work for days on end without even a puddle of coy to contrive. An introverted cog of divine certification and befuddled self-esteem, they where the ultimate servants to the establishment, vaticinal in their ability to optimise even the most basic of algorithms. Lead by a pale autistic child who bore tiny little keyboards for fingers, the child went as far as to have his frail body fused into the Machine of Profit™ itself, dependent upon it's operation for his survival. Known to orange-backs as the Son of Machine™.
+
+The blue-backs on the other hand were the very source of the Machine of Profit™ itself. Privileged emissaries whom kept it's precious profits flowing in a ritual sacrifice known as the accordance. At the precise dot of every hour, two blue-backs would be chosen from the chantry by the High Priest of Profit™, to have their wrists simultaneously slit on a bright ivory carpet to provide margin to the ever-growing profit flowing from the machine's glowing aura of surfeit. Their naked bodies, stripped of all necessity and rubbed with a diamond cordite, were to be fed into the machine and mashed into a viscous chenille collagen, stamped and compressed to form company credits. A beautiful death in the eyes of the communion, it was the sole duty of the blue-back to churn and be churned; their cheer awash with the twady vigour which kept their faces in deep attention with the profit which made them whole.
+
+
+They were thrifty scavengers with a gifted sense of time, known to survive for weeks on end without nourishment, readied in travelled groves to suckle the moisture from their weary foes. An ability which allowed them to work for days on end without even a puddle of coy to contrive.
+
+
+
 laid what was known to it's employees as the Machine of Profit™
+
+Gargled in peculiar trite.
 
 drenched in a cake of warm semen and indecent sweat. Mortal indecency sopping in the crimes of a sex-offender.
 
@@ -113,11 +119,18 @@ from last year's #excite conference, ironically the most boring 2-day retreat an
 
 within a 10 minute smoko.
 
+of grandoise pomposity
+
 . Oh, what am I even saying. When was it home time?
 
 A thought in time, devilishly recuperated within a 10 minute smoko which clearly got waaaayyy out of hand. It's
 
 to be devilishly recuperated
+
+ Another blurred line to pretend or squander. Prolactin's elongated title. Profit's wallace grim. Here is where it gets tricky.
+
+I'll try to fill in the rest.
+Allow me to explain.
 
 # part-3
 
@@ -138,3 +151,19 @@ She wasn't wrong. I could get at least 800 quality words done during my lunch br
 , like trying to tee a golf ball inside a glass dome. Was  I still wasn't quite sure what even happened in those moments. I was both glad and sad. A glasim, if you will.
 
 , battered in the light consistency of a French dough. Perhaps she shared the same feelings that I had for her. Perhaps she had simply broken down. I wasn't quite sure, but it still made me hard.
+
+The company's longest serving employee, he was
+
+on a bright ivory carpet
+
+now discoloured in a murky shade of blood
+
+stripped of all necessity and rubbed with a diamond cordite, were
+
+befuddled in their self-esteem.
+
+handling itself inside the dopamine-sized pockets bursting with elation inside my head; a cobble along the square palazzi of choice I dabbled.
+
+
+
+cobbled along a square palazzi of choice
