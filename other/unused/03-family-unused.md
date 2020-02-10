@@ -18,7 +18,7 @@ the thick insoluble clay,
 
  of the land which hadn't quite bucked the trend.
 
-
+for father's
 
 The Chair.
 
@@ -28,11 +28,18 @@ I kicked her off her chair. Obviously, presumptuous of me
 
 A dash of agent orange and a provocative
 
+taint to the mistress currently tying your illegible wife to a makeshift torture device as she fires holy incense into the deepest parts of her clitoris.
+
 Next minute you're dashing down the street, holding a laptop in one hand with a sandwich in the other, kickin' the leash of glory to
 
 And yet the great thing about lust is that your odds increase dramatically the more you roll the dice, candid in the biological defects you harbour like tainted margarine spread.
 
 Is the face clean?
+
+
+
+
+. Fortifying the monstrous structures which littered the landscape, built from Communist Party exuberance,
 
 
 Legs like bones.
