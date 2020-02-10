@@ -22,6 +22,8 @@ for father's
 
 The Chair.
 
+In this ten-part series we will be demonstrating how you, an aspiring middle-aged Asian man, can also bring down the average to a bare minimum. Here's you. A loser with no status. Now here's the pyramid of Chinese desires,
+
 I kicked her off her chair. Obviously, presumptuous of me
 
 , perked upright like a racist pantomime piece of shit.
@@ -48,4 +50,9 @@ Legs like bones.
 
 The agoni
 
+
+
+
+
+of what I was witnessing through the winter smog.
 

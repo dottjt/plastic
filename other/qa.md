@@ -2,9 +2,12 @@ How to Kill a Chinaman
 
 # Brief description?
 
-The story is about a sick, deranged, mentally-ill young man. The story is told through the thoughts and observations of the main character, which reflect his hyperbolic imagination of fantasy sex and crushing cynicism. The story begins with the main character meeting with an editor, in a quest to get his book published. The overarching plot however reveals a suicidal descent into destitution. The character ends up disowning his family. Breaking up with his lover. Losing his job. Before leading to an untimely drug overdose.
+The story is about a sick, deranged, mentally-ill young man. The story is told through the thoughts and observations of the main character, which reflects his hyperbolic imagination of fantasy sex and crushing cynicism. The story begins with an interaction with the main character and an editor, in a quest to get his book published. The overarching plot however reveals a suicidal descent into destitution. The character ends up disowning his family. Breaking up with his lover. Losing his job. Before leading to an untimely drug overdose.
 
-Ultimately, there are two themes. It intends to be an incredibly graphic, sexual and violent foray into what it means to be an Asian person growing up in Western society. I also wanted the novel to represent a full cycle of bipolar mania, from beginning to finish.
+Ultimately, there are two themes. It intends to be an incredibly graphic, sexual and violent foray into what it means to be a Chinese person growing up in Western society. I also wanted the novel to represent a full cycle of bipolar mania, from beginning to finish.
+
+Please keep in mind that this book is highly controversial.
+perhaps beyond which can be published.
 
 <!--
 The story is told through the thoughts and observations of the main character, who is never truly revealed. The only character with a name is his love interest, Milo. Only a fraction of his thoughts actually describe what is taking place in each scene, both in terms of what he is feeling as well as what is actually happening. Instead, a vast majority of his commentary paints a broken fantasy land of extreme hyperbolic tension and crushing cynicism. It is an incredibly graphic, sexual and violent foray into what it means to be an Asian person growing up in Western society. -->

@@ -26,7 +26,9 @@ const getHead = (fileContents) => {
       .replace(/\#\#\#\#/g, fancyBreakString())
       .replace(/\#\#\# [\S ]+/g, '')
       .replace(/\#\# [\S ]+/g, '')
-      .replace(/<!--[\s\S]*?-->/g, '')
+      // .replace(/<!--[\s\S]*?-->/g, '')
+      .replace(/(?=  <!--)([\s\S]*?)-->/g, '')
+
 
     return {
       head,

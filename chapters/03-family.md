@@ -17,13 +17,12 @@ I always wondered if I'd have a piece of this one day, as I stared out of the tr
 
 ### Describe Rich Chinese
 
--->
-
-The 21st Century Asian was a fickle creature which did not need what it saw, and only wanted what it had been told. A Hollywood bonanza of Western desires, trained inside an inferiority complex constructed since birth. In this ten-part series we will be demonstrating how you, an aspiring middle-aged Asian man, can also bring down the average. At the pyramid of the chain was the White Mercedes Benz, a status of council for lonely asian man in grey overalls. Spread legs wide around a plate of Hungrarian cheese, slopped around the mouth with a dollop of hoisin sauce.
+The 21st Century Asian was a fickle creature which did not need what it saw, and only wanted what it was told. A Hollywood bonanza! of Western desires, labored inside a steel-reinforced inferiority complex constructed since birth. A base-model Mercedes Benz masked by the smell of a daughter's fetus, baked in the backseat on a hot summer's day. A council of status for the grey Asian men stalking the streets with a lead pipe and a desire for hard liquor. Wifebeater on. Military haircut engaged. Cigarette in ear. Toothpick in hand. Teeth in gangrene. Legs spread wide around a plate of Hungrarian cheese, slopped around the mouth with a dollop of hoisin sauce. A walking, high-rise anatomy of plastic duty, paid in sex and cheap dinner meals. Just like mother ordered when Chengkai Shek and his gang, kicked down her front doors and raped her in a yellow collective. Oh, how me so sorry.
 
 ### Approach the house
+-->
 
-As I approached the rickety gate of the unkept two-storey weatherboard estate, I couldn't help but notice the surreal cheapness of what I was witnessing through the winter smog. Succulents and cacti of every kind, retrofit into an assortment of smashed clay pots and scratched non-stick pans, braced along the newly-concreted driveway held together by particles of dust and refined palm oil, perfectly serene in it's chemical absolution. I'd never seen a guava tree before, this great monstrous shrub which shimmered upon the leaves of the tiny mandarin tree near the spralling gather of quaint sexual tension. Behind the house was the outline of the shed, an endless hoarders orgy of junk.
+As I approached the rickety gate of the unkept two-storey weatherboard estate, I couldn't help but notice the surreal cheapness of my witness. Succulents and cacti of every kind, retrofit into an assortment of smashed clay pots and scratched non-stick pans, braced along the newly-concreted driveway held together by particles of dust and refined palm oil, perfectly serene in it's chemical absolution. I'd never seen a guava tree before, this great monstrous shrub which shimmered upon the leaves of the tiny mandarin tree near the spralling gather of quaint sexual tension. Behind the house was the outline of the shed, an endless hoarders orgy of junk.
 
 I quietly slipped in through the backdoor in hopes of avoiding her entirely, knowing deep-down inside that it was merely postponing the primitive courage required to deal with the barrage of not-quite-disappoint which was certain to come my way.
 
