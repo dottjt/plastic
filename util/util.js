@@ -68,7 +68,8 @@ const generatePage = async folder => {
     const folder_files = await fse.readdir(`${folder}`, 'utf8');
     const include_files = [
       // '01-life.md',
-      '02-work.md'
+      // '02-work.md',
+      '03-family.md',
     ];
 
     const filtered_folder_files = folder_files.filter(file => (

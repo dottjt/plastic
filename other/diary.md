@@ -1,5 +1,7 @@
 # diary.
 
+10/02/2020 - I've tackled most of the 2nd chapter in terms of how I want it edited. It's still a little rough near the end, but that's cool. It is what it is, and I'll be going over it later, certainly. It was a hard slodge, but that's okay. Writing a novel is inevitably a long process. Starting chapter 3, hopefully I can have it completed/edited by the 1st of March. That would be awesome.
+
 01/02/2020 - Finally, I'm back into the swing of it. The Reade is back bby! Making good progress on the book, but more importantly, I've discovered the intent/purpose of the book. I am creating Chinese-counter culture.
 
 29/01/2020 - I'm beginning to get close to finalising the 1st chapter. It's not 100% there yet, but I hope to continue working on it. I've also decided to restructure a lot of the chapters by documenting everything. Although extraneous, it will help tremendously in terms of being able to plan ahead with my writing. I think perahps that's why the first chapter was difficult because I didn't have oversight over the structure of it. I can tell this book has been affecting my mental health. Not because the subject matter, but the task of writing a book. The anxiety of completing it. The feeling of apathy. What ultimately matters is that each step I take towards constructing it, is one step closer towards my goal.

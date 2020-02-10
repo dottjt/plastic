@@ -1,10 +1,24 @@
 # 03-family.md
 
+Crunch n' sizzle, sqwark.
+
 three-year specialisation in self-hate
 
 The nauseous dog speaks.
 
 An OCD for sucking cock.
+
+A permanent residence for f
+
+the scratched-out glaze of
+
+Cinematics galore.
+
+the thick insoluble clay,
+
+ of the land which hadn't quite bucked the trend.
+
+
 
 The Chair.
 
@@ -26,3 +40,5 @@ Legs like bones.
 "There's something about these plane seats that absolutely adore me," sparkles the anxious broad sitting besides me. Unable to match her intensity, I opt to imagine what she's wearing underneath the crumb-infested disgrace of a blouse.
 
 The agoni
+
+

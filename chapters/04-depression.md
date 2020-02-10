@@ -73,6 +73,8 @@ I loved cam girls. I mean, that's what they were there for. To be believed. To b
 I mean, I would never pay for them, but I would willing give myself up to them.
 As I
 
+
+
 I would go as far as to write erotica for them.
 
 I came into my hands, cusping the overflowing semen in the rim of my index finger. Then I reach for the tissue to clean up the mess. It was the same routine of glue and bleached tree wafer, scrumped into a ball and buried deep underground to be turned into fossilised shame. I always wondered if my addiction was a form of self-hate. A way to express how much I didn't like myself. I couldn't logically comprehend why I did it, but when your eyes are fixed on some blonde getting t-boned by two black men with a high school education, it turned you sour.
