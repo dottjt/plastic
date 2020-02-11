@@ -1,5 +1,7 @@
 # diary.
 
+11/02/2020 - Certainly, writing a book is no easy feat. It's just a long process, is all. But I guess that's what it's all about. An exhaustion of cavalier. 
+
 10/02/2020 - I've tackled most of the 2nd chapter in terms of how I want it edited. It's still a little rough near the end, but that's cool. It is what it is, and I'll be going over it later, certainly. It was a hard slodge, but that's okay. Writing a novel is inevitably a long process. Starting chapter 3, hopefully I can have it completed/edited by the 1st of March. That would be awesome.
 
 01/02/2020 - Finally, I'm back into the swing of it. The Reade is back bby! Making good progress on the book, but more importantly, I've discovered the intent/purpose of the book. I am creating Chinese-counter culture.

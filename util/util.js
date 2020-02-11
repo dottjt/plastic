@@ -8,6 +8,13 @@ const fse = require('fs-extra');
 //   return final_string;
 // }
 
+const include_files = [
+  // '01-life.md',
+  // '02-work.md',
+  '03-family.md',
+  // '04-depression.md',
+];
+
 const fancyBreakString = () => `
 <div style="display: flex; justify-content: center; align-items: center;">
   <img src="other/page_break_1.png" alt="page break" width="80" height="60" />
@@ -68,11 +75,6 @@ const extractData = (file_contents, file_name, type) => {
 const generatePage = async folder => {
   try {
     const folder_files = await fse.readdir(`${folder}`, 'utf8');
-    const include_files = [
-      // '01-life.md',
-      // '02-work.md',
-      '03-family.md',
-    ];
 
     const filtered_folder_files = folder_files.filter(file => (
       include_files.includes(file)

@@ -51,8 +51,7 @@ Legs like bones.
 The agoni
 
 
-
-
-
 of what I was witnessing through the winter smog.
 
+
+I'd never quite seen a guava tree so striking before, brooding in it's dendrils which bore the fruits of the Cordilleras. A great monstrous shrub which shimmered upon the leaves of the tiny mandarin tree suffocating adjacent near the spralling gather of bamboo. It was like witnessing

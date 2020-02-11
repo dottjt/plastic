@@ -7,9 +7,9 @@ description: "A short chapter about character's darker feelings, guilt he feels,
 
 ### Self-perceived reality - enthralling
 
-"Moderately entertaining." Tonight's obligations are being delivered pro rata in a cheerless harmony of ghee, as these subversive words drag themselves miserably along a serrated tarmac of circular needles and profane blather. Dead unlike the recurved skunk which lies on it's belly in the tall notched grass besides knurled quandary grasping at it's toes, sneaking itself scalloped into the vice of our dreams in a cheeky attempt to tell a misplaced joke about the inequality of ethically-sourced nuts. Victorian times, oh dear. The scant face behind the ceiling snarls in grave fashion, hushing at the feint tapper of lovely's past. "Does the knife hurt, sweetie? Can you feel it grasp at your pain? Do you need it slightly closer to the edge of your heart so you can satirise my maltreatment!?"
+"Moderately entertaining." Tonight's obligations are being delivered pro rata in a cheerless harmony of glee, as these subversive words drag themselves miserably along a serrated tarmac of circular needles and profane blather. Dead. Dead. Dead. Like the Dead Recurved Skunk, which lies on it's belly in the tall notched grass besides the knurled quandry grasping at it's toes. Sneaking itself scalloped into the vice of your dreams, cheeky in an attempt to tell a misplaced joke about the inequality of nuts. Victorian fashion. Oh dear. The scant face behind the ceiling snarls in grave fashion, hushing at the feint tapper of lovely's past. "Does the knife hurt, sweetie? Can you feel it grasp at your pain? Do you need it slightly closer to the edge of your heart so you can SATIRISE my maltreatment!?"
 
-I wasn't quite sure what to think of the haste pleasantries being thrown my way, unrecoverable in the thick unease permeating through my velvet angular plea. "My compliments to the chef", I thought rather aimlessly, as I poured myself another glass of wine, confining myself to the tight pre-occupied spaces of my mind, withdrawing my arrival from the world in a sudden snap of attention, embarking my riches into the fabulous nooks and crannies of insecurity's eroded retreat.
+I wasn't quite sure what to think of the haste pleasantries being thrown my way, unrecoverable in the thick unease permeating through my velvet angular plea. "My compliments to the chef!", I thought rather aimlessly, as I poured myself another glass of wine, confining myself to the tight pre-occupied spaces of my mind. A fallous attempt to withdraw my arrival from the world, where in a sudden snap of attention, I decide to embark my riches into the fabulous nooks and crannies of insecurity's eroded retreat. Cyclical cycle. Delicious tampon.
 
 "Yes, sour grapes make a chaffy treat," as the tip of my nose comes in close contact with the vast sea of wine in my glass, tipping ever-so slightly onto the pit-patter of the Crimean rug below. A delicate spine hunches over it's desk without query, examining the shades of misconfigured lamp along the damp, cold walls supporting it's fine trepidation into literary foray. Sheets of paper describing mounds of ill-defined taste, blooming into a river of non-fluent diaspora. There's something disturbing, something brewing in my mind, infecting my neurons with an uncanny chatter - musing over the wrinkles and follicles leeching from my face and into my skin.
 
@@ -97,6 +97,8 @@ I came into my hands, cusping the overflowing semen in the rim of my index finge
 
 Everyone learns to love the plastic dragon. The way it chokes you by the throat and
 
+
+I cover my eyes with my hands. A white-ish blue. I suppose it had meaning.
 
 ### Buys a gun
 
