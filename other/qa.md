@@ -22,6 +22,8 @@ How to Kill a Chinaman is delicate construction of hard-hitting counter-culture 
 
 The book is a reflection of the slow degredation of a Chinese man attempting his best to copie in Western society. The title may also been seen as a reflection of the character's self-worth; a person worth dying. It doesn't intend to be a statement against China. It intends to be a statement against the individual.
 
+It also resembles a rejection of ethnicity. The killing of one's own ethnicity. 
+
 # What are some of the central themes of the novel?
 
 In essence, this is a novel about bipolar disorder. The first half of the novel describes the depression and the downfall and the second half of the novel describes the ascent.

@@ -55,3 +55,16 @@ of what I was witnessing through the winter smog.
 
 
 I'd never quite seen a guava tree so striking before, brooding in it's dendrils which bore the fruits of the Cordilleras. A great monstrous shrub which shimmered upon the leaves of the tiny mandarin tree suffocating adjacent near the spralling gather of bamboo. It was like witnessing
+
+
+slather and pre-historic
+
+
+# part-2
+
+ as a gentle introduction to the world of shadows.
+
+along with mi with thousands of other neglected children,
+
+Playful funbags for our deluded femininity to simulate, in an online community of neglected children with extremist ideals.
+
