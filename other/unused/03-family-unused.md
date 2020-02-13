@@ -68,3 +68,5 @@ along with mi with thousands of other neglected children,
 
 Playful funbags for our deluded femininity to simulate, in an online community of neglected children with extremist ideals.
 
+
+ Twisted fundamental truths, which would allow to you to twirl your ego for hours on end,
