@@ -62,6 +62,8 @@ slather and pre-historic
 
 # part-2
 
+You see, kids like me didn't have mothers. We had computer screens.
+
  as a gentle introduction to the world of shadows.
 
 along with mi with thousands of other neglected children,
@@ -70,3 +72,16 @@ Playful funbags for our deluded femininity to simulate, in an online community o
 
 
  Twisted fundamental truths, which would allow to you to twirl your ego for hours on end,
+
+
+pornographic titillation
+
+  Now attempting to surmount a mammoth-sized strap-on onto your child-sized knee, in order to satisfy your quench for cradled inclusion.
+
+To be laced with paranoia and chewed with hestitation.
+
+Covered in the auspices of your own bed-ridden shame. Burnt fingers like bleached popsicles. Correctively at ease. Waxing in glee.
+
+the broken  mirror and face your own reality.
+
+on the greasy cover of a used Playboy
