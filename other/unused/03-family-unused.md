@@ -85,3 +85,12 @@ Covered in the auspices of your own bed-ridden shame. Burnt fingers like bleache
 the broken  mirror and face your own reality.
 
 on the greasy cover of a used Playboy
+
+
+like a maniac with two guns
+
+ let alone the auspices of your own bed-ridden shame.
+
+ let alone the auspices of your own tepid papermache of shame
+
+ The vocabulary was your play-pen.
