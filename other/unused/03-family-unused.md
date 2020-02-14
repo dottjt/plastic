@@ -94,3 +94,10 @@ like a maniac with two guns
  let alone the auspices of your own tepid papermache of shame
 
  The vocabulary was your play-pen.
+
+A virtual casino of visual brilliance. A radical lucky-dip of laced panties and ripped bras. The way it teases and captures,
+
+
+Besides the table was a mosaic of childhood pictures and , stepelled
+
+pit of satanic translucence and hardened cum.
