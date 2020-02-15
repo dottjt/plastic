@@ -1,6 +1,8 @@
 # diary.
 
-11/02/2020 - Certainly, writing a book is no easy feat. It's just a long process, is all. But I guess that's what it's all about. An exhaustion of cavalier. 
+15/03/2020 - Finished most of the 3rd chapter, which is pretty awesome. The book, I think, gets easier the more you write it. I don't think I like the 2nd chapter all that much. It doesn't excite me, nor is it as well written as the 1st. I suppose they can't all be perfect.
+
+11/02/2020 - Certainly, writing a book is no easy feat. It's just a long process, is all. But I guess that's what it's all about. An exhaustion of cavalier.
 
 10/02/2020 - I've tackled most of the 2nd chapter in terms of how I want it edited. It's still a little rough near the end, but that's cool. It is what it is, and I'll be going over it later, certainly. It was a hard slodge, but that's okay. Writing a novel is inevitably a long process. Starting chapter 3, hopefully I can have it completed/edited by the 1st of March. That would be awesome.
 

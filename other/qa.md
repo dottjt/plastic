@@ -60,7 +60,11 @@ Ultimately the character is trying to prove that he's human. He wants that so ba
 
 I'm half Chinese, with a fairly traditional Chinese upbringing. I had to attend Saturday School, play an instruction, along with all that jazz. I have since disowned my mother. The main reason why I'm qualified to write this book is because I've been writing in this counter-culture style since I started my first blog at 14. Following a few years of experimenting with my writing style in the form of short essasy. Once I felt like I'd truly discovered my writing style, I then decided that I would have the maturity to write a novel.
 
+# Why is this book important?
+
+Because it is authentic. Because it is raw. Because it talks about very real topics which remain hidden in mainstream discourse, such as estrangement. 
+
 # What is my X-Factor as a writer?
 
-I'm not sure if it's a special ability, but I have this thing where I'm able to use words perfectly that I don't know the meaning of. Although I suppose it comes down to how I understand words. I treat them more as a feeling, rather than an understanding. I just intuitively know the context of what they're trying to convey, based on how they sound and how they make me feel. 
+I'm not sure if it's a special ability, but I have this thing where I'm able to use words perfectly that I don't know the meaning of. Although I suppose it comes down to how I understand words. I treat them more as a feeling, rather than an understanding. I just intuitively know the context of what they're trying to convey, based on how they sound and how they make me feel.
 

@@ -101,3 +101,24 @@ A virtual casino of visual brilliance. A radical lucky-dip of laced panties and 
 Besides the table was a mosaic of childhood pictures and , stepelled
 
 pit of satanic translucence and hardened cum.
+
+
+I didn't care to see her reaction, let alone acknowledge her
+
+
+
+I didn't care to see her reaction.
+ I'd transformed into a butterfly. I felt enummerably lighter than I did before. Calmer. More in control. At this point, I really didn't care about . For the first time in my entire life, I felt in-control.
+
+
+have prepared her for this moment.
+contending with
+
+She grabbed .
+
+
+Something had changed in her. The moment had arrived. In an incredulous panic of resounding fear, she runs for me. But I am not there. Her prize had disappeared from her grasp. From her far-reaching judgement.
+
+# part-3
+
+Fulfilled.

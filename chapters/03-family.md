@@ -71,38 +71,20 @@ Carrying back a bowl of rice, rested below a mixed variety of dried fish and roa
 
 ### Father
 
-Admittedly, I didn't know a lot about my father. He was more of a blur, than a curiosity. A seismic event which brought about my creation, that never really amounted to anything beyond day zero. A constant scapegoat for all my failures. I suppose it never really bothered me a great deal. It's hard to bother about something that's not there. No one to blame. No one to praise. A bad meal at a pub at Wednesday prices. A Madonna print without a genuine signature. Rather, I was my own father. My own role model. My own piece of shit to be moulded into a Cambridge English Dictionary of hysteric approximations, to be sold at fire sale prices to people who barely understood the value of language. Epithet. You. Shall.
+Admittedly, I didn't know a lot about my father. He was more of a blur, than a curiosity. A seismic event which brought about my creation, that never really amounted to anything beyond day zero. A constant scapegoat for all my failures. I suppose it never really bothered me a great deal. It's hard to bother about something that's not there. No one to blame. No one to praise. A bad meal at a pub at Wednesday prices. A Madonna print without a genuine signature. Rather, I was my own father. My own role model. My own piece of shit to be moulded into a Cambridge English Dictionary of hysteric approximations, to be sold at fire sale prices to people who barely understand the value of language. Epithet. You. Shall.
 
 "You need to find a partner! When you find partner!?", she blurts, fish-bone stuck between her two front teeth. Awaiting some kind of lengthly apology for my existence.
 
--->
+"I don't know," was how I usually responded to her antics. In most cases, I simply tried my best to transpose her complaints into a stream of white noise. Checkered waves of tampered dystopia, leaving my mind as quickly as they had entered. Inspite of my rapid-set cynicism, I'd always carried a sense of hope that one day she would change, and experience some sort of miasma of clarity that would completely flush her brain, and allow her to trutly understand how to severely unfuck the caged dwadiness of her own insanity. Instead, her mind seemed more liked a hotpot of sharpnel, forever combusting into ever-smaller pieces that would eventually seep into the insides of her lungs, and cause her to gaff in a choking fit of hardened-cum and arsenal currency exchange.
 
-"I don't know," was how I usually responded to her antics. In most cases, I simply tried my best to transpose her complaints into a stream of white noise, leaving my mind as quickly as it had entered. Inspite of my rapid cynicism, there was always a sense of hope that one day she would change. That she would experience some spark of clarity that would completely flush her brain out and allow her to trutly understand who she was. Instead, her mind seemed more liked a hotpot of sharpnel, forever combusting into ever-smaller pieces that would eventually seep into her lungs and cause her to gaff in a choking fit of hardened-cum and dollar change. Then it hit me. Again. There I was, suspended in time. My vision in plain view of the misery which had onset since birth. A rise of empowerment. Who even was this women, and why did I have to put up with her games? What power did she have over me, other than a commont title which existed only within the maxim confines of this room? What resulted was an inescapable pocket of hardened emotion, tumbling and forming under a tipsy dissonance of dichotomising refactor. Reconfiguring itself at even the slightest hint of opposition. The beat-down was real and the relegation was fraught.
+Then it hit me. The epiphany. The realisation. The stature. There I was. Suspended in time. My vision as plain as it had been since the onset of my birth. The rise of empowerment. The shore of distaste. Who even was this women, and who was I to put up with her garish games? What power did she have over me, other than the common title which she spruiked in confine and maxim? What resulted was an inescapable pocket of caked emotion, tumbling and forming under the tipsy dissonance of dichotomist refactor. Fraught with relegation, reorganising itself at even the slightest hint of opposition. The beat-down was real and I was ready to represent.
 
-"Do you not care!? Why are you so stupid!?" I couldn't take it anymore. I was going to do it. My gosh, I was actually going to do it. It was finally going to happen, and for the first time in life, I couldn't wait to see how she would respond. Ecstatic with a burst of infinite possibility, I stood up from my chair, and told my mother to fuck herself. The corresponding silence was deafening. She was speechless, and as she mentally scanned through the millions of backhanded compliments and off-putting phrases awash in her mind, nothing could assist her in rectifying the situation.
+"Do you not care!? Why are you so stupid!?" I couldn't take it anymore. The sound of her voice. The nature of her everything. I was going to do it. My gosh, I was actually going to do it, and for the first time in life, I was absolutely dying to see how she would respond. With an ecstatic grin, I stand up from my chair, point my finger at her face, and I tell her to go fuck herself.
 
+"Go fuck yourself," I shout.
 
-have prepared her for this moment. She was lost.
+It was the kind of statement which reverberated through the air, knocking down the ancient structures of tradition and trust which had been upheld for so long, that no one even quite knew what to do once they were gone. It even woke the helper up from his deep slumber, whom in a terrorised panic, ran towards the pantry and locked himself away in a shivering hiding. The corresponding silence was deafening. She was speechless. Nothing could assist her in rectifying the situation, as she mentally scanned through the millions of backhanded compliments and off-putting phrases awash in her mind. Realising there was nothing within her power which would allow to take control of this situation. She was lost. Buried alive under the height of her arrogance. Confusion which soon defaulted to anger, in a last-ditch attempt to save the empire which she'd fought so hard and for so long to maintain. An iron fist turned to rust. The weight of her ignorance, dissolving around my shoulders and setting me free. And as much as she wanted to scream and shout, the words simply wouldn't come out. A woman no more.
 
-
-
-And yet it felt as if the weight of her ignorance had finally dissolved from my shoulder,
-
-"That's it. I've had enough get fucked."
-
-
-
- I'd transformed into a butterfly. I felt enummerably lighter than I did before. Calmer. More in control. At this point, I really didn't care about . For the first time in my entire life, I felt in-control.
-
-
-
-She grabbed .
-
-"That's right, you fucking bitch. Go fuck yourself.
-
-### Mother turns
-
-Something had changed in her. The moment had arrived. In an incredulous panic of resounding fear, she runs for me. But I am not there. Her prize had disappeared from her grasp. From her far-reaching judgement.
 
 ## Scene 2 END
 
@@ -112,7 +94,11 @@ Something had changed in her. The moment had arrived. In an incredulous panic of
 
 ### Describe Suburbs
 
-Purple houses. Red parlours. Caracature crackers with an assortment of porous scars, silly with their dilly in this well sought-after town. The voice of a frail American approaches a caustic Chinese housewife, strapped with a yoga mat and a bottle of plum sauce lubricant, re-used from next door's shoot. Several cars arrive at the mansion. A camera crew and a giant dildo in the shape of a plastic dragon. The Shenzhen steel conglomeration were in for a real treat this year. Wild game, they called it. A royal competition where the wives of Communist Party leaders were wrapped inside a thick blanket of dyed red-ink, fucked with a Communist Party sponsored dildo and those that survived the 8-foot long dragon would be crowned winner, the ornament permanently lodged inside their vagina. The civility was bare, although I doubt they could have ever imagined it any other way. The pacing was off, for sure.
+Purple houses. Red parlours. Caricature crackers in an assortment of porous scars. Well sought-after delicacies with mini tasers for appetisers. The frail voice of an American senior approaches an ordinary Chinese housewife, strapped with a yoga mat and an aging bottle of plum sauce. Rubbed in the scent of the raw documents outlining his death will. The perfect aphrodisiac for any immigrant to begin gushing from their vagina in an unvoluntary orgasm known to kill. Paralysed in a shaking puddle of oriental discharge, eyes quivering beyond the human spectrum, overloaded with ejaculate. Pronounced dead at 1:21pm midday. Death from white privilege.
+
+-->
+
+Several cars arrive at an opulent mansion, garden decorated in a topiary mess of yellow dandelions and white pebble. Tennessee horticulture with a Chinese know-how. A camera crew appears from a grimey meat van, holding a giant metal dildo in the shape of a plastic dragon, caramelised in an aluminium canvas of scheduled statement. The family of the Shenzhen Steel Conglomeration were in for a real treat this year. Wild game, they called it. A royal competition where the wives of Communist Party leaders were shrouded in a craggy blankets stolen from the deased bodies of Japanese revolutionaries, to be fucked with a symbolic dildo. And those that survived the 8-foot long dragon would be crowned general secretary of their local party branch. With the ornament to be permanently lodged inside their vagina. The civility was bare, although I doubt they could have ever imagined it any other way. The pacing was off, for sure.
 
 ### Train Ride Back
 
