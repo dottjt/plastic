@@ -1,5 +1,25 @@
 # 03-family.md
 
+Nancy's squirt n' trickle.
+A dollop of father's facial cream.
+
+glory
+
+The 21st Century Asian was a fickle creature which did not need what it saw, and only wanted what it was told. A Hollywood bonanza! of Western desires, labored inside a steel-reinforced inferiority complex constructed since birth. A base-model Mercedes Benz masked by the smell of a daughter's fetus, baked in the backseat on a hot summer's day. A council of status for the grey Asian men stalking the streets with a lead pipe and a desire for hard liquor. Wifebeater on. Military haircut engaged. Cigarette in ear. Toothpick in hand. Teeth in gangrene. Legs spread wide around a plate of Hungarian cheese, slopped around the mouth with a dollop of hoisin sauce. A walking, high-rise anatomy of plastic duty, paid in sex and cheap dinner meals. Just like mother ordered when Chiang Kai Shek and his gang, kicked down her front doors and raped her in a yellow collective. Oh, how me so sorry.
+
+permanent
+
+Father's industrial-strength facial cream.
+A cinematic netherworld of tartarus condemnation.
+
+precipitating in the ooze of
+A permanent residence for f
+
+
+ A relative cum dumpster of fire and pre-maritime froth, precipitating in the ooze of father's industrial-strength facial cream.
+
+permanent
+
 Crunch n' sizzle, sqwark.
 
 three-year specialisation in self-hate
@@ -8,7 +28,11 @@ The nauseous dog speaks.
 
 An OCD for sucking cock.
 
-A permanent residence for f
+of . To be
+
+
+of thoughtful inhibition and spiritual resentment,
+ delivered in haste to the nearest street market vendor for a handsome sum.
 
 the scratched-out glaze of
 

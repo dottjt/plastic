@@ -1,5 +1,7 @@
 # Preface
 
+permanent residence to industrial-strength
+
 You may want to skip this preface.
 
 In part, because it explains the true intention of this book, which may either ruin the delivery and charm of these words, or perhaps enhance them to an extent of acceptance. I personally would argue that the outward misunderstanding I present forms a large part of the identity of this book, and so knowing less may in fact be desirable depending on your taste for the unpronounced.
