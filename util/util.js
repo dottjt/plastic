@@ -11,8 +11,8 @@ const fse = require('fs-extra');
 const include_files = [
   // '01-life.md',
   // '02-work.md',
-  '03-family.md',
-  // '04-depression.md',
+  // '03-family.md',
+  '04-depression.md',
   // '05-therapy.md',
   // '06-birthday.md',
 ];
