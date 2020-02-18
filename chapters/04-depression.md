@@ -16,32 +16,15 @@ Victorian mal-la-la-laise. Oh dear. The scant face behind the ceiling snarls in 
 
 It's apparent there's trouble. A whole defeated Skunk of trouble. A vial of fear, swallowed in whole. I am fear. I am vial. Afraid of the thought and the orient. Afraid of himself. Unrecognisable in his own flesh and blood. Torn straight from an antiquated book of whimsical lies, concocted with a magical staff of lyrical deception. The words. My pen. Our lies. It sighs. Goodbye. The glass is not real. The wine cannot be located. The desk has no form. I am alone in my room. Perched upon my bed. Contorted in writhe. Blanketed by a surreal emptiness that cannot be reasoned with. Mired in a vanishing falseness. A passing moment through the vast openness of time. Maintaining it's distance with your soul. It's ever-reaching permissiveness, offering genuine refuge. "Come with me," it whispers, holding your hand like an innocent child guiding you through a magical forest of fairies and otma. "I promise I don't bite." It's all-alluring connection, pinching you with a quaint slap of tactile aversion. A poor vulgarization of petty self-love, disguised as a romantic escapade into the cannular reverberations slamming your ear. Shut up and taste the blather. Hockey puck.
 
--->
-
-"What am I doing?", I wondered to myself. Depleted in my struggle. Enthralled by the gristle on my chin, scraping against the crumpled linen sheets shrouding the glob of human sinew supporting my disenchantment with the world. I look up from the below the covers and into the charm of my youth. 10:20am. That can't be good for the kidneys. The yupies are unimpressed. I will be sacrificed. My death, to be celebrated post-breakfast, in a world where celebrities are mere baristers. Sleep-deprived toddlers with an aggressive high school education. Merged into society like oxidised gum, found on the intangible underside of train station corridors. Clamoring for your attention. Hard n' gunky. Friday's mistake. I shake off the protruding dread with a muddy sigh, as I attempt to pull the sheets from under my body. It was no use. My arms had become inelastic planks of wood, sunk inside what had become a gelatine of goop. Dog shit cloaked in chocolate sprinkles. Enjoy the funk, cum daddy.
+I wondered to myself. Depleted in my struggle. Enthralled by the gristle of my chin, scraping against the crumpled linen sheets shrouding the glob of human sinew supporting my worldly disenchantment. I look up from the below the covers and into the charm of my youth. 10:20am. That couldn't have been good for the kidneys. The yupies are unimpressed. I will be sacrificed. My death, to be celebrated post-breakfast. My body, to be merged into society like oxidised gum, found on the intangible underside of a train station bench. A permanent waste to be clamored with rubber gloves. Hard n' gunky. Friday's mistake. I shake off the protruding dread with a muddy sigh, as I attempt to pull the sheets from under my body. It was no use. My arms had become planks, sunk inside the gelatine goop that was my resolve. I was liar.
 
 ### Talk about guilt
 
-Maybe I felt guilt over the way I treated my mother, my emotions still smack-bang in the middle of a vicious civil war. Anger, sadness, self-righteousness. Equally caught in a quaint requiem of on-going misery. Fumbling my way through the drull beat in my heart, all I could feel was my star-studded torso being pulled and ripped apart by the actions of my past. Sometimes, it feels like I'm granted permission to be an awful person. To express how little my emotions would allow me to feel and to become so absolutely consumed in hatred, to a point where my eyes would feel sore for days. I wasn't exactly sure why I hated my mother so much, but it felt so right, so integral to my experience as a human being. The pain. The judgement. The hurt which shoved it's precious little fingers into my gut. Yet it just was. My anger and my sorrow, nothing more than an immediate reaction to the tumor I recognised as a blight on this earth to excuse and
+Maybe I felt guilt over the way I treated my mother. Tidal in the equal parts anger, sadness and shame, stabbing me senseless in an abundant free-for-all of rape and violence. Trampling upon my ability to amend, engaging in a visicious civil war of pretend. A bloody triangle of equal equivalence, fumbling it's way through into the drull beat of my heart. Throbbing in a quaint requiem of on-going misery, ripping and pulling my star-studded torso with the actions of my past. Sometimes, it felt as if I granted myself permission to be an awful person. To express how little I could care as a human being. To allow myself to become so absolutely consumed in hatred, that it probably deserved it's own name. A hatred which was so certain in my own mind, yet so far from how I was feeling in this moment. I wasn't even sure why I hated my mother so much, only that I knew the pain and judgement that I felt from her was real. Some would say, alive. The hurt which shoved it's precious little fingers into my pie and left me vomitting all over myself in an episode of gastro. My anger and sorrow, nothing more than an immediate reaction to the tumor I recognised as a blight on this earth. I was the self-righteous donkey.
 
-It was a state of mind which my brain had defaulted to. Certainly, I believe that I always had this anger inside me, merely that I
+In a lot of ways, my overwhelming hatred for my mother was nothing more than a state of mind which my brain had been trained to default to. Like when a child sighs at the thought of doing homework, I simply wanted to use her face as a rake to comfort the rocks in my patio. Thankfully, these particular rocks have been known to contain abundant feng-shui, a detail I'm sure her face would delight. I pick myself up from my bed and make my way to the bathroom, poking the skin of my naked body in the shape of a pea. Gasping in front of the mirror. Short of breath. Hopelessly suffocating in what little I knew about myself. Faltering it's signal in overlapping patterns. Perhaps my body was attempting to physically cry. To express how little it wanted to live. Perhaps I'd simply feel better after a wake n' bake. Yeah. That's what I needed. It was time to degrade.
 
-Japanese AV models were the closest thing I ever had to a mother.
-
-
-### Existential Crisis
-
-I feel unadjusted. I feel unprepared for a life without meaning, though perhaps I'm simply unable to produce meaning without spreading my intellectual tar as a gift to the inconsequence slicing me open. It's a delicate buffet, so please dig in. An unpleasant feeling, a kind of surreal suffocation, that blinds me as welcomingly as it graces. I would happily equate it to grafting impure enamel into the soft edges of my eye-lids, allowing me to process what little conscious thought I have towards cultivating my dull insensitivity to .
-
-So here I am. It's post-cull and it's killing season. I have my rifle, my ammunition and as you can see, attached to my belt-buckle is the first kill for the afternoon. Unfortunately the fat-fuck couldn't waddle away fast enough to mummy's comfort, so I killed the entire family and here I am prodding away at a dead carcass with my great big fucking sword. Fuck you rabbit. Fuck you indeed.
-
-As I stare at my naked body in the front of the bathroom mirror, I found myself gasping. Short of breath. Hopelessly grasping at something I didn't quite know was there. Suffocating. Faltering in a muddled
-
-I wanted to feel.
-
-What did it mean to cope?
-
-Maybe I'd feel better after a wake n' bake. Yeah, that's what I needed. It was time to degrade.
+-->
 
 ## Scene 1 END
 
@@ -49,16 +32,15 @@ Maybe I'd feel better after a wake n' bake. Yeah, that's what I needed. It was t
 
 ## Scene 2 START
 
-
 ### Weed
 
-Fly away
+Smith's Crisps. The desk which swore. Disposable coffee cups form unions in a chain of dispute, protested in favour of improved recycle times. The overhead lamp brims a surly mustard haze, dribbling drabs of light across a landscape of twaddled fortunes. The allure of creep, infecting the wooden draw handles containing all sorts of grim. A plume of mould gathers .
 
-I safely kept my weed in a glass-jar amongst all the .
+Perhaps weed wasn't entirely necessary for my survival, although my brain didn't know otherwise. As far as it was concerned, drugs were an entirely necessary addition to my existence. Perhaps even compromising of my existence altogether. The insular hope which clouded my lungs and left me in a
 
+I don't remember when I first started smoking weed, only that it was an on-going weekend routine. First you gain sentience. Then you inhale. Then you develop consciousness. Ready to breakdown into the soil and 
 
-
-I always used a bong, made of a retrofitted gatorade bottle and cut government piping.
+I safely kept my weed in a glass-jar amongst all the , and I always used a bong. A modified Gatorade bottle, stitched together with cut government piping.
 
 
 Usually my plan was to buy as much as much junk as possible from the supermarket. We're talkin' .
@@ -99,7 +81,6 @@ I came into my hands, cusping the overflowing semen in the rim of my index finge
 ## Scene 3 START
 
 Everyone learns to love the plastic dragon. The way it chokes you by the throat and
-
 
 I cover my eyes with my hands. A white-ish blue. I suppose it had meaning.
 

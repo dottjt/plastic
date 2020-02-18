@@ -63,6 +63,7 @@ And yet the great thing about lust is that your odds increase dramatically the m
 Is the face clean?
 
 
+Japanese AV models were the closest thing I ever had to a mother.
 
 
 . Fortifying the monstrous structures which littered the landscape, built from Communist Party exuberance,

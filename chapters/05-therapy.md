@@ -52,6 +52,17 @@ It wasn't something you ever thought about.
 
 Truth is, the bitch had no idea what she was talkin' about.
 
+
+I wanted to feel.
+
+What did it mean to cope?
+
+
+I feel unadjusted. I feel unprepared for a life without meaning, though perhaps I'm simply unable to produce meaning without spreading my intellectual tar as a gift to the inconsequence slicing me open. It's a delicate buffet, so please dig in. An unpleasant feeling, a kind of surreal suffocation, that blinds me as welcomingly as it graces. I would happily equate it to grafting impure enamel into the soft edges of my eye-lids, allowing me to process what little conscious thought I have towards cultivating my dull insensitivity to .
+
+So here I am. It's post-cull and it's killing season. I have my rifle, my ammunition and as you can see, attached to my belt-buckle is the first kill for the afternoon. Unfortunately the fat-fuck couldn't waddle away fast enough to mummy's comfort, so I killed the entire family and here I am prodding away at a dead carcass with my great big fucking sword. Fuck you rabbit. Fuck you indeed.
+
+
 ## Scene 1 END
 
 ####
