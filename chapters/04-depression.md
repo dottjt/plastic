@@ -34,11 +34,11 @@ In a lot of ways, my overwhelming hatred for my mother was nothing more than a s
 
 ### Weed
 
-Smith's Crisps. The desk which swore. Disposable coffee cups form unions in a chain of dispute, protested in favour of improved recycle times. The overhead lamp brims a surly mustard haze, dribbling drabs of light across a landscape of twaddled fortunes. The allure of creep, infecting the wooden draw handles containing all sorts of grim. A plume of mould gathers .
+Smith's Crisps. The desk which swore. Disposable coffee cups form unions in a chain of dispute, protested in favour of improved recycle times. The overhead lamp brims a surly mustard haze, dribbling drabs of light across a landscape of twaddled fortunes. The allure of creep, infecting the wooden draw handles containing all sorts of grim. A plume of mould gathers around your arms, .
 
 Perhaps weed wasn't entirely necessary for my survival, although my brain didn't know otherwise. As far as it was concerned, drugs were an entirely necessary addition to my existence. Perhaps even compromising of my existence altogether. The insular hope which clouded my lungs and left me in a
 
-I don't remember when I first started smoking weed, only that it was an on-going weekend routine. First you gain sentience. Then you inhale. Then you develop consciousness. Ready to breakdown into the soil and 
+I don't remember when I first started smoking weed, only that it was an on-going weekend routine. First you gain sentience. Then you inhale. Gathering as much dopamine as humanly possible, to be dispersed into life as you please.
 
 I safely kept my weed in a glass-jar amongst all the , and I always used a bong. A modified Gatorade bottle, stitched together with cut government piping.
 
@@ -47,11 +47,13 @@ Usually my plan was to buy as much as much junk as possible from the supermarket
 
 Then I would purge so I could consume more. Admittedly I enjoyed the feeling of emptying my stomach. No matter what, you could always console in the fact that you were going to feel better afterwards. Purging was the ultimate cathartic
 
-I put on my headphones and
+I put on my headphones and we're gold again.
 
 
 
 ### Cam girl
+
+
 
 I loved cam girls. I mean, that's what they were there for. To be believed. To be loved. To provide some kind of
 
