@@ -14,6 +14,7 @@ Character - Cynical Hound.
 The Editor - Crazed Yuppie.
 Milo - Female Character.
 The Boss - Plain Asshole.
+The Neighbour - African, smart, perfect.
 The Friend - Weebo Chinese Kid. (Hans)
 The Mother - Asian Tiger Parent.
 The Helper - Submissive Helper.

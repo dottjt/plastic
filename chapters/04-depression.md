@@ -1,5 +1,5 @@
 ---
-title: "4."
+title: "depression."
 description: "A short chapter about character's darker feelings, guilt he feels, weed addiction, cam girl, buys a gun online."
 ---
 
@@ -20,7 +20,7 @@ I wondered to myself. Depleted in my struggle. Enthralled by the gristle of my c
 
 ### Talk about guilt
 
-Maybe I felt guilt over the way I treated my mother. Tidal in the equal parts anger, sadness and shame, stabbing me senseless in an abundant free-for-all of rape and violence. Trampling upon my ability to amend, engaging in a visicious civil war of pretend. A bloody triangle of equal equivalence, fumbling it's way through into the drull beat of my heart. Throbbing in a quaint requiem of on-going misery, ripping and pulling my star-studded torso with the actions of my past. Sometimes, it felt as if I granted myself permission to be an awful person. To express how little I could care as a human being. To allow myself to become so absolutely consumed in hatred, that it probably deserved it's own name. A hatred which was so certain in my own mind, yet so far from how I was feeling in this moment. I wasn't even sure why I hated my mother so much, only that I knew the pain and judgement that I felt from her was real. Some would say, alive. The hurt which shoved it's precious little fingers into my pie and left me vomitting all over myself in an episode of gastro. My anger and sorrow, nothing more than an immediate reaction to the tumor I recognised as a blight on this earth. I was the self-righteous donkey.
+Maybe I felt guilt over the way I treated my mother. A tidal disowning the equal parts anger, sadness and shame, stabbing me senseless in an abundant free-for-all of rape and violence. Trampling upon my ability to amend, engaging in a visicious civil war of pretend. A bloody triangle of equal equivalence, fumbling it's way through into the drull beat of my heart. Throbbing in a quaint requiem of on-going misery, ripping and pulling my star-studded torso with the actions of my past. Sometimes, it felt as if I granted myself permission to be an awful person. To express how little I could care as a human being. To allow myself to become so absolutely consumed in hatred, that it probably deserved it's own name. A hatred which was so certain in my own mind, yet so far from how I was feeling in this moment. I wasn't even sure why I hated my mother so much, only that I knew the pain and judgement that I felt from her was real. Some would say, alive. The hurt which shoved it's precious little fingers into my pie and left me vomitting all over myself in an episode of gastro. My anger and sorrow, nothing more than an immediate reaction to the tumor I recognised as a blight on this earth. I was the self-righteous donkey.
 
 In a lot of ways, my overwhelming hatred for my mother was nothing more than a state of mind which my brain had been trained to default to. Like when a child sighs at the thought of doing homework, I simply wanted to use her face as a rake to comfort the rocks in my patio. Thankfully, these particular rocks have been known to contain abundant feng-shui, a detail I'm sure her face would delight. I pick myself up from my bed and make my way to the bathroom, poking the skin of my naked body in the shape of a pea. Gasping in front of the mirror. Short of breath. Hopelessly suffocating in what little I knew about myself. Faltering it's signal in overlapping patterns. Perhaps my body was attempting to physically cry. To express how little it wanted to live. Perhaps I'd simply feel better after a wake n' bake. Yeah. That's what I needed. It was time to degrade.
 
@@ -34,7 +34,7 @@ In a lot of ways, my overwhelming hatred for my mother was nothing more than a s
 
 ### Weed
 
-Smith's Crisps. The desk which swore. Disposable coffee cups form unions in a chain of dispute, protested in favour of improved recycle times. The overhead lamp brims a surly mustard haze, dribbling drabs of light across a landscape of twaddled fortunes. The allure of creep, infecting the wooden draw handles containing all sorts of grim. A plume of mould gathers around your arms, .
+Abdula's Potato. A black papermache cable. The desk which swore. Rows of disposable coffee cups form unions in a chain of dispute, protested in favour of improved recycle times. The cameo floor lamp brims a surly mustard green, dribbling sautéed light across a landscape of twaddled fortunes. The allure of creep. Infecting the wooden draw handles containing all sorts of grim. A plume of mould gathers in presumptuous ways, .
 
 Perhaps weed wasn't entirely necessary for my survival, although my brain didn't know otherwise. As far as it was concerned, drugs were an entirely necessary addition to my existence. Perhaps even compromising of my existence altogether. The insular hope which clouded my lungs and left me in a
 
@@ -42,50 +42,15 @@ I don't remember when I first started smoking weed, only that it was an on-going
 
 I safely kept my weed in a glass-jar amongst all the , and I always used a bong. A modified Gatorade bottle, stitched together with cut government piping.
 
-
 Usually my plan was to buy as much as much junk as possible from the supermarket. We're talkin' .
 
 Then I would purge so I could consume more. Admittedly I enjoyed the feeling of emptying my stomach. No matter what, you could always console in the fact that you were going to feel better afterwards. Purging was the ultimate cathartic
 
 I put on my headphones and we're gold again.
 
-
-
-### Cam girl
-
-
-
-I loved cam girls. I mean, that's what they were there for. To be believed. To be loved. To provide some kind of
-
-I mean, I would never pay for them, but I would willing give myself up to them.
-As I
-
-
-
-I would go as far as to write erotica for them.
-
-I came into my hands, cusping the overflowing semen in the rim of my index finger. Then I reach for the tissue to clean up the mess. It was the same routine of glue and bleached tree wafer, scrumped into a ball and buried deep underground to be turned into fossilised shame. I always wondered if my addiction was a form of self-hate. A way to express how much I didn't like myself. I couldn't logically comprehend why I did it, but when your eyes are fixed on some blonde getting t-boned by two black men with a high school education, it turned you sour.
-
-. Why I stared at a screen
-
-### erotica excerpt
-
-
-
-
-
-
-
-## Scene 2 END
-
-####
-
-## Scene 3 START
-
-Everyone learns to love the plastic dragon. The way it chokes you by the throat and
-
-I cover my eyes with my hands. A white-ish blue. I suppose it had meaning.
+This was how men coped.
 
 ### Buys a gun
 
 ##
+

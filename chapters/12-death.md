@@ -60,9 +60,13 @@ I receive a text from an old acquaintance. Dealer. Badlands. Claims city. Fight 
 He rocks up in a stolen vehicle, licence plates removed from both rears. High on synthetic marijuana. Without a driver's licence to your name.
 
 
+
+
+
+
 ### Waiting at town
 
-
+I don't think I'd ever had synthetic weed before,
 
 ### Trickery - Bad Trip
 

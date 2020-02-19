@@ -133,6 +133,6 @@ We chatted casually about key deliverables on the elevator ride back up to the k
 
 The kaleidoscopic walls of the office building blended itself into a tangerine muse of teak stripes and amusing spaces, as I sludged my way back to our office area. Milo decided to pick up a coffee and a grin in the kitchen, her two modern staples which kept her regular. She stood there with her legs crossed, passing me a smile at me as we both waited for her coffe to brew. Hoping she wasn't secretly crumbling inside, ready to run outside and into on-coming traffic.
 
+And then there was tonight's arrangement. Another interpersonal hurdle to overcome in this delorian urchin of lavish joy. Hoot. Hoot. Ho.
+
 ## Scene 3 END
-
-

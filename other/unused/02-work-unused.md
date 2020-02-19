@@ -167,3 +167,13 @@ handling itself inside the dopamine-sized pockets bursting with elation inside m
 
 
 cobbled along a square palazzi of choice
+
+
+And then just as things couldn't have gotten any worse, I completely forgot about .
+
+
+
+Mesmerisingly subterranean, tonight's arrangement had just occurred to me. Fuck.
+
+
+Hopefully tonight's arrangement would be

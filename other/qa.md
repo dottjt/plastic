@@ -1,5 +1,24 @@
 How to Kill a Chinaman
 
+# Time and place.
+
+The story starts on a Friday.
+
+
+# Story overview?
+
+It's Friday midday. The story begins with the main character in a meeting with an editor, in order to get his book published. They eventually head to Chinatown for lunch, picking a restaurant called The Ming. They end up fighting over differences and the main character leaves.
+
+It's still midday and he has to return to work. He notices he doesn't have his work pass when he gets to work, which is when he bumps into his bipolar co-worker, Milo. He has a massive crush on her, but she's indifferent to everyone. He describes the workplace and the dynamics of his imagination. At lunchtime they have a cigarette together, which leads to her proposing a date to him. Although elated, he feels conflicted, because it felt forceful and as part of a bipolar episode.
+
+It's now after work, and he has to head to his mother's house for dinner. He explains his upbringing and issues with porn to the reader. Largely, he explains his hate for his mother. He has enough of her and decides to disown her. He goes back home, breaking down into tears.
+
+He wakes up the next day in a depression. A short chapter. He elaborates on his depression, the guilt he feels for his actions towards his mother. He then decides to go and smoke weed, and talks about his weed usage. He decides to go for a walk, where he bumps into his neighbour. A gorgeous African lady who 
+
+
+
+
+
 # Brief description?
 
 The story is about a sick, deranged, mentally-ill young man. The story is told through the thoughts and observations of the main character, which reflects his hyperbolic imagination of fantasy sex and crushing cynicism. The story begins with an interaction with the main character and an editor, in a quest to get his book published. The overarching plot however reveals a suicidal descent into destitution. The character ends up disowning his family. Breaking up with his lover. Losing his job. Before leading to an untimely drug overdose.
@@ -22,7 +41,7 @@ How to Kill a Chinaman is delicate construction of hard-hitting counter-culture 
 
 The book is a reflection of the slow degredation of a Chinese man attempting his best to copie in Western society. The title may also been seen as a reflection of the character's self-worth; a person worth dying. It doesn't intend to be a statement against China. It intends to be a statement against the individual.
 
-It also resembles a rejection of ethnicity. The killing of one's own ethnicity. Ultimately although I am half chinese, having been brought up a single Chinese mother, I fully identify with being Chinese. 
+It also resembles a rejection of ethnicity. The killing of one's own ethnicity. Ultimately although I am half chinese, having been brought up a single Chinese mother, I fully identify with being Chinese.
 
 Perhaps it also has to do with my upbringing.
 

@@ -1,6 +1,8 @@
 # diary.
 
-18/03/2020 - There have been various highs and lows. The family chapter was hard to write and edit from a technical point of view. It's still not 100% there, but it's relatively closer. Better to come back to it once I have a clearer mind over it. The depression chapter is both writing and editing very quickly. In part because it's not a complex chapter, which has any consequence on the narrative. It merely extrapolates the character and provides context to his life. What he does to cope with it all. 
+19/03/2020 - I had a fantastical dream. I bought a house with Jess. James' friend Aiden bought a house across the road. He hosts a party. Anyway, this girl across the street from the house is african and half chinese. She has a thing for me. She invites me into her apartment and it's covered in Screens. She's stalks me a bit. She wants me, even though I'm already in a relationship. I think she would be an excellent character to add to the book, since it's a little short of characters at the moment. 
+
+18/03/2020 - There have been various highs and lows. The family chapter was hard to write and edit from a technical point of view. It's still not 100% there, but it's relatively closer. Better to come back to it once I have a clearer mind over it. The depression chapter is both writing and editing very quickly. In part because it's not a complex chapter, which has any consequence on the narrative. It merely extrapolates the character and provides context to his life. What he does to cope with it all.
 
 15/03/2020 - Finished most of the 3rd chapter, which is pretty awesome. The book, I think, gets easier the more you write it. I don't think I like the 2nd chapter all that much. It doesn't excite me, nor is it as well written as the 1st. I suppose they can't all be perfect.
 
