@@ -1,6 +1,7 @@
 ---
 title: "family."
 description: "This chapter introduces reproduction, the Chinese suburbs, my mother, my porn addiction, our dinner, our difference, our conclusion, train ride home."
+day: "Friday."
 ---
 ## Scene 1 START
 
@@ -101,6 +102,6 @@ Several cars arrive at an opulent mansion, garden decorated in a topiary mess of
 
 Although I could feel myself gasping at the recklessness of my actions, lightheaded and without due, there was also something quite serene about the way my vision blurred with the tears in my eyes. Blinding me in a calm tingle of persistent, which to this day, has never quite left me. The suburban-bound train forced itself along it's motionless tracks, facilitating my barren attempt to simply shut down and remove myself from the world. Was I bad person? Did I even have a choice? It felt as if I was part of some kind of definitive cycle of madness, a recipient of psychopaths and manipulative low-lives, born out of a never-ending chain of bad parenting and dialectic abuse. I guess everyone wants to be 'the one' who breaks the cycle, and today was either an ill-fated deterministic attempt at sealing my own genes into a house boat of future divorce, or I was going to truly make it as a human reincarnation of the guilt which pervaded my blood-line for thousands, upon thousands of years.
 
-I closed my laptop and broke down in a tidal wave of emotion. Perhaps the lady sitting in front of me would be so kind as to offer her hand in sex, as we gently made love to each other in a sobbing pile of gleep. More realistically, she would continue to sit there, awkward at the attention I was drawing, before sending an unremorseful text to her partner about how unbearable her situation was, suggesting that they order pizza tonight to cope with the ramifications. For now it was just me and this brightly-lit space, alone in the repitition of my stomach seizing up and my nose feeling like a leaky tap of foreign medical waste. Now trapped inside my senses. I had tasted what it was like to be free.
+I recieve a text in broken English, lamenting her feelings. I delete it in anger, and yet the anger is too much. I close my laptop and break down in a tidal wave of emotion. Perhaps the lady sitting in front of me would be so kind as to offer her hand in sex, as we gently made love to each other in a sobbing pile of gleep. More realistically, she would continue to sit there, awkward at the attention I was drawing, before sending an unremorseful text to her partner about how unbearable her situation was, suggesting that they order pizza tonight to cope with the ramifications. For now it was just me and this brightly-lit space, alone in the repitition of my stomach seizing up and my nose feeling like a leaky tap of foreign medical waste. Now trapped inside my senses. I had tasted what it was like to be free.
 
 ## Scene 3 END

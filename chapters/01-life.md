@@ -1,6 +1,7 @@
 ---
 title: "life."
 description: "This chapter introduces the character, the editor, Chinatown, a Chinese Restaurant, as well as their conclusion."
+day: "Friday."
 ---
 
 ## Scene 1 START

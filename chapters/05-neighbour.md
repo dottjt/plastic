@@ -1,18 +1,25 @@
 ---
-title: "4."
-description: "A short chapter about character's darker feelings, guilt he feels, weed addiction, cam girl, buys a gun online."
+title: "neighbour."
+description: "The character bumps into his neighbour, who he discovers he has a strong connection with."
+day: "Saturday."
 ---
 
 ## Scene 1 START
 
 ### Leaving the apartment
 
+Trixie air.
+
+The door slams behind me in a coon of fresh air. Travelling across my face like a seasonal rain.
+
 Coons of fresh air travelled along my face.
 
 
 ### Describe neighbour
 
-The black texture of her skin, radiated with
+The black texture of her skin, radiated in a sudden glow of
+
+Big Glasses
 
 ## Scene 1 END
 
@@ -22,6 +29,10 @@ The black texture of her skin, radiated with
 
 "Hey, would you like to go out sometime?"
 
+
+### Milo calls.
+
+I receive a text from Milo. "I look forward to tonight xxoo". My temperature rose.
 
 ### Describe her apartment
 

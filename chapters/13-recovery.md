@@ -1,13 +1,14 @@
 ---
 title: "recovery."
 description: "Chapter about the aftermath of destruction that was the overdose."
+day: "Wednesday."
 ---
 
 ## Scene 1 START
 
 ### At Hospital
 
-I lay beside a juicebox with a picture of a green hippo on it. Animated with suspicion. My vision from the previous night hadn't quite returned, supplemented in
+Green Juicebox Hippo. Animated with suspicion. Arm's grasp. I'm alive. My vision from the previous night hadn't quite returned, supplemented in
 
 I hope
 
@@ -68,28 +69,3 @@ Maybe Google loved me.
 
 
 
-
--------------------
-
-### Cam girl
-
-I loved cam girls. I mean, that's what they were there for. To be believed. To be loved. To provide some kind of
-
-I mean, I would never pay for them, but I would willing give myself up to them.
-As I
-
-
-
-I would go as far as to write erotica for them.
-
-I came into my hands, cusping the overflowing semen in the rim of my index finger. Then I reach for the tissue to clean up the mess. It was the same routine of glue and bleached tree wafer, scrumped into a ball and buried deep underground to be turned into fossilised shame. I always wondered if my addiction was a form of self-hate. A way to express how much I didn't like myself. I couldn't logically comprehend why I did it, but when your eyes are fixed on some blonde getting t-boned by two black men with a high school education, it turned you sour.
-
-. Why I stared at a screen
-
-### erotica excerpt
-
-Everyone learns to love the plastic dragon. The way it chokes you by the throat and
-
-I cover my eyes with my hands. A white-ish blue. I suppose it had meaning.
-
--------------------

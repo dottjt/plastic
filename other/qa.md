@@ -4,24 +4,9 @@ How to Kill a Chinaman
 
 The story starts on a Friday.
 
-
-# Story overview?
-
-It's Friday midday. The story begins with the main character in a meeting with an editor, in order to get his book published. They eventually head to Chinatown for lunch, picking a restaurant called The Ming. They end up fighting over differences and the main character leaves.
-
-It's still midday and he has to return to work. He notices he doesn't have his work pass when he gets to work, which is when he bumps into his bipolar co-worker, Milo. He has a massive crush on her, but she's indifferent to everyone. He describes the workplace and the dynamics of his imagination. At lunchtime they have a cigarette together, which leads to her proposing a date to him. Although elated, he feels conflicted, because it felt forceful and as part of a bipolar episode.
-
-It's now after work, and he has to head to his mother's house for dinner. He explains his upbringing and issues with porn to the reader. Largely, he explains his hate for his mother. He has enough of her and decides to disown her. He goes back home, breaking down into tears.
-
-He wakes up the next day in a depression. A short chapter. He elaborates on his depression, the guilt he feels for his actions towards his mother. He then decides to go and smoke weed, and talks about his weed usage. He decides to go for a walk, where he bumps into his neighbour. A gorgeous African lady who 
-
-
-
-
-
 # Brief description?
 
-The story is about a sick, deranged, mentally-ill young man. The story is told through the thoughts and observations of the main character, which reflects his hyperbolic imagination of fantasy sex and crushing cynicism. The story begins with an interaction with the main character and an editor, in a quest to get his book published. The overarching plot however reveals a suicidal descent into destitution. The character ends up disowning his family. Breaking up with his lover. Losing his job. Before leading to an untimely drug overdose.
+The story is about a mentally-ill young man. The story is told through the thoughts and observations of the main character, which reflects his hyperbolic imagination of hyper-fantasy and cynicism. The story begins with an interaction with the main character and an editor, in a quest to get his book published. The overarching plot however reveals a suicidal descent into destitution. The character ends up disowning his family. Breaking up with his lover. Losing his job. Before leading to an untimely drug overdose.
 
 Ultimately, there are two themes. It intends to be an incredibly graphic, sexual and violent foray into what it means to be a Chinese person growing up in Western society. I also wanted the novel to represent a full cycle of bipolar mania, from beginning to finish.
 

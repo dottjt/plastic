@@ -1,6 +1,7 @@
 ---
 title: "work."
 description: "This chapter describes his ideals of work, the receptionist, his workplace, his job, his love for Milo, date with Milo."
+day: "Friday."
 ---
 
 ## Scene 1 START
@@ -121,9 +122,9 @@ I wasn't sure if love quite described how I felt about Milo, but there was somet
 
 "...and hold me, and tell me that everything was going to be okay as you rammed my tight little pussy with your giant cock?" I bit my lip.
 
-"Yeah. Probably that." My heart pounded into a schizophrenic drumbeat of restlessness. What had just happened? Was this real? Was this finally happening? In a sense, it felt like we'd both been feeling these things for a while, although in reality, it felt more like being eaten alive by a Lion. My arms limp from the impact-trauma of smashing my head against a rock, as it's large teeth tore through my legs, snapping bone n' blood into a sludge of stomach acid. I was both afraid and excited, with a dash of confusion to spread drama throughout my entire central nervous system.
+"Yeah. Probably that." My heart pounded into a schizophrenic drumbeat of restlessness. What had just happened? Was this real? Was this finally happening? In a sense, it felt like we'd both been feeling these things for a while, although in reality, it felt more like being eaten alive by a Lion. My arms limp from the impact-trauma of smashing my head against a rock, as it's large teeth tore through my legs, snapping bone n' blood into a sludge of stomach acid. I was both afraid and excited, with a dash of confusion to spread drama throughout my entire central nervous system. Largely, I wasn't even sure if she was being serious.
 
-"Then take me out this Friday night. Will you do that for me?", she gasped, before returning to her former self. Wise and unruffled in an equanimous stance.
+"Then take me out this Sunday. Will you do that for me?", she gasped, before returning to her former self. Wise and unruffled in an equanimous stance.
 
 "Yeah, sure. I can do that. I would love to do that. Do you have my number?"
 

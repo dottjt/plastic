@@ -1,13 +1,16 @@
 ---
 title: "birthday."
 description: "A short chapter with an attempted suicide, "
+day: "Saturday."
 ---
 
 ## Scene 1 START
 
 ### Birthday Monologue
 
-My birthday is the loneliest day of the year. An empty echo-chamber of must-haves and has-beens, drowning in a slurry of desperate pleas for love and lace. I often wonder what a birthday message actual is, aside from a fine-grained permission to feel. A pity cookie for old time's sake, just to prove that you haven't been raped and tortured by some Taliban rookie in a silk robe, growing opium from his ranch south of the capital. Glutinous fingers , fiercely bidding for the surface of your attention. Hoping to disperse it's lovely little claws into your spread, violating what little aspiration you have to weed your way back to safety. At first it shrieks in a mad outburst, indicating it's own displeasure with the world. Then it withers into a cloud of mould to suffocate any amount of apprehension from gaining necessary foothold. Lastly it smothers in absolute quantity, absorbing scar tissue and trauma at an incomprehensible rate. And once it's all over, in the snap of a heartbeat, it was as if nothing remained at all. A desolate fire of dementia, swept clean in an enticing devastation of brilliance.
+I week of life passes by. It's my birthday. The loneliest day of the year. An empty echo-chamber of must-haves and has-beens, drowning in a slurry of desperate pleas for love and lace. I often wonder what a birthday message actual is, aside from a fine-grained permission to feel. A pity cookie for old time's sake, just to prove that you haven't been raped and tortured by some Taliban rookie in a silk robe, growing opium from his ranch south of the capital. Glutinous fingers , fiercely bidding for the surface of your attention. Hoping to disperse it's lovely little claws into your spread, violating what little aspiration you have to weed your way back to safety. At first it shrieks in a mad outburst, indicating it's own displeasure with the world. Then it withers into a cloud of mould to suffocate any amount of apprehension from gaining necessary foothold. Lastly it smothers in absolute quantity, absorbing scar tissue and trauma at an incomprehensible rate. And once it's all over, in the snap of a heartbeat, it was as if nothing remained at all. A desolate fire of dementia, swept clean in an enticing devastation of brilliance.
+
+I receive a text from mother. I don't know how it makes me feel. Anger, predominantly. Always anger.
 
 ### Attempted Suicide
 
@@ -16,8 +19,6 @@ Saturday morning. Sunday autopsy. Duck-taped to the underside of my desk, I vain
 ### Introduce Friend
 
 "Show us some cleave, honey," boasts the man at the door, holding a half opened-can of Guinness and poorly wrapped . A suitable greeting for this 27 year old writer, dressed in yesterday's t-shirt. A stain on this earth to be admonished in ever diminishing quantities, sunken without Christ. His coarse facial hair brushes against my cheek as he dives in for a hug.
-
-
 
 
 The doorbell rings again. It's Milo. Queen Bee. I race to the door in a rush of excitement, bumping my knee on a bookshelf full of Victorian classics. Surely it made girls wet.
@@ -59,7 +60,7 @@ The enchilada. An inoffensive mound of maize-infused goop, seared in a second-ha
 ### Emotions
 
 Hid behind my over-sized sombrero, the streaming lights of the 8pm disco-ball.
-
+It's
 
 ## Scene 2 END
 
@@ -69,11 +70,6 @@ Hid behind my over-sized sombrero, the streaming lights of the 8pm disco-ball.
 
 
 
-
-
-
 I sat back at my desk.
 
 ## Scene 3 END
-
-

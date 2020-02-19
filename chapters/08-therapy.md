@@ -1,6 +1,7 @@
 ---
 title: "therapy."
 description: "A short chapter with a therapist to discuss success, depression and potential bipolar."
+day: "Sunday."
 ---
 
 ## Scene 1 START
@@ -9,12 +10,17 @@ description: "A short chapter with a therapist to discuss success, depression an
 
 Everyone dreams. It's on the front cover of every magazine, sizing and measuring you down to the retrofit standard. To be printed at birth, stuck on your forehead and published to the nearest data collection centre, where it will be processed under the fine eye of a complex Japanese algorithm written in comparative lisp. "You are an average Asian male with an overwhelming propensity for sticking your penis into the wrinkled foreskin of pretentious white women," my label states, time-stamped in a beautiful font, extracted from a contemporary guide to desktop publishing. We try to love ourselves. We try to breathe meaning into our pursuits and leisures, providing them with hope and transparent textures to decorate our lives with, only to see them absorbed by a plague of locusts completing their regular routine around your ego.
 
+It was time for Sunday therapy. My least favourite part of the week.
+
+"Well, I disowned my mum."
+
+"There's just a lot going on in my life at the moment."
+
 ### Therapy: What is success?
 
 "The problem was that I don't feel successful," I uttered to the therapist, a cold shoulder of taut one-liners and intricately gross examinations which bordered on dyslexic. A siamese bucket of discarded tape recorders, patched together with the incomplete narratives of hollow young men. She truly was a vacuum of utilitarian comfort, designed to suck the joy and pleasure from basic human necessity, formulised in a haptic frenzy of uncompromising hand gestures and seizure-inducing flashes. Yet, there was something comforting in the brown cardigan which served solely as a dilapidated corkboard of cat hair and coffee stains. Truth is I'd always wanted to fuck my therapist. Actually it was fair to say that I was keen to fuck anything.
 
 "Well, what's your idea of success?" the therapist responded.
-
 
 "I don't know. Maybe it's having sex three times a week. Owning a home. I just don't feel successful," I said, as I dipped my face into my coffee cup like a stubborn penguin. In actual fact my dream was to become a writer. I'm not quite sure when the obsession began, but it was an all-consuming affair with my imagination. An innocent ploy for self-discovery, held in sanctuary by
 

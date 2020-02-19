@@ -1,6 +1,7 @@
 ---
 title: "depression."
 description: "A short chapter about character's darker feelings, guilt he feels, weed addiction, cam girl, buys a gun online."
+day: "Saturday."
 ---
 
 ## Scene 1 START
@@ -22,7 +23,7 @@ I wondered to myself. Depleted in my struggle. Enthralled by the gristle of my c
 
 Maybe I felt guilt over the way I treated my mother. A tidal disowning the equal parts anger, sadness and shame, stabbing me senseless in an abundant free-for-all of rape and violence. Trampling upon my ability to amend, engaging in a visicious civil war of pretend. A bloody triangle of equal equivalence, fumbling it's way through into the drull beat of my heart. Throbbing in a quaint requiem of on-going misery, ripping and pulling my star-studded torso with the actions of my past. Sometimes, it felt as if I granted myself permission to be an awful person. To express how little I could care as a human being. To allow myself to become so absolutely consumed in hatred, that it probably deserved it's own name. A hatred which was so certain in my own mind, yet so far from how I was feeling in this moment. I wasn't even sure why I hated my mother so much, only that I knew the pain and judgement that I felt from her was real. Some would say, alive. The hurt which shoved it's precious little fingers into my pie and left me vomitting all over myself in an episode of gastro. My anger and sorrow, nothing more than an immediate reaction to the tumor I recognised as a blight on this earth. I was the self-righteous donkey.
 
-In a lot of ways, my overwhelming hatred for my mother was nothing more than a state of mind which my brain had been trained to default to. Like when a child sighs at the thought of doing homework, I simply wanted to use her face as a rake to comfort the rocks in my patio. Thankfully, these particular rocks have been known to contain abundant feng-shui, a detail I'm sure her face would delight. I pick myself up from my bed and make my way to the bathroom, poking the skin of my naked body in the shape of a pea. Gasping in front of the mirror. Short of breath. Hopelessly suffocating in what little I knew about myself. Faltering it's signal in overlapping patterns. Perhaps my body was attempting to physically cry. To express how little it wanted to live. Perhaps I'd simply feel better after a wake n' bake. Yeah. That's what I needed. It was time to degrade.
+I receive a text from my mother. Oh, for fuck's sake, will she just leave me alone already? In a lot of ways, my overwhelming hatred for my mother was nothing more than a state of mind which my brain had been trained to default to. Like when a child sighs at the thought of doing homework, I simply wanted to use her face as a rake to comfort the rocks in my patio. Thankfully, these particular rocks have been known to contain abundant feng-shui, a detail I'm sure her face would delight. I pick myself up from my bed and make my way to the bathroom, poking the skin of my naked body in the shape of a pea. Gasping in front of the mirror. Short of breath. Hopelessly suffocating in what little I knew about myself. Faltering it's signal in overlapping patterns. Perhaps my body was attempting to physically cry. To express how little it wanted to live. Perhaps I'd simply feel better after a wake n' bake. Yeah. That's what I needed. It was time to degrade.
 
 -->
 
@@ -48,9 +49,4 @@ Then I would purge so I could consume more. Admittedly I enjoyed the feeling of 
 
 I put on my headphones and we're gold again.
 
-This was how men coped.
-
-### Buys a gun
-
-##
-
+## Scene 2 END

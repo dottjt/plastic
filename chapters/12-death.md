@@ -1,6 +1,7 @@
 ---
 title: "death."
 description: "A chapter where the character is at his lowest. Takes acid. Freak trip. Hospitalised."
+day: "Wednesday."
 ---
 
 ## Scene 1 START
@@ -15,9 +16,7 @@ Which means I created you. I created you, because I have great taste in words. I
 
 ### Describe Morning
 
-I didn't really feel much that morning. I didn't have the desire to feel, nor did I feel anything at all.
-
-
+I didn't really feel much that morning. Neither did I have the desire to feel, nor did I have the energy to understand what feelings were even for. No job. 4 weeks behind in rent. But at least I still had drugs. Drugs n' coffee. Coffee n' beans. I didn't like the beans so much, but the coffee made up for it.
 
 
 But hey, it was a Saturday morning, the lungs were still breathing and I didn't quite have the courage to pull the trigger,  which essentially meant only one thing. It was time to tab.
@@ -32,6 +31,8 @@ It was a bit like putting your brain through a lettuce spinner, it would help
 
 Like most uncouth, tabs had become a regular fact of life. Ego refreshers. They helped break down absolutely everything you knew about yourself into useless piles of silt. Just fine enough that you couldn't quite hold it within your hands, but solid enough that you could see it with your own eyes. The key was to take em' once every two weeks, otherwise you'd end up messing with your tolerance. With something like LSD you could probably get away with takin' em' once every week, although LSD was nowhere near as strong as the research chemicals I was digesting. They were significantly cheaper, nearly 10 times as strong and they packed a punch which left you completely incapacitated in the most euphoric of ways. They were a variant of nBome. 25i-nBome. The strongest and most visual of the nBome compounds. Certainly if I had my own way, I'd be completely transfixed in a permanent state of constant morphing and transfixing. I loved the morphing. It was arguably the best feeling in the world, well-beyond the euphoria of porn. Porn while on tabs? I honestly couldn't possibly describe anything more euphoric in the whole entire world. I always described tabs as a kind of psychopathic candy land where you die and become god. An opportunity to explore how gullible you truly were.
 
+Recently I've just been chaining them.
+
 The only thing I didn't like about the tabs was the vasoconstriction. It felt as if your veins were being suffocated from the outside-in.
 
 The key with takin' tabs is to keep them away from light. It was also important to smoke weed beforehand, as it synergised with the psychadelic properties of hte tabs.
@@ -39,8 +40,6 @@ The key with takin' tabs is to keep them away from light. It was also important 
 Thankfully the tabs were nothing like the seeds. You'd have to perform an alcohol extraction on them. I personally used methylated spirits, which more-or-less was pure ethanol, minus some compounds which were placed inside it to make you want to purge yourself. Some methylated spirits actually contain compounds which make you go blind. Thankfully I called the manufacturer and they confirmed that it was fully safe. They must have known that I was up to something.
 
 ### Describe The Wait
-
-
 
 In. Out. In. Out.
 
@@ -60,8 +59,7 @@ I receive a text from an old acquaintance. Dealer. Badlands. Claims city. Fight 
 He rocks up in a stolen vehicle, licence plates removed from both rears. High on synthetic marijuana. Without a driver's licence to your name.
 
 
-
-
+All I remember is the tesselation of the windows, as the fog rose from the dashboard.
 
 
 ### Waiting at town
@@ -72,7 +70,7 @@ I don't think I'd ever had synthetic weed before,
 
 Fading away.
 
-I kicked the car door down.
+I started kicking the car door down.
 
 ## Scene 2 END
 
