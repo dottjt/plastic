@@ -43,7 +43,7 @@ I don't remember when I first started smoking weed, only that it was an on-going
 
 I safely kept my weed in a glass-jar amongst all the , and I always used a bong. A modified Gatorade bottle, stitched together with cut government piping.
 
-Usually my plan was to buy as much as much junk as possible from the supermarket. We're talkin' .
+Usually my plan was to buy as much as much junk as possible from the supermarket. We're talkin' polyvinyl sticks. White-label nylon lasagnas. Cheesy cowboy stringers. Ballistic adhesive. Those fizzy fucks. Any kind of sugary goodness, to be 
 
 Then I would purge so I could consume more. Admittedly I enjoyed the feeling of emptying my stomach. No matter what, you could always console in the fact that you were going to feel better afterwards. Purging was the ultimate cathartic
 
