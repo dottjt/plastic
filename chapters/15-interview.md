@@ -11,11 +11,11 @@ I eat. It's just what the hungry of us in society do. We push aside the grazers 
 
 Flipping the sheets off my body and hurling myself out of bed, veins coursing with a desire to win. I wasn't quite sure why this morning was different. Perhaps it was the corrupted determinism seeping from my lungs, blot in the smirch
 
+
+
 . It is the circle which you do not draw, which
 
 I could feel the confidence extrude from my
-
-
 
 
 
@@ -26,6 +26,10 @@ It's all in the grab. The pull. The way shoulders align when being flung into a 
 Is a bit like anti-wank
 
 
+
+### train set.
+
+An older lady enters the train.
 
 
 
@@ -40,3 +44,5 @@ I made myself comfortable
 
 ### At the office building for the interview
 
+
+<!-- What this chapter is about is a false sense of charisma. The character is just a psychopathic lunatic at this point and he just wants to kill, kill, kill (metaphorically) -->

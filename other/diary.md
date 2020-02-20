@@ -1,5 +1,7 @@
 # diary.
 
+21/03/2020 - I had the weirdest dream last night. But essentially I was at a Chinese nightclub. And essentially what it ended up being was a massive brothel, and that's what they considered to be 
+
 20/03/2020 - Been writing a lot more of the overarching story and figuring out how best to draw out the story, which has been great, because it gives the story a lot more depth. It also fills out a lot of the other pages. I probably have a good 40,000k worth of words planned, although not sure how to end the story yet. Especially how I deal with the neighbour, and my mother. Perhaps she dies in the end, we'll see. We'll see how we want the character to suffer lel.
 
 19/03/2020 - I had a fantastical dream. I bought a house with Jess. James' friend Aiden bought a house across the road. He hosts a party. Anyway, this girl across the street from the house is african and half chinese. She has a thing for me. She invites me into her apartment and it's covered in Screens. She's stalks me a bit. She wants me, even though I'm already in a relationship. I think she would be an excellent character to add to the book, since it's a little short of characters at the moment. Made huge changes to the structure of the novel. I think it will work well. Very well.
