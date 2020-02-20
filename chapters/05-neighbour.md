@@ -16,27 +16,29 @@ A woman appears from the staircase, carrying what seems to be a large stack of b
 
 ### Describe woman
 
-The first thing I noticed was the silky black texture of the skin on her arms. Worn without crown, delegating the rapier luminosity of elegance she clearly held without noticing, which simply flowed from her long curly hair and down to her hips. I was mesmerised. I wanted more. I had become corrupt. She stumbled towards me in an exhaled gaff of sweat, in her collossal attempt to haul this thing up 16 flights of stairs. Placing the boxes down on the ground in complete exhaustion, revealing the rest of her face and body. She was gorgeous. Her oversized prescription glasses with a large black rim. The whole package serene. I suppose the least I could was flirt with her, especially now that she was at her weakest.
+The first thing I noticed was the silky black texture of the skin on her arms. Worn without crown, delegating the rapier luminosity of elegance she clearly held without noticing, which simply flowed from her long curly hair and down to her hips. I was mesmerised. I wanted more. I had become corrupt. She stumbled towards me in an exhaled gaff of sweat, in her collossal attempt to haul this thing up 16 flights of stairs. Placing the boxes down on the ground in complete exhaustion, revealing the rest of her face and body. She was gorgeous, and I was me. I suppose the least I could was flirt with her, especially now that she was at her weakest.
 
 "Hey, do you need hand with that? I'm just from down the hall," I offered, sounding barely genuine in my stoned hunger. Clearly offering more than just a rag of sincere physical extrapolation. I mean, I was wearing stained track pants for god's sake. I was either a hermit or a pedophile. Possibly both.
 
-"Yeah, sure! That would be great, thank you. I just need it in through here." I loved the striking confidence in her voice. The way it knew what it wanted, without demanding anything from you. It was a bright arpeggio of inspired direction. The one thing I was sorely needing in life. She opens her scratched-up apartment door, conveniently inbetween to the incessant string fiddler and the hawk-eyed pickler, two of my of least-liked tennants. I'm pretty sure they both liked to scissor, like a pack of squirmy love-hens. A bloody waste, I say.
+"Yeah, sure! That would be great, thank you. I just need it in through here." I loved the striking confidence in her voice. The way it knew what it wanted, without demanding anything from you. I loved the way her mouth hovered over her words, like a lallygag of harmless spiders pouring from a punctured sac of extradition. Tickling their prey into a folly of submission. It was a bright arpeggio of inspired direction. The one thing I was sorely needing in life. She opens her scratched-up apartment door, conveniently inbetween to the incessant string fiddler and the hawk-eyed pickler, two of my of least-liked tennants. I'm pretty sure they both liked to scissor, like a pack of squirmy love-hens. A bloody waste, I say.
 
 ### Enter her apartment
 
-The door swung open and a whole new world revealed itself to the mainstream discoure of my mind. Projector's everywhere. Screens of all different kinds. Littering the topography of her apartment. Vintage devices from the earliest of industrial life. Cathode Ray Tubes of antiqued design, bundled in a crate near a flourishing African blood lily.
+The door swung open and a whole new world revealed itself to the mainstay discoure of my mind. Projector's everywhere. Screens of all different kinds. A litter of topography upon the foundations of her apartment. Vintage devices from the earliest of industrialisation. Cathode Ray Tubes of antiqued design. Bundled in crate's of two near a flourishing African blood lily in the corner of the room, spittig it's frazzled pollen onto a litter of large aperature lens, teaming with dust. She was a classy hoarder, if ever you could describe such a thing.
 
-"Oh, so I see you like screens," I remarked, taken aback by the museum of historic memorabillia ingesting my vision.
+"Oh, so I see you like screens?", I remarked, taken aback by the museum of historic memorabillia ingesting my vision.
 
-"Yeah, it's become a bit of an obsession of mine. I am a cinema aficionado, after all."
+"Yeah, it's become a bit of an obsession of mine. I'm a bit of a cinema archivist, if I don't say myself." She ended her sentence with a bright up-ticket in her word. I couldn't tell if she was in denial, or if she was open about her disorder, although either way the sex was going to be great. A splay of horrific restlessness as I dug my fingers deep into her skin, as I fucked her in vehement arousal, shoving my foot in her asshole and hearing her scream. I really needed to pull it together, but it was hard with my mind where it was. I placed the large box down next to the couch, pretending as if I just didn't slightly pull my hamstring and everything was just fine.
 
-I loved the way her mouth hovered over her words, like a lallygag of harmless spiders pouring from a punctured sac into the. Tickling their prey into
+"Would you like something to drink?" Yes. Yes, I would.
 
+### Chat on the couch
 
-I helped her put
+We both sat on the couch and began chatting casually about our lives. The struggles. The nuances. The stupid neighbours next door. What we loved and abhorred. She felt both real and exciting. More than just a tack on the wall. A woman with intelligence and character. Who made me feel more than just another card to be played. The whiteness of her teeth. Her oversized prescription glasses. Part of me couldn't stop noticing the iridescence of her eyes, contrast against the scintillating blackness of her face. It was like staring at the nebulous surface of an unfinished cup of coffee, swirling in tandem against the chocolately surface of the aromatic blend. I think she liked me. Apparently if a girl looks at your lips three times it means she wants to kiss you, and I was certain that she wanted my tongue. Of course, we were neighbours and I never had the confidence to pull something that risque off. But at least I was honest with myself.
 
-She turned her body towards my direction,
+"Oh, so you're a writer. That's super cool, I was never
 
+She turned her body towards my direction.
 
 
 ## Scene 1 END
