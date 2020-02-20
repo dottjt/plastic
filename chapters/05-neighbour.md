@@ -40,6 +40,8 @@ We both sat on the couch and began chatting casually about our lives. The strugg
 
 She turned her body towards my direction.
 
+Shit. I'd completely forgotten about my date with Milo. 
+
 
 ## Scene 1 END
 
