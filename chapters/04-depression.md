@@ -35,17 +35,15 @@ I receive a text from my mother. Oh, for fuck's sake, will she just leave me alo
 
 ### Weed
 
-Abdula's Potato. A black papermache cable. The desk which swore. Rows of disposable coffee cups form unions in a chain of dispute, protested in favour of improved recycle times. The cameo floor lamp brims a surly mustard green, dribbling sautéed light across a landscape of twaddled fortunes. The allure of creep. Infecting the wooden draw handles containing all sorts of grim. A plume of mould gathers in presumptuous ways, .
+Abdula's Potato. A black papermache cable. The desk which swore. Rows of disposable coffee cups protest and form unions in favour of improved recycle times. The cameo floor lamp brims a surly mustard green, dribbling sautéed light across a landscape of twaddled fortunes. The allure of creep. The dried husk of a once-thriving pot plant, utterly cremated by the inaugural toxicity of it's environment. A plume of mould gathers in presumptuous ways, infecting the wooden draw handles containing all sorts of grim. A porno stolen from an internet cafe. A souless reminder of youth. I wanted to feel invalid. My emotions turned to mush, recycled and thrown into a tumbler for further obfuscation. Pantyhose smoke.
 
-Perhaps weed wasn't entirely necessary for my survival, although my brain didn't know otherwise. As far as it was concerned, drugs were an entirely necessary addition to my existence. Perhaps even compromising of my existence altogether. The insular hope which clouded my lungs and left me in a
-
-I don't remember when I first started smoking weed, only that it was an on-going weekend routine. First you gain sentience. Then you inhale. Gathering as much dopamine as humanly possible, to be dispersed into life as you please.
+Perhaps weed wasn't entirely necessary for my survival, although my brain certainlydidn't know otherwise. As far as it was concerned, drugs were an entirely necessary addition to my existence, perhaps even compromising of existence itself, inflating the insular hope which clouded my lungs and left me in an a glaze of fine China. I don't remember when I first started smoking weed, only that it was a tradition which had relegated itself to weekends. First you gain sentience. Then you inhale. Then you disperse, packing the sucker as hard as you can until your lungs collapse and you find yourself chewing the hard excess of dopamine for weeks on end.
 
 I safely kept my weed in a glass-jar amongst all the , and I always used a bong. A modified Gatorade bottle, stitched together with cut government piping.
 
-Usually my plan was to buy as much as much junk as possible from the supermarket. We're talkin' polyvinyl sticks. White-label nylon lasagnas. Cheesy cowboy stringers. Ballistic adhesive. Those fizzy fucks. Any kind of sugary goodness, to be 
+Usually my plan was to buy as much as much junk as possible from the supermarket. We're talkin' polyvinyl sticks. White-label lasagna. Cheesy cowboy stringers. Ballistic adhesive. Those fizzy fucks. All variations of sugary goodness, to be packed into tight tubes for convenience, and blasted into the confines of my pores so that not a single cell of my vital organs would survive the impending failure of my arteries in a synaptic whiplash of nerve damage. I would then proceed to purge so I could consume more. I soon discovered that I would enjoy the feeling of purging more than I did eating, which lead me to eat even more, so I could purge more often. I suppose I consoled in the fact that you always knew you were going to feel better post-purge. Epicurean catharticism, dressed in an acidic bile of good-will. The blessings of the pope upon thee.
 
-Then I would purge so I could consume more. Admittedly I enjoyed the feeling of emptying my stomach. No matter what, you could always console in the fact that you were going to feel better afterwards. Purging was the ultimate cathartic
+I grind the weed
 
 I put on my headphones and we're gold again.
 

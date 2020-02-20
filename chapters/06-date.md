@@ -36,10 +36,6 @@ I'd always been afraid of this moment, where man meets women, carried by the hea
 
 ### Supermarket
 
-The interior of the large department mall barely knew itself.
-
-The aromatic disparity grabs me and cuts into my wiring, and yet the beauty is undeniable.
-
 "Did you always think we'd date?" she said, almost rhetorically, expecting me to cave in an
 
 She had to get a packet of tampons and a
