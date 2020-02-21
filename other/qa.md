@@ -22,6 +22,10 @@ The novel attempts to reveal what it means to be a contemporary Asian person thr
 
 How to Kill a Chinaman is delicate construction of hard-hitting counter-culture which I believe competes with the best of them. I wanted to recreate the sense of feeling that I had as a young adult reading William S. Burroughs' Naked Lunch, only for a new generation. Disgust. Obsession. Depravity. Whore. The novel is a contemporary reflection of a Chinese man's experience in Western society, which intends to smear shit into the reader's eyes, and leave them in a puddle of their own guilt. All while, beautifully written as if delivered by a stark angel with ornate wings.
 
+In a way, the book is an ode to the 1950s beat generation. I wanted to write a modern take on that. 
+
+
+
 # Why is it called How to kill a Chinaman?
 
 The book is a reflection of the slow degredation of a Chinese man attempting his best to copie in Western society. The title may also been seen as a reflection of the character's self-worth; a person worth dying. It doesn't intend to be a statement against China. It intends to be a statement against the individual.
