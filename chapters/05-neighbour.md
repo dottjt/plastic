@@ -40,12 +40,12 @@ We both sat on the couch and began chatting casually about our lives. The strugg
 
 I receive a text. "I look forward to tonight xoxo". My temperature rose. Shit. Tonight's date with Milo. I'd completely forgot, or perhaps repressed, my scheduled escort with the devil. I suppose I couldn't have both women cavort my lap, rubbing my pre-cum into the flouncing creases of my pants.
 
-"Anyway, it was nice to meet you, but I better to head off," I noted, concerned whether I was even going to make it to her apartment on time. It was already 5pm and I had no idea how to get there, let alone decide what I was going to wear. Maybe she preferred the drug-fucked look of a man covered in the scent of a poorly received six-pack, now wreaking havoc with the odor of his shirt some many weeks later.
+"Anyway, it was nice to meet you, but I better to head off," I noted, concerned whether I was even going to make it to her apartment on time. It was already 5pm and I had no idea how to get there, let alone decide what I was going to wear. Maybe she preferred the drug-fucked look of a man covered in the scent of a poorly received six-pack, now wreaking havoc with the odour of his shirt some many weeks later.
 
 "Thanks for your help. It was really kind of you. Feel free to pop round, maybe we could watch a movie together?"
 
 "Yes. I would love that." I wasn't sure if what I said came across as being needy, however it was genuinely how I felt. An overwhelming sense of warmth and connection, which transcended well-beyond her thorough intelligence and marvelous attraction. It was a sense of connection that I'd never felt before. She was the one that I wanted to be with. Of course, as per usual, I wasn't sure if I'd simply become delusional
 
-She walked me out to the front, waving with a smitten smile attached to her face, as I left her apartment in a giddy of infatuation. Maria was her name. As beautiful as beauty could be. 
+She walked me out to the front, waving with a smitten smile attached to her face, as I left her apartment in a giddy of infatuation. Maria was her name. As beautiful as beauty could be.
 
 ## Scene 1 END
