@@ -34,28 +34,18 @@ The door swung open and a whole new world revealed itself to the mainstay discou
 
 ### Chat on the couch
 
-We both sat on the couch and began chatting casually about our lives. The struggles. The nuances. The stupid neighbours next door. What we loved and abhorred. She felt both real and exciting. More than just a tack on the wall. A woman with intelligence and character. Who made me feel more than just another card to be played. The whiteness of her teeth. Her oversized prescription glasses. Part of me couldn't stop noticing the iridescence of her eyes, contrast against the scintillating blackness of her face. It was like staring at the nebulous surface of an unfinished cup of coffee, swirling in tandem against the chocolately surface of the aromatic blend. I think she liked me. Apparently if a girl looks at your lips three times it means she wants to kiss you, and I was certain that she wanted my tongue. Of course, we were neighbours and I never had the confidence to pull something that risque off. But at least I was honest with myself.
+We both sat on the couch and began chatting casually about our lives. The struggles. The nuances. The stupid neighbours next door. What we loved and abhorred. She felt both real and exciting. More than just a tack on the wall. A woman with intelligence and character. Who made me feel more than just another card to be played. The whiteness of her teeth. Her oversized prescription glasses. Part of me couldn't stop noticing the iridescence of her eyes, contrast against the scintillating blackness of her face. It was like staring at the nebulous surface of an unfinished cup of coffee, swirling in tandem against the chocolately surface of the aromatic blend. I think she liked me. Apparently if a girl looks at your lips three times it means she wants to kiss you, and I was certain that she wanted my tongue. Of course, we were neighbours and I was about as self-assured as a wet sock. But at least I was honest with myself.
 
-"Oh, so you're a writer. That's super cool, I was never
+"Oh, so you're a writer. That's super cool! I wish I could write, but I don't seem to be good at anything. Although I have a lot of knowledge about film." She turns her body towards my direction, parlous in the docile nature of her proportionate body.
 
-She turned her body towards my direction.
+I receive a text. "I look forward to tonight xoxo". My temperature rose. Shit. Tonight's date with Milo. I'd completely forgot, or perhaps repressed, my scheduled escort with the devil. I suppose I couldn't have both women cavort my lap, rubbing my pre-cum into the flouncing creases of my pants.
 
-Shit. I'd completely forgotten about my date with Milo. 
+"Anyway, it was nice to meet you, but I better to head off," I noted, concerned whether I was even going to make it to her apartment on time. It was already 5pm and I had no idea how to get there, let alone decide what I was going to wear. Maybe she preferred the drug-fucked look of a man covered in the scent of a poorly received six-pack, now wreaking havoc with the odor of his shirt some many weeks later.
 
+"Thanks for your help. It was really kind of you. Feel free to pop round, maybe we could watch a movie together?"
+
+"Yes. I would love that." I wasn't sure if what I said came across as being needy, however it was genuinely how I felt. An overwhelming sense of warmth and connection, which transcended well-beyond her thorough intelligence and marvelous attraction. It was a sense of connection that I'd never felt before. She was the one that I wanted to be with. Of course, as per usual, I wasn't sure if I'd simply become delusional
+
+She walked me out to the front, waving with a smitten smile attached to her face, as I left her apartment in a giddy of infatuation. Maria was her name. As beautiful as beauty could be. 
 
 ## Scene 1 END
-
-####
-
-## Scene 2 START
-
-"Hey, would you like to go out sometime?"
-
-
-### Milo calls.
-
-I receive a text from Milo. "I look forward to tonight xxoo". My temperature rose.
-
-### Describe her apartment
-
-## Scene 2 END

@@ -8,6 +8,11 @@ day: "Saturday."
 
 ### Arrival at her apartment
 
+
+
+
+<!-- I think the theme I want for this chapter is that the character has forgotten all about her. -->
+
 Milo, who leaning back in her extendible office chair on her desk, decorated in thigh-high knitted socks which continued into the outskirts of a pink-lace pantyhose, seemed like the only sane person in the room.
 
 "Well, aren't ya gonna come in an' fuck me?"
