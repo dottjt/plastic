@@ -16,6 +16,7 @@ an event which had spawned an all-out war between my brain and my stomach.
 
 Margarine's tainted folly digs it's five-inch heels firmly into your hardened arteries, as you attempt to pry the concrete from your eyes with a miniature pickaxe at 5:20am in the morning.
 
+underaged women in
 
 Mesmerisingly subterranean,
 
@@ -44,6 +45,8 @@ I mean, can you even taste the salt in the air? It's everywhere. In my eyes. My 
 intense with the fervour of an over-cooked bucket of ravioli slosh,
 
 
+found my mind being continually
+
 of being a cute millennial, that you really can't help but wonder how you deliberate any sort of significant meaning, beyond the corpse you just laid to rest with a blunt knife and a resolve to inflict meaningless revenge.
 
 An exciting state of explicit premonition, as your father dies in front of you with a face of sordid bloodiness, and then again in full motion as re-enacted by a man in green suit to be retrofitted to a scene in Top Gun.
@@ -58,6 +61,18 @@ imprint to the segregation our society loves to weep
 
 
 # part-2
+
+involving a curved dildo and
+
+for both human and rodent alike.
+
+
+ Inadvertently swallowing it's employees, .
+
+ desecrated tub of ice-cream
+ Neopolitian.
+
+ fear of
 
 The orange-backs maintained the Machine of Profit™. They were hardened loyalists with an obsessive personality, fanatic in their pursuit for operational perfection. They documented, studied and lauded over every single aspect of the Machine of Profit™ in an entire library full of arcane functions. Tested and praised for their striking simulation of reality. They were thrifty scavengers with a gifted sense of time, known to survive for weeks on end without nourishment, readied in travelled groves to suckle the moisture from their weary foes. An ability which allowed them to work for days on end without even a puddle of coy to contrive. An introverted cog of divine certification and befuddled self-esteem, they where the ultimate servants to the establishment, vaticinal in their ability to optimise even the most basic of algorithms. Lead by a pale autistic child who bore tiny little keyboards for fingers, the child went as far as to have his frail body fused into the Machine of Profit™ itself, dependent upon it's operation for his survival. Known to orange-backs as the Son of Machine™.
 
