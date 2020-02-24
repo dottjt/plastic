@@ -8,7 +8,9 @@ day: "Saturday."
 
 ### Leaving the apartment
 
-Thirty-fuck. The trixie air slams it's hairy coon into the back of my neck, travelling across my cheek in a fastidious rain of filched indiscriminate. Season's greeting, you cunt. Streaks of lightning jilt n' tither across my jaw, throwing my twirl into a pirouette rotation of cross-examination. Two fingers enter my mouth, suckling the impressionable membrame of my gums. A protruding lump. I picture my favourite stripper wearing a U.S.A. theme bikini outfit. Parading her fake tits like a deranged rapist. I was cold. The air was fresh and I was cold. Too cold for the flimsy balcony supporting the weight of these two feet, along with the 150 something others whom lived in this apartment block. A concrete tell-tale of Dicken's brick and 60s' labour. My breath smelt like shit, and I was going to show it. Joint in hand. Ready to roll. Maybe that's just what the writer's flair was all about. Keep it classy, cumberbatch.
+Thirty-fuck. The trixie air slams it's hairy coon into the back of my neck. Needlessly travelling across my cheek in a fastidious rain of filched indiscriminate. Season's greetings, you cunt. Streaks of lightning jilt n' tither across my jaw, throwing it's twirl into a pirouette rotation of cross-examination. Index and middle fingers enter my mouth. Suckling the impressionable membrame of my gum. A protruding lump. Mullion vomit. The ruse of a deadbeat mensch.
+
+I was cold. The air was fresh, and I was cold. Too cold for the flimsy balcony supporting the expanding curfew of lines departing from my torso. A feet and a foot. The forbode of a commission housing nightmare, trickling with the sweet awe of exodus. Gravid poverty's expect. A concrete tell-tale of Dicken's brick and 80s' fanfare, siphoning leverage from the hundreds of burdensome souls preoccupying the locality of this apartment block. Crawling pebble walls covered in pig's brine. The stench of a generation. My breath smelt like shit, and I was going to show it. Joint in hand. Ready to roll. I picture my favourite porn star wearing a U.S.A. themed bikini outfit. Sprayed with fake tan. Drenched with oil. Parading her fake tits like a deranged rapist. Keep it classy, cumberbatch. Penthouse defile.
 
 ### Woman appears / Describe neighbourhood
 
@@ -16,7 +18,7 @@ A woman appears from the staircase, carrying what seems to be a large stack of b
 
 ### Describe woman
 
-The first thing I noticed was the silky black texture of the skin on her arms. Worn without crown, delegating the rapier luminosity of elegance she clearly held without noticing, which simply flowed from her long curly hair and down to her hips. I was mesmerised. I wanted more. I had become corrupt. She stumbled towards me in an exhaled gaff of sweat, in her collossal attempt to haul this thing up 16 flights of stairs. Placing the boxes down on the ground in complete exhaustion, revealing the rest of her face and body. She was gorgeous, and I was me. I suppose the least I could was flirt with her, especially now that she was at her weakest.
+The first thing I noticed was the silky black texture of her skin. Worn without crown, delegating the rapier luminosity of elegance she clearly held without noticing, which simply flowed from her long curly hair and down to her hips. I was mesmerised. I wanted more. I had become corrupt. She stumbled towards me in an exhaled gaff of sweat, in her collossal attempt to haul this thing up 16 flights of stairs. Placing the boxes down on the ground in complete exhaustion, revealing the rest of her face and body. She was gorgeous, and I was me. I suppose the least I could was flirt with her, especially now that she was at her weakest.
 
 "Hey, do you need hand with that? I'm just from down the hall," I offered, sounding barely genuine in my stoned hunger. Clearly offering more than just a rag of sincere physical extrapolation. I mean, I was wearing stained track pants for god's sake. I was either a hermit or a pedophile. Possibly both.
 
@@ -47,5 +49,7 @@ I receive a text. "I look forward to tonight xoxo". My temperature rose. Shit. T
 "Yes. I would love that." I wasn't sure if what I said came across as being needy, however it was genuinely how I felt. An overwhelming sense of warmth and connection, which transcended well-beyond her thorough intelligence and marvelous attraction. It was a sense of connection that I'd never felt before. She was the one that I wanted to be with. Of course, as per usual, I wasn't sure if I'd simply become delusional
 
 She walked me out to the front, waving with a smitten smile attached to her face, as I left her apartment in a giddy of infatuation. Maria was her name. As beautiful as beauty could be.
+
+I recieve another text from Milo. This time an image. Transparent red lace. Pure white skin. An exercise of pre-cum on this Sunday afternoon.
 
 ## Scene 1 END

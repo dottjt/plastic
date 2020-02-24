@@ -8,8 +8,7 @@ day: "Saturday."
 
 ### Arrival at her apartment
 
-
-
+I wish I had a car. But instead, I had a date. 
 
 <!-- I think the theme I want for this chapter is that the character has forgotten all about her. -->
 
