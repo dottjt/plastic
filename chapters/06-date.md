@@ -8,7 +8,9 @@ day: "Saturday."
 
 ### Arrival at her apartment
 
-I wish I had a car. But instead, I had a date. 
+I wish I had a car. But instead, I had a date. A wholesome exchange of flavoured tinnitus. The heated interaction between trying to merge an
+
+A parlance between a squashed antelope and the world's smallest Lego brick.    between a woman's biggest nightmare and a man's smallest
 
 <!-- I think the theme I want for this chapter is that the character has forgotten all about her. -->
 

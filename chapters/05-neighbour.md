@@ -50,6 +50,6 @@ I receive a text. "I look forward to tonight xoxo". My temperature rose. Shit. T
 
 She walked me out to the front, waving with a smitten smile attached to her face, as I left her apartment in a giddy of infatuation. Maria was her name. As beautiful as beauty could be.
 
-I recieve another text from Milo. This time an image. Transparent red lace. Pure white skin. An exercise of pre-cum on this Sunday afternoon.
+I recieve another text from Milo. This time an image. Transparent red lace. Trim embellish. Pure white skin. An exercise of pre-cum on this Sunday afternoon.
 
 ## Scene 1 END
