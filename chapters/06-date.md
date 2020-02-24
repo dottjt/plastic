@@ -8,9 +8,22 @@ day: "Saturday."
 
 ### Arrival at her apartment
 
-I wish I had a car. But instead, I had a date. A wholesome exchange of flavoured tinnitus. The heated interaction between trying to merge an
+Blah. Blah. Blah. Twirple. Twerp. Smitten, hee. Barmy. Larmy. Surple. Cat-anya. Slosh. Plum. Sempre. Empire. Oh. Empire? Zanana. Tempelio. Adarsh. Fremisimo. Palundius. Mant. Cultun. Splatoot. Natura. Nervous. Excited. Quaint.
 
-A parlance between a squashed antelope and the world's smallest Lego brick.    between a woman's biggest nightmare and a man's smallest
+I felt sick. My heart wretched tight. My eyes tumbled around in violent hurl of breakfast. My immediate vicinity a mere outline of dissolved potential. Shapes mimicing bread crust. Explosions of yeast in my stomach. I accidentally bump into a child with a flower crown. She dies. Her entire body splits in half, snapping her frame in two. The screaming is unbearable. It is like choking on ice. I attempt to run away, but the relativity pulls me back, forcing the adrenaline through my tears. I begin touching myself uncontrollably. I just want to be me.
+
+I arrived at the street of plenty, embalmed in a couldron of anxiety. Umbrella in hand, happy to appear relevant in this giant boardgame of a neighbourhood. Perhaps I'll be mugged today by a giant elf with pointy ears. I walked my way along each house, appreciation the community of tall wall-bearing ceilings 
+
+
+ and cracked walls, relished by the old tin roofs archivist love to
+
+ The northern end of town. Old brick houses,
+
+
+
+ A wholesome exchange of flavoured tinnitus, sneaking itself scalloped into the vice of your dreams.
+
+
 
 <!-- I think the theme I want for this chapter is that the character has forgotten all about her. -->
 
@@ -37,6 +50,16 @@ Milo looked at me with wide-open eyes, tautologically drawing the outline of my 
 I'd always been afraid of this moment, where man meets women, carried by the heavy hands of fate onto something greater. Where the expectation was loud and vast, ripping itself methodologically into the grain of your skin, scolding bone as a consequence of childish demeanor.
 
 "Very funny," I noted in extreme caution, knowing full-well that there was a 1 in 10 chance that her flirtatious actions could result in a round of heated bathroom sex, unfortunate for the disabled sod in a 60s' wheel chair holding on for dear life to the ambient noise of sexual wear n' tear.
+
+
+
+
+
+// maybe speak about how the chemistry had somewhat died.
+
+like tryin' ta squash Lego into squelched antelope. The world's smallest tongue, preaching a woman's biggest nightmare.
+
+
 
 ## Scene 2 END
 

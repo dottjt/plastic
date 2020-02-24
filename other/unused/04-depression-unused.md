@@ -4,7 +4,6 @@ circular needles
 
 circular modesty and
 
-Sneaking itself scalloped into the vice of your dreams.
 
 to the foreboding impasse
 
