@@ -8,17 +8,17 @@ day: "Saturday."
 
 ### Arrival at her apartment
 
-Blah. Blah. Blah. Twirple. Twerp. Smitten, hee. Barmy. Larmy. Surple. Cat-anya. Slosh. Plum. Sempre. Empire. Oh. Empire? Zanana. Tempelio. Adarsh. Fremisimo. Palundius. Mant. Cultun. Splatoot. Natura. Nervous. Excited. Quaint.
+Blah. Blah. Blah. Twirple. Twerp. Twat. Surrrpple. Schlop. Slosh. Barmy. Larmy. Plum. Sempre. Empire. Oh. Empire? Zanana. Tempelio. Adarsh. Fremisimo. Palundius. Mant. Cultun. Splatoot. Eippal. Wzender. Mollat. Cat-anya. Howwel. Venner. Natura. Nervous. Excited. Quaint.
 
-I felt sick. My heart wretched tight. My eyes tumbled around in violent hurl of breakfast. My immediate vicinity a mere outline of dissolved potential. Shapes mimicing bread crust. Explosions of yeast in my stomach. I accidentally bump into a child with a flower crown. She dies. Her entire body splits in half, snapping her frame in two. The screaming is unbearable. It is like choking on ice. I attempt to run away, but the relativity pulls me back, forcing the adrenaline through my tears. I begin touching myself uncontrollably. I just want to be me.
+I felt sick. Heart wretched tight. Eyes tumbled violent. A hurl of mirage. Tenderised. Stripped. Breakfast. A sidewalk of sausage. Mahogany. Fuck. My immediate vicinity. A mere outline of dissolved potential. Shapes n' sounds. Our friendly dynamic duplicit dynamo duality duo. That's right. That's right. That's right! Pow! Wow! OMG!? The bread. The butter. My mouth. An explosion of yeast. Rumbling through my stomach. Beautiful boy. Lovely Liam. Teeth like corroded rubber. I accidentally bump into a child with a flower crown. She dies. Her entire body splits in half, snapping her frame in two. Her stupid moronic screaming, an unbearable shriek of lousy attention-seeking bullshit. It is like choking on ice. Fuck her life. It is shit. I attempt to run away, but the relativity pulls me back. Forcing the adrenaline to flow through my tears. Tear tearing the torn tear. I begin touching myself uncontrollably. I just want to be. Let me be me. Be me be. Let.
 
-I arrived at the street of plenty, embalmed in a couldron of anxiety. Umbrella in hand, happy to appear relevant in this giant boardgame of a neighbourhood. Perhaps I'll be mugged today by a giant elf with pointy ears. I walked my way along each house, appreciation the community of tall wall-bearing ceilings 
+I arrived at the street of plenty, embalmed in a couldron of anxiety. Umbrella in hand, happy to appear relevant in this giant boardgame of a neighbourhood. Perhaps I'll be mugged today by a giant elf with pointy ears. I walked my way along each house, appreciation the community of Victorian terrace walls, supporting the Edwardian ceilings stolen from the rich. Cracked and relished by the rusted tin roofs engulfed in common ivy, born from the mismatch furniture which sat outside on the front porch. I pictured Milo being fucked on the cream leather couch, faded  while holding a beer.
 
+The sharehouse she lived in was no different. Another piece of brown real estate to be played on this board of extradition. I walked up to the
 
  and cracked walls, relished by the old tin roofs archivist love to
 
  The northern end of town. Old brick houses,
-
 
 
  A wholesome exchange of flavoured tinnitus, sneaking itself scalloped into the vice of your dreams.
