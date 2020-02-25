@@ -30,9 +30,16 @@ My birthday was coming up. It helped to be prepared.
 
 
 
+
+## Scene 1 END
+
+####
+
+## Scene 2 START
+
 ## A Gun shop.
 
-A gun shop. I'd never bought a gun before. I suppose there was no harm in 
+A gun shop. I'd never bought a gun before. I suppose there was no harm in
 
 
 
@@ -58,10 +65,3 @@ I hesitated slightly. I think she noticed.
 "What looks cooler?"
 
 I liked the idea of a revolver.
-
-
-## Scene 1 END
-
-####
-
-## Scene 2 START

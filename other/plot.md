@@ -16,7 +16,9 @@ He wakes up the next day in a slump of depression. His usual Saturday funk. He e
 It's midday. He decides to leave the apartment for some fresh air, where he bumps into a neighbour and decides to help them out. The neighbour turns out to be a gorgeous African lady who's obsessed with film and cinema. Her name is Maria. She is kind and stable. They appear like-minded and right for each other. He enters her apartment and they get to know each other. He recieves a text from Milo, and leaves for his date with Milo.
 
 ## date. Chapter 6 - Saturday
-Later in the afternoon, he heads out to her apartment. She's not quite right. Possibly on drugs. The head out. The engage with activities. (Still not sure what they actually do). They come back to his place. They have sex. He'd can't orgasm.
+Later in the afternoon, he heads out to her sharehouse. He briefly meets her housemate. She's not quite right. Possibly on drugs. The head out. They decide to walk in the city. 
+
+They come back to his place. They have sex. He'd can't orgasm.
 
 ## reality. Chapter 7 - Sunday
 He wakes up with Milo, obsessed with her. Yet she's completely indifferent to him. She's changed. She's almost disgusted with him. She breaks up with him. It's over. He falls into an immediate depression. She leaves. Talk about the cam girl.
