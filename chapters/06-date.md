@@ -7,27 +7,30 @@ day: "Saturday."
 ## Scene 1 START
 
 ### Arrival at her apartment
-
+<!--
 Blah. Blah. Blah. Twirple. Twerp. Twat. Surrrpple. Schlop. Slosh. Barmy. Larmy. Plum. Sempre. Empire. Oh. Empire? Zanana. Tempelio. Adarsh. Fremisimo. Palundius. Mant. Cultun. Splatoot. Eippal. Wzender. Mollat. Cat-anya. Howwel. Venner. Natura. Nervous. Excited. Quaint.
 
-I felt sick. Heart wretched tight. Eyes tumbled violent. A hurl of mirage. Tenderised. Stripped. Breakfast. A sidewalk of sausage. Mahogany. Fuck. My immediate vicinity. A mere outline of dissolved potential. Shapes n' sounds. Our friendly dynamic duplicit dynamo duality duo. That's right. That's right. That's right! Pow! Wow! OMG!? The bread. The butter. My mouth. An explosion of yeast. Rumbling through my stomach. Beautiful boy. Lovely Liam. Teeth like corroded rubber. I accidentally bump into a child with a flower crown. She dies. Her entire body splits in half, snapping her frame in two. Her stupid moronic screaming, an unbearable shriek of lousy attention-seeking bullshit. It is like choking on ice. Fuck her life. It is shit. I attempt to run away, but the relativity pulls me back. Forcing the adrenaline to flow through my tears. Tear tearing the torn tear. I begin touching myself uncontrollably. I just want to be. Let me be me. Be me be. Let.
+I felt sick. Heart wretched tight. Eyes tumbled violent. A hurl of mirage. Tenderised. Stripped. Breakfast. A sidewalk of sausage. Mahogany. Fuck. My immediate vicinity. A mere outline of dissolved potential. Shapes n' sounds. Our friendly dynamic duplicit dynamo duality duo. That's right. That's right. That's right! Pow! Wow! OMG!? The bread. The butter. My mouth. An explosion of yeast. Rumbling through my stomach. Beautiful boy. Lovely Liam. Teeth like corroded rubber. I accidentally bump into a child with a medicinal flower crown. She dies in an expiry of shame. Her entire body. Snapping in half. Splitting her delicate frame in two. Her stupid moronic screaming. An unbearable dither of lousy attention-seeking bullshit. It is like choking on ice. Fuck her life. I attempt to run away, but the relativity pulls me back. Tear tearing the torn tear you tatter tit tome. I begin touching myself uncontrollably. I just want to be. Let me be me. Be me be. Let.
+-->
 
-I arrived at the street of plenty, embalmed in a couldron of anxiety. Umbrella in hand, happy to appear relevant in this giant boardgame of a neighbourhood. Perhaps I'll be mugged today by a giant elf with pointy ears. I walked my way along each house, appreciation the community of Victorian terrace walls, supporting the Edwardian ceilings stolen from the rich. Cracked and relished by the rusted tin roofs engulfed in common ivy, born from the mismatch furniture which sat outside on the front porch. I pictured Milo being fucked on the cream leather couch, faded  while holding a beer.
+I arrived at the street of plenty. Embalmed in a couldron of anxiety. Umbrella in hand. Happy to appear relevant in this giant boardgame of neighbourhood. Perhaps I'll be mugged today by a giant elf with pointy ears, a precious reminder to always wield magic. I walked my way along each house, appreciative of the Victorian terrace walls and their avid continuity. Supporting the Edwardian ceilings stolen, cracked and relished by the rusted tin roofs engulfed in common ivy. Born from the accolade of mismatch furniture which sat outside on the timber front porch, hosting parties for the meek and well-deserved. I pictured Milo being fucked on the worn leather of the cream couch in the front lawn of her sharehouse, faded in op-shop sweater, holding a beer now being ravaged from her arms as the man pinned her down and showed her pleasure. The front door was no better. I'm sure there was a glory hole somewhere, as I geared myself for a wholesome exchange of flavoured tinnitus, ready to impress her paper-thin waist with a good ol' whack-a-moleay.
 
-The sharehouse she lived in was no different. Another piece of brown real estate to be played on this board of extradition. I walked up to the
+I ring the doorbell and wait. Damn, I probably should have just called her instead. I hear erratic footsteps. Then a thud. The door opens and a girl with pink hair bursts out in an exorbitant display of giddy laughter, before falling to floor in a heave of gasping panic. She stops. She turns and looks up at me with a daint smile of incapacitated charm, licking her lips playfully, as if to reminder herself that her lips were even there. Definitely the kind of girl who encouraged date rape to overcoming the awkwardness of actually expressing herself. I step over her body and into the hallway. She could be fucked later. I turn an immediate right, where I find Milo leaning extensibly on the Kitchen bench, decorated in thigh-high knitted socks, which continue into the outskirts of a pink-lace pantyhose. Seemingly, the only sane person in this entire house. Well, that was until I witnessed her take out and reinsert a used tampon in front of my very eyes. Perhaps we were already married.
 
- and cracked walls, relished by the old tin roofs archivist love to
+"How's it going, stranger?", she professed, struggling to pull her leggings up. Admittedly, standing here in this room, I failed to recognise her. Chances were that I simply didn't want to recognise her. A grotesque husk of 
 
- The northern end of town. Old brick houses,
+Most likely,
+
+That I could no longer appreciate her for who she actually was.
 
 
- A wholesome exchange of flavoured tinnitus, sneaking itself scalloped into the vice of your dreams.
+
 
 
 
 <!-- I think the theme I want for this chapter is that the character has forgotten all about her. -->
 
-Milo, who leaning back in her extendible office chair on her desk, decorated in thigh-high knitted socks which continued into the outskirts of a pink-lace pantyhose, seemed like the only sane person in the room.
+Milo, who leaning back in her extendible office chair on her desk,
 
 "Well, aren't ya gonna come in an' fuck me?"
 

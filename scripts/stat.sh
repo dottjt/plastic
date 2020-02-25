@@ -49,7 +49,7 @@ extract_commit_date() {
 accumulative_commit_word_stats() {
 
   # REPO_COMMITS=$(git log --reverse --oneline --quiet)
-  REPO_COMMITS=$(git log --reverse --pretty=format:"%h%x09%ad%x09%s\n")
+  REPO_COMMITS=$(git log -n 20 --reverse --pretty=format:"%h%x09%ad%x09%s\n")
   # CURRENT_DATE="NA"
 
   echo $REPO_COMMITS | while read -r repo_commit_id_with_date
