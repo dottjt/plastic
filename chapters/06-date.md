@@ -7,32 +7,28 @@ day: "Saturday."
 ## Scene 1 START
 
 ### Arrival at her apartment
-<!--
+
 Blah. Blah. Blah. Twirple. Twerp. Twat. Surrrpple. Schlop. Slosh. Barmy. Larmy. Plum. Sempre. Empire. Oh. Empire? Zanana. Tempelio. Adarsh. Fremisimo. Palundius. Mant. Cultun. Splatoot. Eippal. Wzender. Mollat. Cat-anya. Howwel. Venner. Natura. Nervous. Excited. Quaint.
 
 I felt sick. Heart wretched tight. Eyes tumbled violent. A hurl of mirage. Tenderised. Stripped. Breakfast. A sidewalk of sausage. Mahogany. Fuck. My immediate vicinity. A mere outline of dissolved potential. Shapes n' sounds. Our friendly dynamic duplicit dynamo duality duo. That's right. That's right. That's right! Pow! Wow! OMG!? The bread. The butter. My mouth. An explosion of yeast. Rumbling through my stomach. Beautiful boy. Lovely Liam. Teeth like corroded rubber. I accidentally bump into a child with a medicinal flower crown. She dies in an expiry of shame. Her entire body. Snapping in half. Splitting her delicate frame in two. Her stupid moronic screaming. An unbearable dither of lousy attention-seeking bullshit. It is like choking on ice. Fuck her life. I attempt to run away, but the relativity pulls me back. Tear tearing the torn tear you tatter tit tome. I begin touching myself uncontrollably. I just want to be. Let me be me. Be me be. Let.
--->
 
-I arrived at the street of plenty. Embalmed in a couldron of anxiety. Umbrella in hand. Happy to appear relevant in this giant boardgame of neighbourhood. Perhaps I'll be mugged today by a giant elf with pointy ears, a precious reminder to always wield magic. I walked my way along each house, appreciative of the Victorian terrace walls and their avid continuity. Supporting the Edwardian ceilings stolen, cracked and relished by the rusted tin roofs engulfed in common ivy. Born from the accolade of mismatch furniture which sat outside on the timber front porch, hosting parties for the meek and well-deserved. I pictured Milo being fucked on the worn leather of the cream couch in the front lawn of her sharehouse, faded in op-shop sweater, holding a beer now being ravaged from her arms as the man pinned her down and showed her pleasure. The front door was no better. I'm sure there was a glory hole somewhere, as I geared myself for a wholesome exchange of flavoured tinnitus, ready to impress her paper-thin waist with a good ol' whack-a-moleay.
+It was dark. I'd just arrived at the street of plenty. Embalmed in a couldron of anxiety. Umbrella in hand. Happy to appear relevant in this giant boardgame of neighbourhood. Perhaps I'll be mugged today by a giant elf with pointy ears, a precious reminder to always wield magic. I walked my way along each house, appreciative of the Victorian terrace walls and their avid continuity. Supporting the Edwardian ceilings stolen, cracked and relished by the rusted tin roofs engulfed in common ivy. Born from the accolade of mismatch furniture which sat outside on the timber front porch, hosting parties for the meek and well-deserved. I pictured Milo being fucked on the worn leather of the cream couch in the front lawn of her sharehouse, faded in op-shop sweater, holding a beer now being ravaged from her arms as the man pinned her down and showed her pleasure. The front door was no better. I'm sure there was a glory hole somewhere, as I geared myself for a wholesome exchange of flavoured tinnitus, ready to impress her paper-thin waist with a good ol' whack-a-moleay of thy peen.
 
-I ring the doorbell and wait. Damn, I probably should have just called her instead. I hear erratic footsteps. Then a thud. The door opens and a girl with pink hair bursts out in an exorbitant display of giddy laughter, before falling to floor in a heave of gasping panic. She stops. She turns and looks up at me with a daint smile of incapacitated charm, licking her lips playfully, as if to reminder herself that her lips were even there. Definitely the kind of girl who encouraged date rape to overcoming the awkwardness of actually expressing herself. I step over her body and into the hallway. She could be fucked later. I turn an immediate right, where I find Milo leaning extensibly on the Kitchen bench, decorated in thigh-high knitted socks, which continue into the outskirts of a pink-lace pantyhose. Seemingly, the only sane person in this entire house. Well, that was until I witnessed her take out and reinsert a used tampon in front of my very eyes. Perhaps we were already married.
+I ring the doorbell and wait. Damn, I probably should have just called her instead. I hear erratic footsteps. Then a thud. The door opens and a girl with pink hair bursts out in an exorbitant display of giddy laughter, before falling to floor in a heave of gasping panic. She stops. She turns and looks up at me with a daint smile of incapacitated charm, licking her lips playfully, as if to reminder herself that her lips were even there. Definitely the kind of girl who encouraged date rape to overcoming the awkwardness of actually expressing herself. I step over her body and into the hallway. She could be fucked later. I turn an immediate right, where I find Milo leaning extensibly on the Kitchen bench, decorated in thigh-high knitted socks, which continue into the outskirts of a pink-lace pantyhose. Seemingly, the only sane person in this entire house. Well, that was until I witnessed her take out, as well as reinsert a used tampon in front of my very eyes. Perhaps we were already married.
 
-"How's it going, stranger?", she professed, struggling to pull her leggings up. Admittedly, standing here in this room, I failed to recognise her. Chances were that I simply didn't want to recognise her. A grotesque husk of 
+"How's it going, stranger?", she signalled, passing me a sedated wink of comical desire, as she struggled to pull her leggings up. Admittedly, standing here in this room, I felt undecided about her existence. It was neither a feel of abhorrence, nor attraction. Only a failure to recognise why I was truly here, conflict against the fantasy I had upheld of her stature for so incredibly long. Chances were that I simply didn't want to recognise the grotesque husk of flea-infested cum standing in front of me, reeking of a black tar which even fracking itself could not produce. And yet, as I abhored her, I was reminded of the fact that she was simply a female version of me, and arguably I simply hated myself. Then it occurred to me that I simply didn't have the courage to approach my own desperation and loneliness beyond the women I threw myself at, if only to create the impression that I was worth at least someone's attention. Hopefully, she would let me hold her hand.
 
-Most likely,
+"Not too bad. I bumped into your friend at the door, are they going to be okay? I think she's on the front patio, laughing at a ladybug." She seemed unconcerned.
 
-That I could no longer appreciate her for who she actually was.
+"Oh yeah. It's only Ketamine. She's been on it twice a week now for quite a while now, so I would say she's safe." An expert opinion an expert soul. Welcome to reality, where nothing makes sense and everyone around you whoring for that wonderful fuck-stick of disgression.
 
+She lights up a cigarette, strutting towards me. Exhaling before kissing me on the lips. She curls her leg around mine, kicking my excitement into full-gear as the relevancy became relevant. The light was here and it was my time to shine.
 
+"What do you say we head to the city? My shout."
 
+## Scene 1 END
 
-
-
-<!-- I think the theme I want for this chapter is that the character has forgotten all about her. -->
-
-Milo, who leaning back in her extendible office chair on her desk,
-
-"Well, aren't ya gonna come in an' fuck me?"
+####
 
 ## Scene 2 START
 
