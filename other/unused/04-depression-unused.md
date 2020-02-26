@@ -1,5 +1,9 @@
 # 04-depression.md
 
+dragging rapine imposture miserably
+
+Dead. Dead. Dead. Like the Dead
+
 circular needles
 
 circular modesty and

@@ -8,9 +8,9 @@ day: "Saturday."
 
 ### Depression Monologue
 
-"Moderately entertaining." Tonight's obligations are being delivered pro-rata in a cheerless harmony of subversive glee. The words, dragging themselves miserably along a serrated tarmac of circular modesty and profane tripe. Dead. Dead. Dead. Like the Dead Recurved Skunk of St. Nicholas' grave, which lies on it's belly in the tall notched grass besides the knurled quandry grasping at it's toes. Cheeky, in an attempt to tell a misplaced joke about the inequality of nuts. Hilarious, in the laughter which ensues. The crowd applauses. The Skunk staves night for one more day, and the after party is wild in it's veneration of critique. The Skunk is esteemed. Breasts are held. What a great day for comedy in this kowtow of pudicity, misplaced in the insecurity nibbling at your woes. Although in keeping relevant with my response, I simply yawned at the review, testament to my perception as Queen in this brute resilience of force and sensuality.
+"Moderately entertaining." Tonight's obligations are being delivered pro-rata amidst a cheerless harmony of subversive glee. The paraxial of thy gracious word, dragging thyself miserably along a serrated tarmac of profane lunacy and modest respite. Specularly contoured in a harlem of abjection, like the Dead Recurved Skunk of St. Nicholas' grave, which lies on it's belly in the tall notched grass besides the knurled quandry grasping at it's toes.
 
-### Depression Monologue 2
+Cheeky, in an attempt to tell a misplaced joke about the inequality of nuts. Hilarious, in the laughter which ensues. The crowd applauses. The Skunk staves night for one more day, and the after party is wild in it's veneration of critique. The Skunk is esteemed. Breasts are held. Champange is saundered. What a great day for comedy in this kowtow of pudicity, misplaced in the absurdity nibbling at your woes. Although in keeping relevant with my response, I simply yawned at the review, testament to my perception as Queen in this brute resilience of force and sensuality.
 
 Victorian mal-la-la-laise. Oh dear. The scant face behind the ceiling snarls in grave fashion, hushing at the feint tapper of lovely's past. "Does the knife hurt, sweetie? Can you feel it grasp at your pain? Do you need it slightly closer to the EDGE of your HEART so you can SATIRISE my MALTREATMENT!?" I wasn't quite sure what to think of the haste pleasantries being thrown my way, unrecoverable in the thick unease permeating through my velvet angular plea. "My compliments to the chef!", I thought rather aimlessly, as I poured myself another glass of wine, confining myself to the tight pre-occupied spaces of my mind. A fallous attempt to withdraw my arrival from the world, where in a sudden snap of attention, I decide to embark my riches into the fabulous nooks and crannies of evaluation's eroded retreat. Cyclical cycle. Delicious tampoon. Where will you be when you lick my gloom. Et al.
 
@@ -32,7 +32,7 @@ Maybe I felt guilt over the way I treated my mother. A tidal disowning the equal
 
 ### Mother's Text/Decides to smoke weed
 
-I receive a text from my mother. Oh, for fuck's sake, will she just leave me alone already? In a lot of ways, my overwhelming hatred for my mother was nothing more than a state of mind which my brain had been trained to default to. Like when a child sighs at the thought of doing homework, I simply wanted to use her face as a rake to comfort the rocks in my patio. Thankfully, these particular rocks have been known to contain abundant feng-shui, a detail I'm sure her face would delight. I pick myself up from my bed and make my way to the bathroom, poking the skin of my naked body in the shape of a pea. Gasping in front of the mirror. Short of breath. Hopelessly suffocating in what little I knew about myself. Faltering it's signal in overlapping patterns. Perhaps my body was attempting to physically cry. To express how little it wanted to live. Perhaps I'd simply feel better after a wake n' bake. Yeah. That's what I needed. It was time to degrade.
+I receive a text from my mother. Oh, for fuck's sake, will she just leave me alone already? In a lot of ways, my overwhelming hatred for my mother was nothing more than a state of mind which my brain had been trained to default to. Like when a child sighs at the thought of doing homework, I simply wanted to use her face as a rake to comfort the rocks in my patio. Thankfully, these particular rocks have been known to contain abundant feng-shui, a detail I'm sure her face would delight. I pick myself up from my bed and make my way to the bathroom, poking the skin of my naked body in the shape of a pea. Gasping in front of the mirror. Short of breath. Hopelessly suffocating in what little I knew about myself. Faltering it's signal in overlapping patterns. Perhaps my body was attempting to physically cry. To express how little it wanted to live. Perhaps I'd simply feel better after a wake n' bake. Yeah. That's what I needed. A universal craving without a suitable name. The textile of green.
 
 ## Scene 1 END
 
@@ -46,7 +46,7 @@ Abdula's Potato. Papier-mâché cables. The desk which swore. The distant protes
 
 ### Talk about weed usage
 
-Perhaps weed wasn't entirely necessary for my survival, although my brain certainly didn't know any better. As far as it was concerned, drugs were an entirely necessary addition to my existence, perhaps even compromising of existence itself, inflating the insular hope which clouded my lungs and left me in an a glaze of fine China. I don't remember when I first started smoking weed, only that it was a tradition which had relegated itself to weekends. First you gain sentience. Then you inhale. Then you disperse, packing the sucker as hard as you can until your lungs collapse and you find yourself chewing on the hard excess of dopamine for weeks on end. I safely kept my weed in a glass-jar next to a modified Gatorade bottle, stitched together with cut government piping and a patch of aluminium foil. I grind the weed and I put my headphones on. It's looks like we're gold again.
+Perhaps weed wasn't entirely necessary for my survival, although my brain certainly didn't know any better. As far as it was concerned, drugs were an entirely necessary addition to my existence, perhaps even compromising of existence itself, inflating the insular hope which clouded my lungs and left me in an a glaze of fine China. I don't remember when I first started smoking weed, only that it was a tradition which had relegated itself to weekends. First you gain sentience. Then you inhale. Then you disperse, packing the sucker as hard as you can until your lungs collapse and you find yourself chewing on the hard excess of dopamine for weeks on end. I safely kept my weed in a glass-jar next to a modified Gatorade bottle, stitched together with cut government piping and a patch of aluminium foil. A circular edge along an epaxial line. I grind the weed and I put my headphones on. It's looks like we're gold again.
 
 ### Describe study
 
@@ -63,7 +63,7 @@ Usually my plan was to buy as much junk as possible from the supermarket. We're 
 
 Ultimately, I wasn't even sure why I did it. Perhaps it just made me feel cool. The self-loathing of incapacitation. To return myself to
 
-I rose up out of my chair and headed for the door. A putty of pineal hormones, not quite so determined to seek plenary assembly in this chamber of partite inequality. 
+I rose up out of my chair and headed for the door. A putty of pineal hormones, not quite so determined to seek plenary assembly in this chamber of partite inequality.
 
 
 ## Scene 2 END

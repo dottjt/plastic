@@ -72,4 +72,6 @@ It's
 
 I sat back at my desk.
 
+Ah, fuck therapy. 
+
 ## Scene 3 END

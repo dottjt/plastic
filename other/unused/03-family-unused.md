@@ -9,7 +9,7 @@ The 21st Century Asian was a fickle creature which did not need what it saw, and
 
 permanent
 
-Father's industrial-strength facial cream.
+.
 A cinematic netherworld of tartarus condemnation.
 
 precipitating in the ooze of

@@ -153,3 +153,8 @@ treat.
 - Maybe have a look at some writing on tumblr regarding these events.
 - Sign up for a dev account on tumblr, and download all your writing that way. -
 - Organise blogspot entries into their own formatted md files.
+
+
+# IDEAS
+
+- I have a chapter where the character says "Ah, fuck therapy." and that's all the chapter is. If not to simply demonstrate and show the apathy of the character.

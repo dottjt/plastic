@@ -6,31 +6,19 @@ day: "Sunday."
 
 ## Scene 1 START
 
-### Human Fantasy Discussion
+### Magazine
 
-The front cover of every magazine. Sizing and measuring you down to the retrofit standard. That glorious award, to be printed at birth, stuck on your forehead and published to the nearest data collection centre, where it will be processed under the fine eye of a complex Japanese algorithm written in comparative lisp. "You are an average Asian male with an overwhelming propensity for sticking your penis into the wrinkled foreskin of pretentious white women," my label states, time-stamped in a beautiful font, extracted from a contemporary guide to desktop publishing. We try to love ourselves. We try to breathe meaning into our pursuits and leisures, providing them with hope and transparent textures to decorate our lives with, only to see them absorbed by a plague of locusts completing their regular routine around your ego.
+The front cover of every men's magazine. Sizing and measuring you down to the retrofit standard. That glorious award, to be printed at birth, stuck on your forehead and published to the nearest data collection centre, where it will be processed under the fine eye of a complex Japanese algorithm written in comparative lisp. "You are an average Asian male with an overwhelming propensity for sticking your penis into the wrinkled foreskin of pretentious white women," my label states, time-stamped in a beautiful font, extracted from a contemporary guide to desktop publishing. We try to love ourselves. We try to breathe meaning into our pursuits and leisures, providing them with hope and transparent textures to decorate our lives with, only to see them absorbed by a plague of locusts completing their regular routine around your ego.
 
 ### Clinic Lobby
 
 I sat there in the lobby of the clinic. Digested. Flippin' through the sham of last week's editorial, published by a fat clown. Some bullshit about Iran. The revolutionary sand dunes of the mind. Carb crazy. A woman in a coat sippin' ethical soda by the gallon. Pink vagina. Purple heart. The breakin' daffney of a village school pen. Scratchity sun. A sweater with a nylon face. I see yellow. Flower imprint. I suppose she was beautiful by human standards, like a flickering light in the basement of an underground nightclub. A quick fuck before the heart attack. I certainly couldn't love her. Not with a face like that. The distraction calls my name. It was time for Sunday therapy. My least favourite part of the week.
 
-### Conversation Therapist
-
-"Well, for starters, I disowned my mum," I began, pretending as if I were actually being interviewed for a popular position on a TV show sitcom. I gleamed at her noticably, taking note of the bright green earrings she wore. An op-shop discount for a very special lady with a handbag for a husband. As per usual, the therapist was unimpressed with my lack of commitment. Perhaps she was even so uninspired by my tatty remark, that it caused her to activate the remote vibrator in her vagina, just to get a little kick out of my general . Certainly, I don't recommend sexualising disappointment, although it's a quick fix for what is essentially a poor choice in career. Go study economics instead.
-
-"...aaaaaand I've been dumped, and I pretty much want to kill myself." I hope she picked up on the sarcasm. I also hoped she'd just drop dead on the floor and begin spasming on the ground, eager for my blunt hands to take advantage of her talcum breasts, but did it really even matter at this point? Can I please get an AMEN?
-
-"Listen, I'm sorry. I'm just joking. There's just a lot going on in my life at the moment." She continued to eye me, before finally deciding to chime in.
-
-"I understand that it must have been difficult. Would you like to talk about it?", she responded. Outstanding professionalism. The enema of politeness. Another fuck-hole with a source of intelligence. Thank god this program was Government funded.
-
-I reached out into the depths of my brain, hoping to find something rational to respond with. Truth was, there was simply too much to tell. How does one express the crushing guilt, sadness and anger that one feels, without pulling a gun out and simply allowing the remenants of reality speak for itself? I decided to grab myself a plastic cup of water from the watercooler in the room, taking my time not to further defame my already ruined reputation as a possible unrealised sex offender. Children too. Yummy yummy. Let this whispy stranger take you to a place your parents couldn't possibly imagine.
-
-"I just feel bad about everything, you know? I feel guilty for the absolute hate I feel towards my mother, like that makes me a bad son. I feel cheated for being dumped. I just want something to workout for once in my life, but it just doesn't ever feel possible."
+To say that I hated therapy was an understatement. I couldn't possibly have thought of anything more pointless, than to explain why i, and yet here I was. At the same time every week.
 
 ### Therapy: What is success?
 
-"The problem was that I don't feel successful," I uttered to the therapist, a cold shoulder of taut one-liners and intricately gross examinations which bordered on dyslexic. A siamese bucket of discarded tape recorders, patched together with the incomplete narratives of hollow young men. She truly was a vacuum of utilitarian comfort, designed to suck the joy and pleasure from basic human necessity, formulised in a haptic frenzy of uncompromising hand gestures and seizure-inducing flashes. Yet, there was something comforting in the brown cardigan which served solely as a dilapidated corkboard of cat hair and coffee stains. Truth is I'd always wanted to fuck my therapist. Actually it was fair to say that I was keen to fuck anything.
+"The problem is that I don't feel successful," I uttered to the therapist, a cold shoulder of taut one-liners and intricately gross examinations which bordered on dyslexic. A siamese bucket of discarded tape recorders, patched together with the incomplete narratives of hollow young men. She truly was a vacuum of utilitarian comfort, designed to suck the joy and pleasure from basic human necessity, formulised in a haptic frenzy of uncompromising hand gestures and seizure-inducing flashes. Yet, there was something comforting in the brown cardigan which served solely as a dilapidated corkboard of cat hair and coffee stains. Truth is I'd always wanted to fuck my therapist. Actually it was fair to say that I was keen to fuck anything.
 
 "Well, what's your idea of success?" the therapist responded.
 
@@ -57,16 +45,39 @@ I reached out into the depths of my brain, hoping to find something rational to 
 ### Discuss Happiness
 
 Happiness was never something that
+
 I guess I've never really been happy.
 
 It wasn't something you ever thought about.
 
 "Would you say that success and happiness are not the same thing?"
 
-"What about family? Friends?"
+"What about family? Friends?" Maybe
+
+"Aren't you going to ask me where Daddy touched me," I said, clearly getting on her nerves. Okay, maybe I should be a little more accomodating.
+
+### Therapy - Expresses his feelings.
+
+"Well, for starters, I disowned my mum," I began, pretending as if I were actually being interviewed for a popular position on a TV show sitcom. I gleamed at her noticably, taking note of the bright green earrings she wore. An op-shop discount for a very special lady with a handbag for a husband. As per usual, the therapist was unimpressed with my lack of commitment. Perhaps she was even so uninspired by my tatty remark, that it caused her to activate the remote vibrator in her vagina, just to get a little kick out of my general . Certainly, I don't recommend sexualising disappointment, although it's a quick fix for what is essentially a poor choice in career. Go study economics instead.
+
+"...aaaaaand I've been dumped, and I pretty much want to kill myself." I hope she picked up on the sarcasm. I also hoped she'd just drop dead on the floor and begin spasming on the ground, eager for my blunt hands to take advantage of her talcum'd breasts, but did it really even matter at this point? Can I please get an AMEN?
+
+### Therapy - Response.
+
+"Listen, I'm sorry. I'm just joking. There's just a lot going on in my life at the moment." She continued to eye me, before finally deciding to chime in.
+
+"I understand that it must have been difficult. Would you like to talk about it?", she responded. Outstanding professionalism. The enema of politeness. Another fuck-hole with a source of intelligence. Thank god this program was Government funded.
+
+### Therapy - The guilt he feels for his mother.
+
+I reached out into the depths of my brain, hoping to find something rational to respond with. Truth was, there was simply too much to tell. How does one express the crushing guilt, sadness and anger that one feels, without pulling a gun out and simply allowing the remenants of reality speak for itself? I decided to grab myself a plastic cup of water from the watercooler in the room, taking my time not to further defame my already ruined reputation as a possible unrealised sex offender. Children too. Yummy yummy. Let this whispy stranger take you to a place your parents couldn't possibly imagine.
+
+"I just feel bad about everything, you know? I feel guilty for the absolute hate I feel towards my mother, like that makes me a bad son. I feel cheated for being dumped. I just want something to workout for once in my life, but it just doesn't ever feel possible." Maybe she could help me afterall.
 
 
-"Aren't you going to ask me where Daddy touched me," I said, clearly getting on her nerves.
+
+
+
 
 Truth is, the bitch had no idea what she was talkin' about.
 
