@@ -1,11 +1,11 @@
 # 02-work.md
 
-, achromatic in calico bleak,
+, ,
 
 <!-- A universal craving without a suitable name. A crap-stick unhinged. -->
 Craving your expedition without a suitable name.
 
-A crap-stick unhinged. 
+A crap-stick unhinged.
 
 as it cries idly by in native tongue
 
