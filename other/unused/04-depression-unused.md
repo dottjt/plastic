@@ -82,3 +82,14 @@ my star-studded torso with the actions of my past,
 that it probably deserved it's own title in this championship of cremation.
 
  Some would say, alive.
+
+
+
+Sometimes, it felt as if I granted myself permission to be an awful person. To express how little I could care as a human being, in .   The hurt which shoved it's precious little fingers into my pie and left me vomitting all over myself in an episode of gastro.
+
+ Perhaps I was the abuse, in my quest to kill hope.
+
+I had become a self-righteous donkey and this was how I expressed my pretend.
+
+ # part-02
+
