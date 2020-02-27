@@ -1,6 +1,19 @@
 # 04-depression.md
 
-The lie uponcorrupted in my phonetic heart.
+A profane blather of fibre-optic lunacy.
+
+coddled destitution
+
+Romeo lunacy
+fibre-optic lunacy
+cobbled lunacy
+Remoeo
+fibre-optic circularity
+fibre-optic needles
+circular needles
+
+A profane blather of fibre-optic lunacy.
+The uponcorrupted in my phonetic heart.
 
 circular needles
 
@@ -23,6 +36,11 @@ circular modesty and
 friday's mistake.
 
 to the foreboding impasse
+
+
+Breasts are held. Champange is saundered.
+
+
 
 Although in keeping relevant with my response to the foreboding impasse, I simply yawned at the thought, testament to the brute resilience forcing it's way through the impenetrable perception I had of myself as the fucking Queen.
 
@@ -47,3 +65,20 @@ A bloody triangle of equal equivalence,
 Perhaps I was the abuse, in my quest to express
 
 drown my voice out
+
+. Where in a sudden snap of attention, I decide to embark my riches
+
+ in my glass
+
+ with the vast sea of wine in my glass
+
+ I was just another one of Friday's mistake.
+Friday's mistake.
+
+trampling my ability to amend,
+
+my star-studded torso with the actions of my past,
+
+that it probably deserved it's own title in this championship of cremation.
+
+ Some would say, alive.

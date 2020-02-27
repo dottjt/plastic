@@ -158,3 +158,4 @@ treat.
 # IDEAS
 
 - I have a chapter where the character says "Ah, fuck therapy." and that's all the chapter is. If not to simply demonstrate and show the apathy of the character.
+- Should the neighbour/neighbourhood chapter (05) explain more about the Chineseness of where I live?

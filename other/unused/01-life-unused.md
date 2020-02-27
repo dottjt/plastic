@@ -14,7 +14,6 @@ nauseous in the underlying assumptions creeping itself into our veins.
 
 , crown jewel to the unjustified misery we all mimic and pretend.
 
-
 until his bare nipples ran raw.
 
 one tippity-tap away from enlightened expedition,
