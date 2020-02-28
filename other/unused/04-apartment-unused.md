@@ -91,5 +91,11 @@ Sometimes, it felt as if I granted myself permission to be an awful person. To e
 
 I had become a self-righteous donkey and this was how I expressed my pretend.
 
+ a wholesome sight for my kidneys
+
+All I knew was that the energy which did remain in the aftermath of my disarray, was barely enough to compute what little posture I'd hoped to maintain.
+
  # part-02
 
+
+The textile green of cannabis made everything better again. The universal craving without a suitable name. Yeah. That's what I needed.
