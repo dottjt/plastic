@@ -163,8 +163,6 @@ A thought in time, devilishly recuperated within a 10 minute smoko which clearly
 
 to be devilishly recuperated
 
-Another blurred line to pretend or squander. Prolactin's elongated title. Profit's wallace grim. Here is where it gets tricky.
-
 I'll try to fill in the rest.
 Allow me to explain.
 

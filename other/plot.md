@@ -1,9 +1,13 @@
 # plot
 
 ## life. Chapter 1 - Friday
+### editor.
+### chinatown.
+### restaurant.
 It's midday Friday. The story begins with the main character's meeting with an editor. The character is looking to get his book published. We learn a lot about the character's personality. They eventually head to Chinatown for lunch, at a restaurant called The Ming. The character describes the derelict of Chinatown, as well as the poor conditions of the restaurant. They end up fighting over their irreconcilable differences, and the character decides to leave.
 
 ## work. Chapter 2 - Friday
+###
 The character still has to return to work. Arriving at the work building, he notices he's misplaced his work pass, which is when he bumps into his co-worker, Milo. She has severe bipolar disorder, and he has a massive crush on her. She is indifferent to him. He provides descriptions of the workplace. Eventually, he joins Milo for a cigarette which leads her to asking him out on a date. Although elated, he feels conflicted, because it didn't feel genuine. Perhaps, it was an episode of mania.
 
 ## family. Chapter 3 - Friday
@@ -16,7 +20,7 @@ He wakes up the next day in a slump of depression. His usual Saturday funk. He e
 It's midday. He decides to leave the apartment for some fresh air, where he bumps into a neighbour and decides to help them out. The neighbour turns out to be a gorgeous African lady who's obsessed with film and cinema. Her name is Maria. She is kind and stable. They appear like-minded and right for each other. He enters her apartment and they get to know each other. He recieves a text from Milo, and leaves for his date with Milo.
 
 ## date. Chapter 6 - Saturday
-Later in the afternoon, he heads out to her sharehouse. He briefly meets her housemate. She's not quite right. Possibly on drugs. The head out. They decide to walk in the city. 
+Later in the afternoon, he heads out to her sharehouse. He briefly meets her housemate. She's not quite right. Possibly on drugs. The head out. They decide to walk in the city.
 
 They come back to his place. They have sex. He'd can't orgasm.
 

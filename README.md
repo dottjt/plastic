@@ -159,3 +159,24 @@ treat.
 
 - I have a chapter where the character says "Ah, fuck therapy." and that's all the chapter is. If not to simply demonstrate and show the apathy of the character.
 - Should the neighbour/neighbourhood chapter (05) explain more about the Chineseness of where I live?
+- Give each section a title.
+
+
+---
+title: "neighbour."
+description: "The character bumps into his neighbour, who he discovers he has a strong connection with."
+day: "Saturday."
+---
+
+---
+title: "reality."
+description: "A chapter where the character expresses his love for Milo. She freaks out. They break up."
+day: "Sunday."
+---
+
+
+Technical aspects:
+- Story is well structured.
+- Macro is very well structured.
+- Writing style itself however, will be hard to edit. 
+

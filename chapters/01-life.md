@@ -4,7 +4,7 @@ description: "This chapter introduces the character, the editor, Chinatown, a Ch
 day: "Friday."
 ---
 
-## Scene 1 START
+## Scene 1 START - Editor
 
 ### Openner
 
@@ -38,7 +38,7 @@ I decided to reach for the mug o' water conveniently placed next to the picture 
 
 ####
 
-## Scene 2 START
+## Scene 2 START - Chinatown
 
 ### Leaving the office
 
@@ -72,7 +72,7 @@ The muted Tudor frizzle of the dilapidated walls enclosing the Chinese palace (s
 
 ####
 
-## Scene 3 START
+## Scene 3 START - Restaurant
 
 The booth itself comfortably sat three, a necessary addition to accomodate for the timely inclusion of the editor's ego. A six-foot mirage resembling the entire backbench of Republican-majority senate, in concession with the delicate tension of an unforgiving racist and his gook-inspired raciee. Much to his character, he absolutely insisted on sitting his gargantuan backside on the cushioned fabric of the revered corner seat in dispute, because apparently the idea of anything less would have been considered a National Proclamation of Civil Disobedience. Rape, steal n' murder at any cost, and be sure to gather the receipt come tax time to assure your place on Mr. Ming's throne. Perhaps it was plain ol' American policy to be an asshole. I was almost certain of it.
 
@@ -122,7 +122,7 @@ For bare moment we both stared at each other like an opposing pack of hyenas, re
 
 ####
 
-## Scene 4 START
+## Scene 4 START 
 
 The plain insincerity of the flaked-paint ceiling shifted it's muted colours into a dark purple of valiant rose, drawing the poor yupie into a sober chamber of insulated regret. Perhaps for the first time in his life, the editor didn't quite know how to respond. No answer to the looming divorce of thy union. No conceivable way to writhe his way back into pole position. No method to express how little control he had over the situation. No loophole to charm or linger. No words or audience to please. He was an irrelevant puddle of defeat, and I made sure to let him know of his stature in the crinkle slade of disappointment I displayed on my face, as I lifted myself up from the table and walked away. Mussing my fingers along the slippery tiled walls of the battered corridor and out through the plastic-bead openning keeping him in. Chinatown had spoken.
 
