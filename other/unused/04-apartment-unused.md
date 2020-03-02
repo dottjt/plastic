@@ -101,3 +101,5 @@ All I knew was that the energy which did remain in the aftermath of my disarray,
 The textile green of cannabis made everything better again. The universal craving without a suitable name. Yeah. That's what I needed.
 
 A gluttony of fortuitous misdirection, contrary to the literary creation embracing the coarse writing on these walls.
+
+this city's best kept secret
