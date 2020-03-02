@@ -122,7 +122,7 @@ For bare moment we both stared at each other like an opposing pack of hyenas, re
 
 ####
 
-## Scene 4 START 
+## Scene 4 START
 
 The plain insincerity of the flaked-paint ceiling shifted it's muted colours into a dark purple of valiant rose, drawing the poor yupie into a sober chamber of insulated regret. Perhaps for the first time in his life, the editor didn't quite know how to respond. No answer to the looming divorce of thy union. No conceivable way to writhe his way back into pole position. No method to express how little control he had over the situation. No loophole to charm or linger. No words or audience to please. He was an irrelevant puddle of defeat, and I made sure to let him know of his stature in the crinkle slade of disappointment I displayed on my face, as I lifted myself up from the table and walked away. Mussing my fingers along the slippery tiled walls of the battered corridor and out through the plastic-bead openning keeping him in. Chinatown had spoken.
 
