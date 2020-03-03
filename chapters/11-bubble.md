@@ -6,7 +6,7 @@ day: "Monday."
 
 ## Scene 1 START
 
-### Openning Monologue
+### Opening Monologue
 
 It was any ordinary day. The sun continued it's glorious expansion into our extinction. The trees basked in the overflowing radiation, weary of their very creation. Children across the middle east strapped themselves to vests of high-impact explosives in faithful martyr of their magical prophet, while the U.S. remained ever-more ignorant of the internal politics of foreign occupation.
 

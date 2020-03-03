@@ -17,7 +17,7 @@ Work has finished, and he is taking the train to his mother's house for dinner. 
 He wakes up the next day in a slump of depression. His usual Saturday funk. He elaborates on his depression, as well as the guilt he feels for how he acted towards his mother. He goes and smokes weed, like he usually does on weekends. He simply doesn't care.
 
 ## neighbour. Chapter 5 - Saturday
-It's midday. He decides to leave the apartment for some fresh air, where he bumps into a neighbour and decides to help them out. The neighbour turns out to be a gorgeous African lady who's obsessed with film and cinema. Her name is Maria. She is kind and stable. They appear like-minded and right for each other. He enters her apartment and they get to know each other. He recieves a text from Milo, and leaves for his date with Milo.
+It's midday. He decides to leave the apartment for some fresh air, where he bumps into a neighbour and decides to help them out. The neighbour turns out to be a gorgeous African lady who's obsessed with film and cinema. Her name is Maria. She is kind and stable. They appear like-minded and right for each other. He enters her apartment and they get to know each other. He receives a text from Milo, and leaves for his date with Milo.
 
 ## date. Chapter 6 - Saturday
 Later in the afternoon, he heads out to her sharehouse. He briefly meets her housemate. She's not quite right. Possibly on drugs. The head out. They decide to walk in the city.
