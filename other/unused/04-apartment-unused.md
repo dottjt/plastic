@@ -105,3 +105,11 @@ A gluttony of fortuitous misdirection, contrary to the literary creation embraci
 this city's best kept secret
 
 
+ # part-03
+
+
+A protruding lump.
+
+A Fluoxetine high without the hypnotic mirth.
+
+

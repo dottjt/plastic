@@ -12,9 +12,8 @@ const include_files = [
   // '01-life.md',
   // '02-work.md',
   // '03-family.md',
-  '04-depression.md',
-  // '05-neighbour.md',
-  // '06-date.md',
+  '04-apartment.md',
+  // '05-date.md',
 ];
 
 const fancyBreakString = () => `
