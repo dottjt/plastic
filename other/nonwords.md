@@ -96,3 +96,30 @@ cree
 unfuck
 dwadiness
 gleep
+
+# 04-apartment.md
+
+mal-la-la-laise
+fallous
+tampoon
+
+otma
+jambo
+pockey
+huck
+
+bisket [actual]
+phantasmagoric [actual]
+explorus
+
+munted
+onahole
+
+talkin'
+
+lil'
+
+wallace
+trixie
+
+cumberbatch

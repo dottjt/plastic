@@ -38,7 +38,7 @@ friday's mistake.
 to the foreboding impasse
 
 
-Breasts are held. Champange is saundered.
+Breasts are held. Champagne is sauntered .
 
 
 
@@ -103,3 +103,5 @@ The textile green of cannabis made everything better again. The universal cravin
 A gluttony of fortuitous misdirection, contrary to the literary creation embracing the coarse writing on these walls.
 
 this city's best kept secret
+
+
