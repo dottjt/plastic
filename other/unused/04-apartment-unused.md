@@ -120,4 +120,21 @@ A Fluoxetine high without the hypnotic mirth.
 
 my confirmation of God's existence. Basking in
 
-like a lollygag of harmless spiders pouring from a busted sac of deflated extradition. Tickling their prey into a folly of flawless submission. 
+like a lollygag of harmless spiders pouring from a busted sac of deflated extradition. Tickling their prey into a folly of flawless submission.
+
+She proceeded to open her apartment door with a chain of keys,
+
+the squirmy love-hen bullshit
+
+
+fiddler
+
+A bloated contradiction of soft pale flesh and popcorn
+
+ for the way life treated her. Those certainly weren't designer lips.
+
+ Not quite old enough to be retired, yet nowhere near fulfilling any sort of niche to become a cam girl. Her occupation was a mystery to all.
+
+ and  revealed itself to the mainstay discourse of my mind.
+
+ Projector's everywhere. Screens of all different kinds.

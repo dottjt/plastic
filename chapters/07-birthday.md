@@ -8,7 +8,7 @@ day: "Saturday."
 
 ### Birthday Monologue
 
-I week of life passes by. It's my birthday. The loneliest day of the year. An empty echo-chamber of must-haves and has-beens, drowning in a slurry of desperate pleas for love and lace. I often wonder what a birthday message actual is, aside from a fine-grained permission to feel. A pity cookie for old time's sake, just to prove that you haven't been raped and tortured by some Taliban rookie in a silk robe, growing opium from his ranch south of the capital. Glutinous fingers , fiercely bidding for the surface of your attention. Hoping to disperse it's lovely little claws into your spread, violating what little aspiration you have to weed your way back to safety. At first it shrieks in a mad outburst, indicating it's own displeasure with the world. Then it withers into a cloud of mould to suffocate any amount of apprehension from gaining necessary foothold. Lastly it smothers in absolute quantity, absorbing scar tissue and trauma at an incomprehensible rate. And once it's all over, in the snap of a heartbeat, it was as if nothing remained at all. A desolate fire of dementia, swept clean in an enticing devastation of brilliance.
+A week of life passes by. It's my birthday. The loneliest day of the year. An empty echo-chamber of must-haves and has-beens, drowning in a slurry of desperate pleas for love and lace. I often wonder what a birthday message actual is, aside from a fine-grained permission to feel. A pity cookie for old time's sake, just to prove that you haven't been raped and tortured by some Taliban rookie in a silk robe, growing opium from his ranch south of the capital. Glutinous fingers , fiercely bidding for the surface of your attention. Hoping to disperse it's lovely little claws into your spread, violating what little aspiration you have to weed your way back to safety. At first it shrieks in a mad outburst, indicating it's own displeasure with the world. Then it withers into a cloud of mould to suffocate any amount of apprehension from gaining necessary foothold. Lastly it smothers in absolute quantity, absorbing scar tissue and trauma at an incomprehensible rate. And once it's all over, in the snap of a heartbeat, it was as if nothing remained at all. A desolate fire of dementia, swept clean in an enticing devastation of brilliance.
 
 I receive a text from mother. I don't know how it makes me feel. Anger, predominantly. Always anger.
 
@@ -72,6 +72,6 @@ It's
 
 I sat back at my desk.
 
-Ah, fuck therapy. 
+Ah, fuck therapy.
 
 ## Scene 3 END

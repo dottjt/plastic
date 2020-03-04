@@ -4,6 +4,15 @@ How to Kill a Chinaman
 
 The story starts on a Friday.
 
+# Pros
+- There is a clear structure to this novel, that is incredibly well documented.
+- Each chapter is distinctly comprised of 3 sections, it wouldn't be too difficult to re-arrange the novel, or even break the chapters down into smaller segments.
+
+# Cons
+
+- The writing itself is very lyrical and verbose and is not only difficult, but time-consuming to edit.
+
+
 # Brief description?
 
 The story is about a mentally-ill young man. The story is told through the thoughts and observations of the main character, which reflects his hyperbolic imagination of hyper-fantasy and cynicism. The story begins with an interaction with the main character and an editor, in a quest to get his book published. The overarching plot however reveals a suicidal descent into destitution. The character ends up disowning his family. Breaking up with his lover. Losing his job. Before leading to an untimely drug overdose.
@@ -81,3 +90,4 @@ I'm not sure if it's a special ability, but I have this thing where I'm able to 
 # Concerns
 
 This will be an absolute bastard to edit. It will not be quick. It will require every ounce of your attention, to catch the nuances and lyricism of each and every phrase.
+
