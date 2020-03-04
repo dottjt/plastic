@@ -117,3 +117,5 @@ A Fluoxetine high without the hypnotic mirth.
 
 
 , inspite of clearly offering more than just a rag of sincere physical extrapolation. I mean, I was wearing .
+
+my confirmation of God's existence. Basking in
