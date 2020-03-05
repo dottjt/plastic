@@ -5,7 +5,6 @@ description: "A short chapter about character's darker feelings, guilt he feels,
 day: "Saturday."
 ---
 
-<!--
 ## Scene 1 START - Depression
 
 ### Depression Monologue
@@ -96,17 +95,15 @@ Her apartment was posthumously strung between the hawk-eyed pickler at 247, and 
 
 ### Chat on the couch
 
--->
+We began chatting about our lives. The nuances. The struggles. Those stupid neighbours next door. The things which we loved and abhorred, in the scintillating excitement of conversational discovery. I couldn't stop noticing the iridescence of her eyes, contrast against the pure whiteness of her teeth. She felt more like a butterfly, than just a simple tack on the wall. She was a woman with intelligence and character, like staring at the nebulous surface of an unfinished cup of coffee, swirling in tandem against the limitation these words could facilite our interaction. I think she liked me.
 
-We began chatting about our lives. The nuances. The struggles. Those stupid neighbours next door. The things which we both loved and abhorred, in the scintillating excitement of our conversation. I couldn't stop noticing the iridescence of her eyes, contrast against the pure whiteness of her teeth. She felt more like a butterfly, than just a simple tack on the wall. She was a woman with intelligence and character, like staring at the nebulous surface of an unfinished cup of coffee, swirling in tandem against the limitation these words could facilite our interaction. I think she liked me.
+"I wish I could write, but I don't seem that great at anything. I just work in support." She turns her body towards my direction, parlous in the docile nature of her shoulders. I think she wants me. She glistens her lips with a smile. I receive a text.
 
-"I wish I could write, but I don't seem that great at anything. I just work in tech support." She turns her body towards my direction, parlous in the docile nature of her shoulders. I think she wants me. I can see her glisten her lips. I receive a text.
+"I look forward to tonight. xoxo". My temperature rose. Shit. Tonight's date with Milo. I'd completely forgot. My scheduled escort with the devil. The reason I'm so messed up.
 
-"I look forward to tonight. xoxo". My temperature rose. Shit. Tonight's date with Milo. I'd completely forgot. My scheduled escort with the devil.
+"It was really nice to meet you, but I better head off," I noted, concerned whether I was even going to be able to meet Milo in time. Hell, I didn't even know where she lived, and it was already 5:14pm.
 
-"It was nice to meet you, but I better head off," I noted, concerned whether I was even going to be able to meet her in time. Hell, I hadn't even the faintest idea where she lived.
-
-"Thanks for your help. Feel free to pop round, maybe we could watch a movie together?"
+"Thanks for your help. It was really nicce meeting you too. Feel free to pop round, maybe we could watch a movie together?"
 
 "Yes. I would love that." She was an overwhelming sense of warmth and connection, which transcended well-beyond her intelligence and marvellous attraction. Of course, what had most likely happened was that I'd probably gotten way too attached, way too early, and I was consciously willing to completely overlook the fact that her apartment was completely inundated with enough luddite porn to fuel an old steamboat. She walked me out to the front door, waving me goodbye with a smitten smile on her face.
 
