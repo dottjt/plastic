@@ -4,7 +4,7 @@ description: "This chapter introduces the character, the editor, Chinatown, a Ch
 day: "Friday."
 ---
 
-## Scene 1 START - Editor
+## Scene 1 START - editor.
 
 ### Opener
 
@@ -38,7 +38,7 @@ I decided to reach for the mug o' water conveniently placed next to the picture 
 
 ####
 
-## Scene 2 START - Chinatown
+## Scene 2 START - chinatown.
 
 ### Leaving the office
 
@@ -72,7 +72,7 @@ The muted Tudor frizzle of the dilapidated walls enclosing the Chinese palace (s
 
 ####
 
-## Scene 3 START - Restaurant
+## Scene 3 START - restaurant.
 
 The booth itself comfortably sat three, a necessary addition to accommodate for the timely inclusion of the editor's ego. A six-foot mirage resembling the entire backbench of Republican-majority senate, in concession with the delicate tension of an unforgiving racist and his gook-inspired raciee. Much to his character, he absolutely insisted on sitting his gargantuan backside on the cushioned fabric of the revered corner seat in dispute, because apparently the idea of anything less would have been considered a National Proclamation of Civil Disobedience. Rape, steal n' murder at any cost, and be sure to gather the receipt come tax time to assure your place on Mr. Ming's throne. Perhaps it was plain ol' American policy to be an asshole. I was almost certain of it.
 
@@ -122,7 +122,7 @@ For bare moment we both stared at each other like an opposing pack of hyenas, re
 
 ####
 
-## Scene 4 START
+## Scene 4 START -
 
 The plain insincerity of the flaked-paint ceiling shifted it's muted colours into a dark purple of valiant rose, drawing the poor yuppie into a sober chamber of insulated regret. Perhaps for the first time in his life, the editor didn't quite know how to respond. No answer to the looming divorce of thy union. No conceivable way to writhe his way back into pole position. No method to express how little control he had over the situation. No loophole to charm or linger. No words or audience to please. He was an irrelevant puddle of defeat, and I made sure to let him know of his stature in the crinkle slade of disappointment I displayed on my face, as I lifted myself up from the table and walked away. Mussing my fingers along the slippery tiled walls of the battered corridor and out through the plastic-bead opening keeping him in. Chinatown had spoken.
 
@@ -135,5 +135,3 @@ As I gawked my way out of The Ming, dead in a primal pursuit of counter-clock ra
 I pass an old Chinese man selling chop-chop along the side of the road. He begins shouting at me in a XXXX of incomprehensible Chinese. Perhaps he recognised me. Perhaps he wanted to tell me something important. I threw him a dollar as he sat there bewildered at the generosity of my gesture. I was in no mood to play prophecy. At the very least I understood how I didn't want my book published, abused and slawed in slimy knockdown of soaked arrest. I glanced down at my watch and swore. Fuck. It was only 2 in the afternoon and I still had to return to work. Hopefully no one had realised how long I'd disappeared for, although I found that highly unlikely. Unfortunately, it didn't stop me from trying.
 
 ## Scene 4 END
-
-

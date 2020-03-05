@@ -18,21 +18,26 @@ The character still has to return to work. Arriving at the work building, he not
 ### leave.
 Work has finished, and he is taking the train to his mother's house for dinner. He describes the splendor of the rich Chinese suburbs. He then describes his upbringing and the issues he has with porn. We also briefly meet my mother's helper. He describes his hate for his mother. At a certain point, he decides that he's had enough of her, and decides to disown her. She sends him a text. He heads back home, breaking down into tears.
 
-## depression. Chapter 4 - Saturday
-He wakes up the next day in a slump of depression. His usual Saturday funk. He elaborates on his depression, as well as the guilt he feels for how he acted towards his mother. He goes and smokes weed, like he usually does on weekends. He simply doesn't care.
+## apartment. Chapter 4 - Saturday
+### depression.
+### weed.
+### neighbour.
+He wakes up the next day in a slump of depression. His usual Saturday funk. He elaborates on his depression, as well as the guilt he feels for how he acted towards his mother. He goes and smokes weed, like he usually does on weekends. He simply doesn't care. It's midday. He decides to leave the apartment for some fresh air, where he bumps into a neighbour and decides to help them out. The neighbour turns out to be a gorgeous African lady who's obsessed with film and cinema. Her name is Maria. She is kind and stable. They appear like-minded and right for each other. He enters her apartment and they get to know each other. He receives a text from Milo, and leaves for his date with Milo.
 
-## neighbour. Chapter 5 - Saturday
-It's midday. He decides to leave the apartment for some fresh air, where he bumps into a neighbour and decides to help them out. The neighbour turns out to be a gorgeous African lady who's obsessed with film and cinema. Her name is Maria. She is kind and stable. They appear like-minded and right for each other. He enters her apartment and they get to know each other. He receives a text from Milo, and leaves for his date with Milo.
-
-## date. Chapter 6 - Saturday
+## date. Chapter 5 - Saturday
+### sharehouse.
+### out.
+### sex.
 Later in the afternoon, he heads out to her sharehouse. He briefly meets her housemate. She's not quite right. Possibly on drugs. The head out. They decide to walk in the city.
 
 They come back to his place. They have sex. He'd can't orgasm.
 
-## reality. Chapter 7 - Sunday
 He wakes up with Milo, obsessed with her. Yet she's completely indifferent to him. She's changed. She's almost disgusted with him. She breaks up with him. It's over. He falls into an immediate depression. She leaves. Talk about the cam girl.
 
-## therapy. 8 - Sunday
+## therapy. 6 - Sunday
+### success.
+### self-describe.
+### gun.
 The character attends his weekly therapy session. He discusses some of the events of the past week. He doesn't like the therapist. He's too cynical. It just makes him more depressed and hopeless. He's feeling a little reckless. Just over it all. Thinks it will make him look cool, but is also suicidal and indifferent to what happens regardless.
 
 ## gun. Chapter 9 - Sunday

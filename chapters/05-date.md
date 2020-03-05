@@ -4,21 +4,21 @@ description: "A chapter where the character goes on a date with Milo."
 day: "Saturday."
 ---
 
-## Scene 1 START
-
-### NOTE: Maybe this should begin with a statement about dating, you know. To keep the continuity of how this book is themed.
+## Scene 1 START - sharehouse.
 
 ### Describe Anxiety
 
-I felt sick. Heart wretched tight. Eyes tumbled violent. Tenderised. Stripped. A hurl of mirage. Breakfast. A sidewalk of sausage. Mahogany. Fuck. My immediate vicinity. A mere outline of dissolved potential. Shapes n' sounds. Our friendly duplicit dynamic duality dynamo duo. That's right. That's right. That's right! Pow! Wow! OMG!? The bread. The butter. My mouth. An explosion of yeast. Rumbling through my stomach. Beautiful boy. Lovely Liam. Teeth like corroded rubber. I accidentally bump into a child with a medicinal flower crown. She dies in an expiry of shame. Her entire body. Snapping in half. Splitting her delicate frame in two. Her stupid moronic screaming. An unbearable dither of lousy attention-seeking bullshit. It is like choking on ice. Fuck her life. I attempt to run away, but the relativity pulls me back. Tear tearing the torn tear you tatter tit tome. I begin touching myself uncontrollably. I just want to be. Let me be me. Be me be. Let.
+<!--
+I felt sick. Heart wretched tight. Eyes tumbled violent. Stripped. Tenderised. A hurl of mirage. A sidewalk of sausage. Mahogany. Breakfast. Fuck. My immediate vicinity. A mere outline of dissolved potential. Shapes n' sounds. Our friendly dynamic duplicit duality dynamo duo. That's right. That's right. THAT'S RIGHT! Pow! Wow! OMG!? The bread. The butter. My mouth. An explosion of yeast. Rumbles coarse through my stomach. Beautiful. Boy. Lovely. Liam. Teeth like a corroded rubber stamp. A child with a medicinal flower crown dies in an expiry of shame. Her entire body. Snapping in half. Splitting in two. The stupid moronic screaming of her delicate frame. Lungs convulsing. An unbearable dither of lousy attention-seeking bullshit. It is like choking on black ice. She is dead. Fuck her life. I attempt to run away from the trauma but the relativity pulls me back. The tear tearing torn tear you tatter tit tome. I begin touching myself uncontrollably. My hands shake rowdy. I just want to be. Let me be me. Be me be. Let.
 
 ### Describe Neighbourhood
 
-It was dark. I'd just arrived at the street of plenty. Embalmed in a couldron of anxiety. Umbrella in hand. Happy to appear relevant in this giant boardgame of neighbourhood. Perhaps I'll be mugged today by a giant elf with pointy ears, a precious reminder to always wield magic. I walked my way along each house, appreciative of the Victorian terrace walls and their avid continuity. Supporting the Edwardian ceilings stolen, cracked and relished by the rusted tin roofs engulfed in common ivy. Born from the accolade of mismatch furniture which sat outside on the timber front porch, hosting parties for the meek and well-deserved. I pictured Milo being fucked on the worn leather of the cream couch in the front lawn of her sharehouse, faded in op-shop sweater, holding a beer now being ravaged from her arms as the man pinned her down and showed her pleasure. The front door was no better. I'm sure there was a glory hole somewhere, as I geared myself for a wholesome exchange of flavoured tinnitus, ready to impress her paper-thin waist with a good ol' whack-a-moleay of thy peen.
+It was dark. I'd just arrived at the Street of Plenty™, embalmed in a couldron of Anxiety™. Umbrella in hand. Happy to appear relevant in this giant boardgame of Neighbourhood™. Perhaps I'll be mugged today by a giant elf with gargantuan pointy ears, in a precious reminder to always stock up on defensive elixirs and earth-based magic. I glided my way along each house, appreciative of their Victorian terrace walls and avid continuity. In relish of their stolen Windsor ceilings, cracked and protected by the beaten Oceania of a rusted tin roof, born from an accolade of mismatch furniture and broken milk crates which sat outside on the front porch below. I pictured Milo being fucked on the worn cream couch next to the record player as she attempted to down a beer, now being ravaged from her hand as a older man pinned her down and shoved her pleasure. It's showtime, baby.
 
 ### Milo House
+-->
 
-I ring the doorbell and wait. Damn, I probably should have just called her instead. I hear erratic footsteps. Then a thud. The door opens and a girl with pink hair bursts out in an exorbitant display of giddy laughter, before falling to floor in a heave of gasping panic. She stops. She turns and looks up at me with a daint smile of incapacitated charm, licking her lips playfully, as if to reminder herself that her lips were even there. Definitely the kind of girl who encouraged date rape to overcoming the awkwardness of actually expressing herself. I step over her body and into the hallway. She could be fucked later. I turn an immediate right, where I find Milo leaning extensibly on the Kitchen bench, decorated in thigh-high knitted socks, which continue into the outskirts of a pink-lace pantyhose. Seemingly, the only sane person in this entire house. Well, that was until I witnessed her take out, as well as reinsert a used tampon in front of my very eyes. Perhaps we were already married.
+I ring the doorbell and wait. I probably should have called her instead, but the idea had only just arose. I hear erratic footsteps. Then a thud. The door opens and a girl with pink hair bursts out in an exorbitant display of giddy laughter, before falling to floor in a heave of gasping panic. She stops. She turns and looks up at me with a daint smile of incapacitated charm, licking her lips playfully, as if to reminder herself that her lips were even there. Definitely the kind of girl who encouraged date rape to overcoming the awkwardness of actually expressing herself. I step over her body and into the hallway. She could be fucked later. I turn an immediate right, where I find Milo leaning extensibly on the Kitchen bench, decorated in thigh-high knitted socks, which continue into the outskirts of a pink-lace pantyhose. Seemingly, the only sane person in this entire house. Well, that was until I witnessed her take out, as well as reinsert a used tampon in front of my very eyes. Perhaps we were already married.
 
 ### Milo Realisation
 
@@ -35,6 +35,10 @@ I ring the doorbell and wait. Damn, I probably should have just called her inste
 She lights up a cigarette, strutting towards me. Exhaling before kissing me on the lips. She curls her leg around mine, kicking my excitement into full-gear as the relevancy became relevant. The light was here and it was my time to shine. I wanted to fuck her so bad.
 
 "What do you say we head out to the city? My shout."
+
+
+ I embraced myself for a wholesome night of flavoured tinnitus and unmarked glory holes. Ready to impress her paper-thin waist with a good ol' whack-a-moleay.
+
 
 ## Scene 1 END
 

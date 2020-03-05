@@ -39,7 +39,7 @@ I picked myself up from my bed and made my way into the bathroom, poking the ski
 
 ####
 
-## Scene 2 START - Weed
+## Scene 2 START - weed.
 
 ### Describe desk
 
@@ -67,7 +67,7 @@ For a brief moment I sat there in my chair. Blank. Abandoned. The loud chorus of
 
 ####
 
-## Scene 3 START - Neighbour
+## Scene 3 START - neighbour.
 
 Thirty-fuck. The trixie air slams it's hairy coon into the back of my neck, needlessly travelling across my cheek in a fastidious rain of filched indiscriminate. Season's greetings, you cunt. Streaks of lightning jilt n' tither across the intrigue of my jaw, throwing my twirl into a pirouette rotation of dreadful cross-examination. The joint fits neatly into the cress of my left ear, like a violet rose on a campaign harvest. Symbolic of our universal craving which hath no suitable name. Spangled in a coil of mirth lingerie n' sprinkled gummy candy, just like Daddy ordered from the pet shop. Index and middle fingers enter my mouth. Suckling the impressionable membrane of my gum. Gaudy shore. A protruding lump. The ruse of a deadbeat mensch.
 

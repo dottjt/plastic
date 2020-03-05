@@ -4,7 +4,7 @@ description: "A short chapter with a therapist to discuss success, depression an
 day: "Sunday."
 ---
 
-## Scene 1 START
+## Scene 1 START - success.
 
 ### Magazine
 
@@ -96,7 +96,7 @@ So here I am. It's post-cull and it's killing season. I have my rifle, my ammuni
 
 ####
 
-## Scene 2 START
+## Scene 2 START - self-describe
 
 ### Cynicism Monologue
 
@@ -142,7 +142,7 @@ A mature fight-fighter with a body like a well-kept fire axe, covered in the tan
 
 ####
 
-## Scene 3 START
+## Scene 3 START - gun.
 
 ### Leaving Therapy
 
