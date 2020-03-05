@@ -7,10 +7,15 @@
 It's midday Friday. The story begins with the main character's meeting with an editor. The character is looking to get his book published. We learn a lot about the character's personality. They eventually head to Chinatown for lunch, at a restaurant called The Ming. The character describes the derelict of Chinatown, as well as the poor conditions of the restaurant. They end up fighting over their irreconcilable differences, and the character decides to leave.
 
 ## work. Chapter 2 - Friday
-###
+### Milo.
+### office.
+### proposal.
 The character still has to return to work. Arriving at the work building, he notices he's misplaced his work pass, which is when he bumps into his co-worker, Milo. She has severe bipolar disorder, and he has a massive crush on her. She is indifferent to him. He provides descriptions of the workplace. Eventually, he joins Milo for a cigarette which leads her to asking him out on a date. Although elated, he feels conflicted, because it didn't feel genuine. Perhaps, it was an episode of mania.
 
 ## family. Chapter 3 - Friday
+### suburbs.
+### mother.
+### leave.
 Work has finished, and he is taking the train to his mother's house for dinner. He describes the splendor of the rich Chinese suburbs. He then describes his upbringing and the issues he has with porn. We also briefly meet my mother's helper. He describes his hate for his mother. At a certain point, he decides that he's had enough of her, and decides to disown her. She sends him a text. He heads back home, breaking down into tears.
 
 ## depression. Chapter 4 - Saturday

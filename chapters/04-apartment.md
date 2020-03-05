@@ -98,20 +98,18 @@ Her apartment was posthumously strung between the hawk-eyed pickler at 247, and 
 
 -->
 
-We both sat on the couch and began chatting casually about our lives. The nuances. The struggles. Those stupid neighbours next door. The things which we loved and abhorred. Our conversation was both real and exciting, and she felt more than just a tack on the wall. She was a woman with intelligence and character, whom made me feel more than just another card to be played. I couldn't stop noticing the iridescence of her eyes, contrast against the scintillating blackness of her face. The whiteness of her teeth. The oversizeness of her prescription glasses. It was like staring at the nebulous surface of an unfinished cup of coffee, swirling in tandem against the chocolatey surface of the aromatic blend. I think she liked me. Apparently if a girl looks at your lips three times it means she wants to kiss you, and I was certain that she wanted my tongue. Of course, we were neighbours and I was about as self-assured as a wet sock. But at least I was honest with myself.
+We began chatting about our lives. The nuances. The struggles. Those stupid neighbours next door. The things which we both loved and abhorred, in the scintillating excitement of our conversation. I couldn't stop noticing the iridescence of her eyes, contrast against the pure whiteness of her teeth. She felt more like a butterfly, than just a simple tack on the wall. She was a woman with intelligence and character, like staring at the nebulous surface of an unfinished cup of coffee, swirling in tandem against the limitation these words could facilite our interaction. I think she liked me.
 
-"Oh, so you're a writer. That's super cool! I wish I could write, but I don't seem to be good at anything. Although I have a lot of knowledge about film." She turns her body towards my direction, parlous in the docile nature of her proportionate body.
+"I wish I could write, but I don't seem that great at anything. I just work in tech support." She turns her body towards my direction, parlous in the docile nature of her shoulders. I think she wants me. I can see her glisten her lips. I receive a text.
 
-I receive a text. "I look forward to tonight xoxo". My temperature rose. Shit. Tonight's date with Milo. I'd completely forgot, or perhaps repressed, my scheduled escort with the devil. I suppose I couldn't have both women cavort my lap, rubbing my pre-cum into the flouncing creases of my pants.
+"I look forward to tonight. xoxo". My temperature rose. Shit. Tonight's date with Milo. I'd completely forgot. My scheduled escort with the devil.
 
-"Anyway, it was nice to meet you, but I better to head off," I noted, concerned whether I was even going to make it to her apartment on time. It was already 5pm and I had no idea how to get there, let alone decide what I was going to wear. Maybe she preferred the drug-fucked look of a man covered in the scent of a poorly received six-pack, now wreaking havoc with the odour of his shirt some many weeks later.
+"It was nice to meet you, but I better head off," I noted, concerned whether I was even going to be able to meet her in time. Hell, I hadn't even the faintest idea where she lived.
 
-"Thanks for your help. It was really kind of you. Feel free to pop round, maybe we could watch a movie together?"
+"Thanks for your help. Feel free to pop round, maybe we could watch a movie together?"
 
-"Yes. I would love that." I wasn't sure if what I said came across as being needy, however it was genuinely how I felt. An overwhelming sense of warmth and connection, which transcended well-beyond her thorough intelligence and marvelUous attraction. It was a sense of connection that I'd never felt before. She was the one that I wanted to be with. Of course, as per usual, I wasn't sure if I'd simply become delusional
+"Yes. I would love that." She was an overwhelming sense of warmth and connection, which transcended well-beyond her intelligence and marvellous attraction. Of course, what had most likely happened was that I'd probably gotten way too attached, way too early, and I was consciously willing to completely overlook the fact that her apartment was completely inundated with enough luddite porn to fuel an old steamboat. She walked me out to the front door, waving me goodbye with a smitten smile on her face.
 
-She walked me out to the front, waving with a smitten smile attached to her face, as I left her apartment in a giddy of infatuation. Maria was her name. As beautiful as beauty could be.
-
-I receive another text from Milo. This time an image. Transparent red lace. Trim embellish. Pure white skin. An exercise of pre-cum on this Sunday afternoon.
+Maria was her name.
 
 ## Scene 3 END

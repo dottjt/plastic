@@ -107,6 +107,12 @@ this city's best kept secret
 
  # part-03
 
+A protruing lump.
+
+Aside from my date with Milo, I was unsure what I was going to do today.
+
+
+
 
 A protruding lump.
 
@@ -142,3 +148,22 @@ A bloated contradiction of soft pale flesh and popcorn
  , shoving my foot in her asshole and hearing her scream
 
  Even the cups in the kitchen were made from old makeup table show-lights, brittle in their dark phosphorus gleam of sexual abuse and mafia intimidation.
+
+ Apparently if a girl looks at your lips three times it means she wants to kiss you, and I was certain that she wanted my tongue. Of course, we were neighbours and I was about as self-assured as a wet sock. But at least I was honest with myself.
+
+ I suppose I couldn't have both women cavort my lap, rubbing my pre-cum into the flouncing creases of my pants.
+
+I was enjoying myself so much that I'd forgotten
+
+Although maybe she preferred the drug-fucked look of a man covered in the scent of a poorly received six-pack, now wreaking havoc with the odour of his shirt some many weeks later.
+
+I wasn't sure if what I said came across as being needy, however it was genuinely how I felt.
+
+as I left her apartment in a giddy of infatuation
+
+
+
+I receive another text from Milo. This time an image. Transparent red lace. Trim embellish. Pure white skin. An exercise of pre-cum on this Sunday afternoon.
+
+
+ As beautiful as beauty could be.

@@ -8,7 +8,7 @@ day: "Sunday."
 
 ### Magazine
 
-The front cover of every men's magazine. Sizing and measuring you down to the retrofit standard. That glorious award, to be printed at birth, stuck on your forehead and published to the nearest data collection centre, where it will be processed under the fine eye of a complex Japanese algorithm written in comparative lisp. "You are an average Asian male with an overwhelming propensity for sticking your penis into the wrinkled foreskin of pretentious white women," my label states, time-stamped in a beautiful font, extracted from a contemporary guide to desktop publishing. We try to love ourselves. We try to breathe meaning into our pursuits and leisures, providing them with hope and transparent textures to decorate our lives with, only to see them absorbed by a plague of locusts completing their regular routine around your ego.
+The front cover of a men's magazine. Sizing and measuring you down to the retrofit standard. That glorious award, to be printed at birth, stuck on your forehead and published to the nearest data collection centre, where it will be processed under the fine eye of a complex Japanese algorithm written in comparative lisp. "You are an average Asian male with an overwhelming propensity for sticking your penis into the wrinkled foreskin of pretentious white women," my label states, time-stamped in a beautiful font, extracted from a contemporary guide to desktop publishing. We try to love ourselves. We try to breathe meaning into our pursuits and leisures, providing them with hope and transparent textures to decorate our lives with, only to see them absorbed by a plague of locusts completing their regular routine around your ego.
 
 ### Clinic Lobby
 
