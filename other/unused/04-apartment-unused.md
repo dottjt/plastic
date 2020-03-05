@@ -138,3 +138,7 @@ A bloated contradiction of soft pale flesh and popcorn
  and  revealed itself to the mainstay discourse of my mind.
 
  Projector's everywhere. Screens of all different kinds.
+
+ , shoving my foot in her asshole and hearing her scream
+
+ Even the cups in the kitchen were made from old makeup table show-lights, brittle in their dark phosphorus gleam of sexual abuse and mafia intimidation.
