@@ -18,7 +18,12 @@ It was dark. I'd just arrived at the Street of Plenty™, embalmed in a couldron
 ### Milo House
 -->
 
-I ring the doorbell and wait. I probably should have called her instead, but the idea had only just arose. I hear erratic footsteps. Then a thud. The door opens and a girl with pink hair bursts out in an exorbitant display of giddy laughter, before falling to floor in a heave of gasping panic. She stops. She turns and looks up at me with a daint smile of incapacitated charm, licking her lips playfully, as if to reminder herself that her lips were even there. Definitely the kind of girl who encouraged date rape to overcoming the awkwardness of actually expressing herself. I step over her body and into the hallway. She could be fucked later. I turn an immediate right, where I find Milo leaning extensibly on the Kitchen bench, decorated in thigh-high knitted socks, which continue into the outskirts of a pink-lace pantyhose. Seemingly, the only sane person in this entire house. Well, that was until I witnessed her take out, as well as reinsert a used tampon in front of my very eyes. Perhaps we were already married.
+My finger collides with the doorbell in a punch of raw sweat, caught in a deep wisp of banished motion. The air freezes. I wait. Silent. As I stand there surrounded by the unsettling tones chortling doubt into the cone of my ear, unsympathetically unkind in their benign intentions. Intertwined in a caustic shackle of nightfall paranoia. Weeping. Wailing. Crawling down my spine. Her mobile. I probably should have called it instead of coddling her door, but my mind was precisely one step behind the curb. A deluge of squeaky application. Then in a military Reveille of indignant suede, I begin to hear an erratic stampede of footsteps from within the house. A squirrel? Then a thud. Crank. The door slams opens and a girl with pink locks and bleached swirls, bursts out onto the porch in an exorbitant display of giddy laughter. Falling to floor in a heave of paniced screaming, as she grab my leg like a hobbled piece of fried chicken. I take a step back. She stops. Laughs. Turns onto her stomach and looks up at me from the floor below with a delirious smile of incapacitated charm. Refactoring wildly. Contorting madly. As she licks her lips with a silicone grin, as if to reminder herself that her lips were even there at all. The result of a bag of hard drugs and a fatherless upbrining. Probably LSD. I was intrigued. Although she could be fucked later, perhaps if Milo had given up on me. I had bigger fish to fry.
+
+"Arent you thhee kind man." I didn't really understand what she was trying to say, although it sounded a bit like a half-baked compliment. I'm sure she was the kind of girl who encouraged date rape in order to help her cope with the crippling anxiety causing her inability to express.
+
+
+ I step over her body and into the hallway, turnning an immediate right, where I find Milo leaning extensibly on the kitchen sink, decorated in thigh-high knitted socks which continued into the outskirts of her pink-lace pantyhose. Seemingly, the only sane person in this entire house. Well, that was until I witnessed her take out, as well as reinsert a week-old tampon in front of my very eyes. I mean, why did she even have to tell me the duration of the thing. Perhaps we were already married.
 
 ### Milo Realisation
 
@@ -145,7 +150,7 @@ She's distant.
 
 ### Waking up with Milo
 
-Caught in a wisp of cold air, I was ecstatic.
+ I was ecstatic.
 
 The air was thin this morning. It had been quite cold recently, and I wasn't quite sure
 
