@@ -24,19 +24,17 @@ My finger collides with the doorbell in a punch of raw sweat, caught against a c
 ### Milo Realisation
 -->
 
-"How's it goin', stranger?", she prepared earlier, offering me a sedated wink of comical attention, as she struggled to the maintain the loose fit of her leggings. She was stunning in the worst possible way.
-
-Admittedly, standing here in this room, I felt undecided about her existence. It was neither a feel of abhorrence, nor attraction. Only a failure to recognise why I was truly here, conflict against the fantasy I had upheld of her stature for so incredibly long. Chances were that I simply didn't want to recognise the grotesque husk of flea-infested cum standing in front of me, reeking of a black tar which even fracking itself could not produce. And yet, as I abhored her, I was reminded of the fact that she was simply a female version of me, and arguably I simply hated myself. Then it occurred to me that I simply didn't have the courage to approach my own desperation and loneliness beyond the women I threw myself at, if only to create the impression that I was worth at least someone's attention. Hopefully, she would let me hold her hand.
+"How's it goin', stranger?", Milo prepared, offering me a sedated wink of comical attention, as she struggled to the maintain the loose fitting of her leggings, with a cigarette in one hand and a shoelace in the other. Observing her for the next few seconds as I stood there in an undecided coat of shame, it was clear to me that Milo was stunning in worst possible way. Nothing about her was pure, in the deformed cane of substance abuse which was paperclip-thin body, ready to protrude my average-sized penis through her stomach. And for the first time in my life, I wasn't quite sure whether I should have refused to accommodate the grotesque husk of flea-infested cum standing before me, if not because I knew it was wrong. The kind of wrong I could not resist, in what was neither a feeling of abhorrence, nor attraction. Only in my failure to recognise why I was truly here, conflict against what little respect I had for myself in the fantasy I had upheld of her stature for so incredibly long. I wanted to love and I wanted to fuck, and Milo would be tonight's gateway. And yet in many ways, I was simply reminded by the fact that she was simply a female version of myself, more evolved and determined in the self-hate which it dignified. The truth remained that I simply didn't have the intellect, nor courage to approach my own desperation and loneliness beyond the women I threw myself at. If only to create the impression that I was worth at least someone's attention. Hopefully, she would let me hold her hand.
 
 ### Milo Conversation
 
-"Not too bad. I bumped into your friend at the door, are they going to be okay? I think she's on the front patio, laughing at a ladybug." She seemed unconcerned.
+"Only slightly suicidal. I think I bumped into your friend at the door. Is she going to be okay? She's currently on the patio singing Happy Birthday to a ladybug." I hear further groaning in the background.
 
-"Oh yeah. It's only Ketamine. She's been on it twice a week now for quite a while now, so I would say she's safe." An expert opinion an expert soul. Welcome to reality, where nothing makes sense and everyone around you whoring for that wonderful fuck-stick of disgression.
+"Oh yeah. It's only Ketamine. She's down to twice a week now, so I would say she should be fine." An expert opinion from an expert soul. Welcome to reality, bitches, where nothing makes sense and everyone and everything is worth a poke with the wonderful fuck-stick of disgression.
 
 ### Milo Sexual/Leave
 
-She lights up a cigarette, strutting towards me. Exhaling before kissing me on the lips. She curls her leg around mine, kicking my excitement into full-gear as the relevancy became relevant. The light was here and it was my time to shine. I wanted to fuck her so bad.
+She lights up another cigarette, strutting towards me. Exhaling before kissing me on the lips. She curls her leg around mine, kicking my excitement into full-gear as the relevancy became relevant. The light was here and it was my time to shine. I wanted to fuck her so bad.
 
 "What do you say we head out to the city? My shout."
 

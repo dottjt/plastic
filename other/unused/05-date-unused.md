@@ -32,3 +32,8 @@ She had to get a packet of tampons and a
 sounded like the kind of thing you'd expect from a pickled Southern Whore
 
 tease with a line of coke at ease
+accommodate
+
+ reeking of a black tar which even the world's current supply of fracking would fail to produce.
+
+ And yet, as I abhored her, I was reminded of the fact that she was
