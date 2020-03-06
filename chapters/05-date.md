@@ -22,25 +22,16 @@ My finger collides with the doorbell in a punch of raw sweat, caught against a c
 "Arent you thhee kind man." I didn't really understand what she was trying to say, although I didn't expect anything less. It was a compliment without the compliment, best served with corned beef. She was the kind of lonely attraction which encouraged date rape as an ample coping mechanism to help her deal with her crippling anxiety. A fatal transit of state-wide inhibition and bad breath. For some unknown reason, that turned me on. The male and his jailbait, sharing a cold meal in the back of an outback diner, ready to pull n' tease with a line of coke at ease. I step over her fancy body and into the scope of the hallway, turning an immediate right into what appeared to be the kitchen. I find Milo leaning extensibly over the kitchen sink, decorated in thigh-high knitted socks which continued onto the outskirts of her pink-lace pantyhose. Seemingly, the only sane person in this shared imagination. Well, that was until I witnessed her take out a week-old tampon from her vagina, before reinserting it back in without even a dally of care. I mean, did she really have to mention how old the thing was? Well, of course she did. Because I'm a perv and she knew it too. Our marriage would be grand.
 
 ### Milo Realisation
--->
 
-"How's it goin', stranger?", Milo prepared, offering me a sedated wink of comical attention, as she struggled to the maintain the loose fitting of her leggings, with a cigarette in one hand and a shoelace in the other. Observing her for the next few seconds as I stood there in an undecided coat of shame, it was clear to me that Milo was stunning in worst possible way. Nothing about her was pure, in the deformed cane of substance abuse which was paperclip-thin body, ready to protrude my average-sized penis through her stomach. And for the first time in my life, I wasn't quite sure whether I should have refused to accommodate the grotesque husk of flea-infested cum standing before me, if not because I knew it was wrong. The kind of wrong I could not resist, in what was neither a feeling of abhorrence, nor attraction. Only in my failure to recognise why I was truly here, conflict against what little respect I had for myself in the fantasy I had upheld of her stature for so incredibly long. I wanted to love and I wanted to fuck, and Milo would be tonight's gateway. And yet in many ways, I was simply reminded by the fact that she was simply a female version of myself, more evolved and determined in the self-hate which it dignified. The truth remained that I simply didn't have the intellect, nor courage to approach my own desperation and loneliness beyond the women I threw myself at. If only to create the impression that I was worth at least someone's attention. Hopefully, she would let me hold her hand.
+"How's it goin', stranger?", she concurred, as she bent herself over the crest of her cross, struggling to the maintain the tight fitting of her torn leggings. Hair in a Preston Louise. Faulty. Passing me a sedated wink of comical misunderstanding, her vulpine sweater dressed in a cherubic liquor of black tar. With a cigarette in her left and a marty shoelace in the other, I stood there slouched and I observed her for at least a few seconds, evermore clear that Milo was undeniably stunning in worst possible way. Nothing about her existence offered purity, nor sanctity, in the deformed cane of substance abuse which was paper-thin body, keen to protrude my misgiving penis through her shriveled stomach lining. Yet although I could feel the rejection in my heart, attempting to refute the grotesque husk of flea-infested cum leaning before me, I couldn't stop staring at her, in what was neither a feeling of abhorrence, nor attraction. Only a rugged refusal to dismantle the fantasy of sex and pleasure I'd upheld of her stature for so incredibly long, that I couldn't even tell if it was what I truly wanted anymore. In a lot of ways, she was simply a more evolved female version of myself, determined in the self-hate which it dignified through drugs and enclitic spire. Truth was that I simply didn't have the intellect, nor courage, to approach my own desperation and loneliness beyond the women I threw myself at. All I wanted was to create the impression that I was worth at least someone's attention, even that of my own. Hopefully, she would let me hold her hand.
 
 ### Milo Conversation
 
-"Only slightly suicidal. I think I bumped into your friend at the door. Is she going to be okay? She's currently on the patio singing Happy Birthday to a ladybug." I hear further groaning in the background.
+"Only slightly suicidal. I think I bumped into your friend at the door. Is she going to be okay? She's currently flailing on the patio singing an ol' Groucho Marx tune." I hear further groaning in the background. Clearly she's in need of desperate attention.
 
-"Oh yeah. It's only Ketamine. She's down to twice a week now, so I would say she should be fine." An expert opinion from an expert soul. Welcome to reality, bitches, where nothing makes sense and everyone and everything is worth a poke with the wonderful fuck-stick of disgression.
-
-### Milo Sexual/Leave
-
-She lights up another cigarette, strutting towards me. Exhaling before kissing me on the lips. She curls her leg around mine, kicking my excitement into full-gear as the relevancy became relevant. The light was here and it was my time to shine. I wanted to fuck her so bad.
+"It's only Ketamine. She's down to twice a week now, so I think she'll be fine for tonight." An expert opinion from the premiere of expertise itself. Welcome to reality, rundle kitches, where absolutely nothing makes sense. Have a milky bar, kid. The calcium is good for you. Her shoelaces now tight around her military ankle, the cat was ready pounce. She lights up another cigarette, struts towards me and exhales a plume of irradiated smoke. Kissing me on the lips in a femme fatale of provocative aorism. She curls her right leg around mine, kicking my excitement into full-gear. The light was here and it was my time to shine.
 
 "What do you say we head out to the city? My shout."
-
-
- I embraced myself for a wholesome night of flavoured tinnitus and unmarked glory holes. Ready to impress her paper-thin waist with a good ol' whack-a-moleay.
-
 
 ## Scene 1 END
 
@@ -50,6 +41,8 @@ She lights up another cigarette, strutting towards me. Exhaling before kissing m
 
 ### Sodomy monologue
 
+-->
+
 There's something fantastic about sodomy. A religious travesty of heightened caution, no different to blowing up a entire school bus full of Indonesian school children, limbs akimbo, crisp sheets of trigonometry pouring down in a cascade of ceremony, only to condemn those who practice formal expression in a much, much less formal way.
 
 "You really are evil, aren't you?" says Milo, skipping about on the side walk, a-twirl in her own world of disturbing imagination of primary fascination. A curious beast I one-day hoped to tame and unleash, like a feel-good tsunami of sexual domination. Clearly, you didn't need to hear that.
@@ -57,6 +50,8 @@ There's something fantastic about sodomy. A religious travesty of heightened cau
 "It's just a joke," I remarked, a light teaser of things to come, hoping to sound lost in my own intellectuality, obviously inundated in an air of desperation I'd simply accepted as the lonely cousin following me around everywhere. Undeniably I'd softened to her
 
 ### Walk down the promenade
+
+I embraced myself for a foul night of flavoured tinnitus and unmarked glory holes. Ready to impress her paper-thin waist with a good ol' whack-a-moleay.
 
 The harbor atmosphere, caulked in the silhouette of a family galore, witnessing a domestic episode of "dad knows best", was suitably romantic, if not a touch endearing. As I looked up at the night sky, it was clear that the clouds were amiss in their treachery, shrouding their eerie ways into the whispering wind and creeping shadows, lurking and melding themselves into our fragmented movement refracting against the crayon river below. Thankfully it was just enough to convince her to hold my hand, something which I'd been thinking about since we first met.
 

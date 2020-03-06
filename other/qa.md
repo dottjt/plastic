@@ -12,6 +12,7 @@ The story starts on a Friday.
 
 - The writing itself is very lyrical and verbose and is not only difficult, but time-consuming to edit.
 
+- It's kind of like Peep Show, in that's largely the thoughts of the main character and how they interact within itself.
 
 # Brief description?
 

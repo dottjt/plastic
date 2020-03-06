@@ -37,3 +37,16 @@ accommodate
  reeking of a black tar which even the world's current supply of fracking would fail to produce.
 
  And yet, as I abhored her, I was reminded of the fact that she was
+
+ Milo prepared
+
+she lent in a souless offering
+I couldn't stop staring at her, even though part of me was . The kind of wrong I could not resist,
+
+recognise why I decided to attend in the first place,
+
+the minimal amount of respect I'd upheld in
+
+I simply wanted to love and be fucked, and Milo would be tonight's gateway. Perhaps because she was nothing
+
+ Thanks to the wonderful fuck-stick of disgression.
