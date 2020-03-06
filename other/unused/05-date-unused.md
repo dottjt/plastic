@@ -21,8 +21,14 @@ like tryin' ta squash Lego into squelched antelope. The world's smallest tongue,
 
 Engulfed in common ivy.
 
+Intertwined in
+
 ### Supermarket
 
 "Did you always think we'd date?" she said, almost rhetorically, expecting me to cave in an
 
 She had to get a packet of tampons and a
+
+sounded like the kind of thing you'd expect from a pickled Southern Whore
+
+tease with a line of coke at ease
