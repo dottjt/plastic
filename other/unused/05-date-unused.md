@@ -50,3 +50,11 @@ the minimal amount of respect I'd upheld in
 I simply wanted to love and be fucked, and Milo would be tonight's gateway. Perhaps because she was nothing
 
  Thanks to the wonderful fuck-stick of disgression.
+
+
+# part-02
+
+only to condemn those who practice formal expression in a much, much less formal way.
+
+"Very funny," I noted in extreme caution, knowing full-well that there was a 1 in 10 chance that her flirtatious actions could result in a round of heated bathroom sex, unfortunate for the disabled sod in a 60s' wheel chair holding on for dear life to the ambient noise of sexual wear n' tear.
+

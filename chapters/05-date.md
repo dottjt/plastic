@@ -37,33 +37,27 @@ My finger collides with the doorbell in a punch of raw sweat, caught against a c
 
 ####
 
-## Scene 2 START
+## Scene 2 START - out
 
 ### Sodomy monologue
 
 -->
 
-
-### Walk down the promenade
+### Walking with Milo
 
 I placed my tongue around my neck. Embracing the flavoured tinnitus and unmarked glory holes swallowing all logic into a viable junction of lovey-dovey tightness. Ready to impress her ribbonlike waist with a good ol' whack-a-moleay, amble in the meandering sway of my viscious claws. Anxious to hold her hand and call her nice things. Our footsteps waded through the thick musk of the dusk harbor atmosphere, caulked in the silhouette of a late-night Indian family playing "daddy knows best" amongst a domestic heirarchy of cultural scamper. Daddy picks child. Up. Shouts in a foreign language. Mummy stands tall. Waiting. Thinking about Korma, because I'm a racist with a fuck binge. A suitably romantic scene, if not a touch endearing, although barely enough to ensure us through the piles of drugs interacting with our interactions.
 
-I looked up into the night sky. Barely here, nor there. The clouds. Amiss in their twretched drudgery. Shrouding their eerie ways into the whispering winds and creeping shadows of their distant forefathers, lurking and melding into the fragmented movement of our veins and loath left behinnd, refracting upon the crayon surface of the cautious river below. Thankfully, it was just enough to convince her to latch onto my hand, as she pressed her body against my shoulder, something which I'd been thinking about since we first met. Milo was cute. A cat. A cutie cat. And although I could tell that I was becoming derranged in my hunger for self-acceptance, that crucial element holding me together, it was a much better feeling than lying in my bed, sulking over the metaphysical appearances of the world.
+I looked up into the night sky. Barely here, nor there. The clouds. Amiss in their wretched drudgery. Shrouding their eerie ways into the whispering winds and creeping shadows of their distant forefathers, lurking and melding into the fragmented movement our veins and loath left behinnd. Refracting upon the crayon surface of the cautious river below. Thankfully, it was just enough to convince her to latch onto my hand, as she pressed her body against my shoulder, something which I'd been thinking about since we first met. Milo was cute. A cat. A cutie cat. And although I could tell that I was becoming derranged in my hunger for self-acceptance, that crucial element holding me together, it was a much better feeling than lying in my bed, sulking over the metaphysical appearances of the world. I suppose I'd always been afraid of this moment, where man meets women, carried by the heavy hands of fate onto something greater. Where the expectation was loud and vast, ripping itself methodologically into the grain of your skin, scolding bone as a consequence of childish demeanor.
 
-"There's something fantastic about sodomy." A religious travesty of heightened caution, equivalent to blowing up an entire school bus full of school children. Limbs akimbo. Blood splatter. Blooms of crisp trigonometry pouring down onto the dusty street below in an indecent cascade of ceremony. But at least the shrapnel of a half-blown up dick didn't enter another child's mouth, but that would have taken tragedy to unprecedented 10.
+### Sodomy Joke
 
-only to condemn those who practice formal expression in a much, much less formal way.
+"There's something fantastic about sodomy." A religious travesty of heightened caution, equivalent to strapping on some C4, running into traffic and blowing up an entire school bus full of children. Limbs akimbo. Blood in vicious tandem. Blooms of crisp trigonometry, pouring down and around and around onto the dusty streets below. An indecent cascade of ceremony upon the land of Jakarta, but at least the shrapnel of a half-blown up dick didn't happen to enter the mouth of another child, because that would have taken the already-tragedy to unprecedented highs. The news speaks. The people are outraged. Fragments of the bus are placed on trial. Buses are soon banned and really I hoped Milo was absolutely loving this routine, because it truly was key to her liking me.
 
-"You really are evil, aren't you?", says Milo, skipping about on the side walk, a-twirl in her own world of disturbing fascination.
+"You really are evil, aren't you?", utters Milo, as she detaches from my arm, keen to skip about on the side walk. A-twirl in her own world of disturbing fascination. I could never quite tell what she was thinking, nor whether she was scheming against me, nor whom with. But it felt awfully as if I were being plucked from the herd for my blatant gullibility, a trait which I heralded as a quirky coping mechanism to be admired, now sinking me in a latrine of quibble speculation. She looks at me with wide-open eyes, tautologically drawing the outline of my torso with her plymouth tongue slithered inbetween her teeth. Inconsummate in the indecision bleeding from her mouth.
 
-"It's just a joke," I remarked. A light teaser of things to come, hoping to sound lost in my own intellectuality. Obviously inundated in an air of desperation I'd simply accepted as a premium feature of my personality. Undeniably I'd softened to her
+"I try my best," I remarked, hoping to sound lost in my own intellectuality. Obviously, inundated in an air of desperation I'd simply accepted as a premium feature of my personality, as was perfectly clear in my hilarious inability to even hold eye-contact. Undeniably, I'd softened a little too much to her charm, although how could one control it? This jester holds nothing in his hands.
 
 
-### Talks abous relationship
-
-I'd always been afraid of this moment, where man meets women, carried by the heavy hands of fate onto something greater. Where the expectation was loud and vast, ripping itself methodologically into the grain of your skin, scolding bone as a consequence of childish demeanor.
-
-"Very funny," I noted in extreme caution, knowing full-well that there was a 1 in 10 chance that her flirtatious actions could result in a round of heated bathroom sex, unfortunate for the disabled sod in a 60s' wheel chair holding on for dear life to the ambient noise of sexual wear n' tear.
 
 ### At Bar
 
@@ -83,7 +77,6 @@ I can feel her grabbing at my pants. It was wild.
 
 ### Dance Together
 
-Milo looked at me with wide-open eyes, tautologically drawing the outline of my torso with her tongue slithered between her teeth, incommensurable in her indecision she treated like a cute afterthought. I could never quite tell what it was she was scheming, nor whom with. But it felt awfully as if I were being plucked from the herd for my blatant gullibility, a trait which I heralded as a quirky coping mechanism to be admired, now sinking me in a latrine of quibble speculation.
 
 
 Admittedly, I was never much of an alcohol kind of guy. I always
