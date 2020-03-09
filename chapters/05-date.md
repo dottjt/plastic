@@ -43,19 +43,21 @@ My finger collides with the doorbell in a punch of raw sweat, caught against a c
 
 -->
 
-There's something fantastic about sodomy. A religious travesty of heightened caution, no different to blowing up a entire school bus full of Indonesian school children, limbs akimbo, crisp sheets of trigonometry pouring down in a cascade of ceremony, only to condemn those who practice formal expression in a much, much less formal way.
-
-"You really are evil, aren't you?" says Milo, skipping about on the side walk, a-twirl in her own world of disturbing imagination of primary fascination. A curious beast I one-day hoped to tame and unleash, like a feel-good tsunami of sexual domination. Clearly, you didn't need to hear that.
-
-"It's just a joke," I remarked, a light teaser of things to come, hoping to sound lost in my own intellectuality, obviously inundated in an air of desperation I'd simply accepted as the lonely cousin following me around everywhere. Undeniably I'd softened to her
 
 ### Walk down the promenade
 
-I embraced myself for a foul night of flavoured tinnitus and unmarked glory holes. Ready to impress her paper-thin waist with a good ol' whack-a-moleay.
+I placed my tongue around my neck. Embracing the flavoured tinnitus and unmarked glory holes swallowing all logic into a viable junction of lovey-dovey tightness. Ready to impress her ribbonlike waist with a good ol' whack-a-moleay, amble in the meandering sway of my viscious claws. Anxious to hold her hand and call her nice things. Our footsteps waded through the thick musk of the dusk harbor atmosphere, caulked in the silhouette of a late-night Indian family playing "daddy knows best" amongst a domestic heirarchy of cultural scamper. Daddy picks child. Up. Shouts in a foreign language. Mummy stands tall. Waiting. Thinking about Korma, because I'm a racist with a fuck binge. A suitably romantic scene, if not a touch endearing, although barely enough to ensure us through the piles of drugs interacting with our interactions.
 
-The harbor atmosphere, caulked in the silhouette of a family galore, witnessing a domestic episode of "dad knows best", was suitably romantic, if not a touch endearing. As I looked up at the night sky, it was clear that the clouds were amiss in their treachery, shrouding their eerie ways into the whispering wind and creeping shadows, lurking and melding themselves into our fragmented movement refracting against the crayon river below. Thankfully it was just enough to convince her to hold my hand, something which I'd been thinking about since we first met.
+I looked up into the night sky. Barely here, nor there. The clouds. Amiss in their twretched drudgery. Shrouding their eerie ways into the whispering winds and creeping shadows of their distant forefathers, lurking and melding into the fragmented movement of our veins and loath left behinnd, refracting upon the crayon surface of the cautious river below. Thankfully, it was just enough to convince her to latch onto my hand, as she pressed her body against my shoulder, something which I'd been thinking about since we first met. Milo was cute. A cat. A cutie cat. And although I could tell that I was becoming derranged in my hunger for self-acceptance, that crucial element holding me together, it was a much better feeling than lying in my bed, sulking over the metaphysical appearances of the world.
 
-Milo looked at me with wide-open eyes, tautologically drawing the outline of my torso with her tongue slithered between her teeth, incommensurable in her indecision she treated like a cute afterthought. I could never quite tell what it was she was scheming, nor whom with. But it felt awfully as if I were being plucked from the herd for my blatant gullibility, a trait which I heralded as a quirky coping mechanism to be admired, now sinking me in a latrine of quibble speculation.
+"There's something fantastic about sodomy." A religious travesty of heightened caution, equivalent to blowing up an entire school bus full of school children. Limbs akimbo. Blood splatter. Blooms of crisp trigonometry pouring down onto the dusty street below in an indecent cascade of ceremony. But at least the shrapnel of a half-blown up dick didn't enter another child's mouth, but that would have taken tragedy to unprecedented 10.
+
+only to condemn those who practice formal expression in a much, much less formal way.
+
+"You really are evil, aren't you?", says Milo, skipping about on the side walk, a-twirl in her own world of disturbing fascination.
+
+"It's just a joke," I remarked. A light teaser of things to come, hoping to sound lost in my own intellectuality. Obviously inundated in an air of desperation I'd simply accepted as a premium feature of my personality. Undeniably I'd softened to her
+
 
 ### Talks abous relationship
 
@@ -81,6 +83,7 @@ I can feel her grabbing at my pants. It was wild.
 
 ### Dance Together
 
+Milo looked at me with wide-open eyes, tautologically drawing the outline of my torso with her tongue slithered between her teeth, incommensurable in her indecision she treated like a cute afterthought. I could never quite tell what it was she was scheming, nor whom with. But it felt awfully as if I were being plucked from the herd for my blatant gullibility, a trait which I heralded as a quirky coping mechanism to be admired, now sinking me in a latrine of quibble speculation.
 
 
 Admittedly, I was never much of an alcohol kind of guy. I always
