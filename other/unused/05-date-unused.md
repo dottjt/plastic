@@ -17,7 +17,6 @@ I'm sure there was a glory hole somewhere, perhaps currently being used,
 
 Hosting parties for the meek and well-deserved, in the wake of an 18th century gold rush.
 
-like tryin' ta squash Lego into squelched antelope. The world's smallest tongue, preaching a woman's biggest nightmare.
 
 Engulfed in common ivy.
 
@@ -58,3 +57,12 @@ only to condemn those who practice formal expression in a much, much less formal
 
 "Very funny," I noted in extreme caution, knowing full-well that there was a 1 in 10 chance that her flirtatious actions could result in a round of heated bathroom sex, unfortunate for the disabled sod in a 60s' wheel chair holding on for dear life to the ambient noise of sexual wear n' tear.
 
+
+ viable junction of
+
+
+
+ Embracing the flavoured tinnitus and unmarked glory holes swallowing all logic into a viable junction of lovey-dovey tightness.
+
+
+I was the world's smallest priest, attempting to preach justice upon this woman's biggest nightmare. A stable relationship, along with a hearty tick of monogamy.
