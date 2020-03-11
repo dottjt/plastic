@@ -78,4 +78,6 @@ embracing the flavoured tinnitus pouring from her mouth in an uncalculated madne
 
 I place my tongue around my neck, embracing the flavoured tinnitus as the indecipherable madness of a dappled arcadia pours from her mouth.
 
-Potentially taking this already-tragedy to unprecedented highs. 
+Potentially taking this already-tragedy to unprecedented highs.
+
+Not just the guy at her desk sharing a cigarette with, but the guy in her bed.
