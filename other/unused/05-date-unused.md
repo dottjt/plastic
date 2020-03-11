@@ -77,3 +77,5 @@ Uncalculated in a dappled arcadia of incomprehensible madness
 embracing the flavoured tinnitus pouring from her mouth in an uncalculated madness of dappled arcadia
 
 I place my tongue around my neck, embracing the flavoured tinnitus as the indecipherable madness of a dappled arcadia pours from her mouth.
+
+Potentially taking this already-tragedy to unprecedented highs. 
