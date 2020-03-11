@@ -66,3 +66,14 @@ only to condemn those who practice formal expression in a much, much less formal
 
 
 I was the world's smallest priest, attempting to preach justice upon this woman's biggest nightmare. A stable relationship, along with a hearty tick of monogamy.
+
+I place my tongue around my neck, embracing the flavoured tinnitus pouring from the uncalculated madness of her words.
+I place my tongue around my neck, embracing the flavoured tinnitus pouring from her mouth in an uncalculated madness of dappled arcadia.
+
+
+
+Uncalculated in a dappled arcadia of incomprehensible madness
+
+embracing the flavoured tinnitus pouring from her mouth in an uncalculated madness of dappled arcadia
+
+I place my tongue around my neck, embracing the flavoured tinnitus as the indecipherable madness of a dappled arcadia pours from her mouth.

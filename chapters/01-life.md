@@ -132,6 +132,6 @@ As I gawked my way out of The Ming, dead in a primal pursuit of counter-clock ra
 
 ### Chinese man prophecy
 
-I pass an old Chinese man selling chop-chop along the side of the road. He begins shouting at me in a XXXX of incomprehensible Chinese. Perhaps he recognised me. Perhaps he wanted to tell me something important. I threw him a dollar as he sat there bewildered at the generosity of my gesture. I was in no mood to play prophecy. At the very least I understood how I didn't want my book published, abused and slawed in slimy knockdown of soaked arrest. I glanced down at my watch and swore. Fuck. It was only 2 in the afternoon and I still had to return to work. Hopefully no one had realised how long I'd disappeared for, although I found that highly unlikely. Unfortunately, it didn't stop me from trying.
+I pass an old Chinese man selling chop-chop along the side of the road. He begins shouting at me in a roast of incomprehensible Chinese. Perhaps he recognised me. Perhaps he wanted to tell me something important. I threw him a dollar as he sat there bewildered at the generosity of my gesture. I was in no mood to play prophecy. At the very least I understood how I didn't want my book published, abused and slawed in slimy knockdown of soaked arrest. I glanced down at my watch and swore. Fuck. It was only 2 in the afternoon and I still had to return to work. Hopefully no one had realised how long I'd disappeared for, although I found that highly unlikely. Unfortunately, it didn't stop me from trying.
 
 ## Scene 4 END
