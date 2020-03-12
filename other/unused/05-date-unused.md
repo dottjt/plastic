@@ -81,3 +81,19 @@ I place my tongue around my neck, embracing the flavoured tinnitus as the indeci
 Potentially taking this already-tragedy to unprecedented highs.
 
 Not just the guy at her desk sharing a cigarette with, but the guy in her bed.
+
+
+I snap back from the void, slightly confused. I really needed to watch myself.
+
+in it's muted loudness
+
+the expectation for success has become so vast and overwhelming, that not even
+
+I'm sure I could have paid a higher price for my enthusaism, although my broker was short on options.
+
+
+
+
+
+.
+clashing slovenly against the crowd in an  of joyous futility, against the singing cheers and alcoholic folly of the bar to my left, for a new a generation of cashed up patrons to falter and despair.

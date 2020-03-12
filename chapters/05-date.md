@@ -51,22 +51,18 @@ Our footsteps wade through the thick musk of the dusk harbor bay, born from a co
 
 "You really are evil, aren't you?", utters Milo, as she detaches away from my arm. Keen to skip about on the side walk next to the vulval flow of the night river glow, a-twirl in her own dark grave of disturbing fascination. I could never quite tell what she was thinking in these moments of glee. Whether she was scheming with me or against me. Nor necessarily with whom. But it felt awfully as if she'd arbitrarily plucked me from the herd to be briefly admired for my weak-willed courage to persist with her unbalance, only to be soon discarded and thrown away once my overbearingness had become too much to touch. A trait which I had heralded as a quirky coping mechanism to be aligned with, only to realise in a distant episode that it had been sinking me at my feet this entire time, drowning me in a latrine of my own quibbled speculation. I was dust boy, and she was my dustpan mistress. Sweeping me up for my own good, so I could be reacquianted with the of bin silence which would rapidly assemble the beginnings of an uncontrollable depression.
 
+For a moment she sparks. I don't understand why, but I enjoy the attention. She turns her head towards me with her eyes wide-open, tautologically drawing the outline of my torso with the edge of her tongue. Now delicately slithered in-between her teeth in a plymouth hunger of pneumatic tension. Inconsummate, like a tailor of indecision bleeding sour from her gums. Ideologically opposed. Delinquent. I suppose I'd always been afraid of this moment. Where man meets women and woman embraces man in an underground cavern of sexual theatre. Woman is clubbed. Woman is raped. Woman gives birth and life continues it's viscous cycle until we eventually achieve some semblance of balance. A union of civil rights and divorce. Leading us to present day. Ground zero. An uncanny valley of gore and racism where not even the sweetest of words are enough to impress the discarded packaging of a Japanese sex doll. The blaring loudness of expectation resumes it's mighty roar. Manhood. Lost. The pressure rips itself methodologically through the grain of your skin, scolding bone as a consequence of your own childish demeanor. Aching and breaking you. Leaving you sad and alone. Longing for expression. Attempting to prove itself in a smear of naked adoration, like a slaw of mulched grape seed chutney slobbered upon a senior's breakfast pantaloon. She was my main course and I was absolutely dying to chew. Give me your pulp, bitch. Give me your whore.
+
+I make another pointless comment, hoping to sound lost within my own intellectuality. It fails. Inundating the air with a clear sense of desperation. Another flaw I'd simply come to accept as a premium feature of my own personality, revealing itself in my obvious inability to hold eye-contact. A jester without his hands. The tally is revised. She is bored and I am one step closer to sitting alone in my apartment, contemplating suicide as I eat a half-frozen meatpie in front of my computer monitor. Wanking. Lying about how truly happy I am to my therapist. Thankfully, we'd just arrived at our destination for the evening. An establishment of entertainment. A pub with a Scottish name. I presume it was written in some form of Gaelic, although I had no bloody idea. It was an irrelevant detail I was wasting my mind on. I just wanted a drink.
+
 -->
-
-For a moment she sparks. I don't understand why, but I enjoy the attention. She turns her head directly towards me, staring deep into my soul with wide-open eyes. Tautologically drawing the outline of my torso with her tongue, delicately slithered in-between her teeth in a plymouth of pneumatic hunger. Inconsummate in the indecision bleeding from her gums. I suppose I'd always been afraid of this moment. Where man meets women in a cavern of underlying purpose. Man clubs woman. Woman is raped. Then life continues until we achieve some semblance of civil rights, which leads us to ground zero. Where the expectation is so vast in it's overwhelming loudness, that it can't help but rip itself methodologically into the grain of your skin. Scolding bone as a consequence of your own childish demeanor.
-
-Aching and breaking you into more than just teenage gore. I sad and alone and I needed to express myself, if only to get closer to the woman I adored, like mulched grape seed on a senior's breakfast pantaloon. Give me your pulp, you bitch.
-
-"I try my best," I remarked, hoping to sound lost in my own intellectuality. Obviously, inundated in an air of desperation I'd simply accepted as a premium feature of my personality, as was perfectly clear in my hilarious inability to even hold eye-contact. Undeniably, I'd softened a little too much to her charm, although how could one control it? This jester holds no hands. Eventually, we arrived at our destination. An establishment of entertainment. The local river 'pub'. I'm sure I could have paid a higher price for my enthusaism, although my broker was short on options.
-
 
 ### At Bar
 
+Punk rock n' nicotine patches. The deafening reverberation of the in-house band left a ringing in my ears that was felt well into the next hour. I bow towards the head honcho, and I take a moment to glare into the sparsity of the sloven crowd before me, cashed up in an alcoholic folly for a new generation of beaten housewives to repair. Singing against the cheer.
 
 
-The deafening reverberation of broken noise clashed against the senses.
-
-, the singing cheers and alcoholic folly of the bar left open a new a generation of patrons to falter and despair, clashing slovenly against the senses in an agonising huff of futility. It was clear who had become adjusted to the rein, those blacked out youth in their cordoroy t-shirts and labelled affair, justifying confidence with another stint at the bar. A drunken man swerves around me, smashing his head into the Irish trims lacing their way around the liquor tetrohedron of doom. There's a particular mistress in every bar.
+ It was clear who had become adjusted to the rein, those blacked out youth in their cordoroy t-shirts and labelled affair, justifying confidence with another stint at the bar. A drunken man swerves around me, smashing his head into the Irish trims lacing their way around the liquor tetrohedron of doom. There's a particular mistress in every bar.
 
 
 "Man, where do they find these women," I shout, knowing full-well that no one can hear me. I see Milo head to the bar, flirting with the waitress, before turning her head towards me with sharp smirk and a brief sneer in her eye, as if to suggest that I had some part to play
@@ -77,6 +73,8 @@ Milo comes over with two pints of cider and a
 I down my first shot.
 
 I can feel her grabbing at my pants. It was wild.
+
+Undeniably, I'd softened a little too much to her charm, although how could one control it?
 
 ### Dance Together
 
