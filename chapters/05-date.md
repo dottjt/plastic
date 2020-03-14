@@ -59,18 +59,12 @@ I make another pointless comment, hoping to sound lost within my own intellectua
 
 ### At Bar
 
-Punk rock n' nicotine patches. The deafening reverberation of the in-house band left a ringing in my ears that was felt well into the next hour. I bow towards the head honcho, and I take a moment to glare into the sparsity of the sloven crowd before me, cashed up in an alcoholic folly for a new generation of beaten housewives to repair. Singing against the cheer.
+Rock n' roll n' nicotine patches. The immediate reverberation of the in-house band pummels me into a two-bit amplitude of broken distortion, rupturing my canals into a jackhammer aftermath of smashed rubble and narcoleptic disorientation. Commencing what would be a post-traumatic ringing in my ears which would be felt well into the early hours of tomorrow morning, churning meekly at the cones and rods shaken in my harrowing plea for homely subsistence. I needed a drink. The head honco flips her middle finger at me in a French occupation of swivel inebriation; teenage angst at wholesale prices, palpitating down in the antic mul of the pub jeer. I take a moment to glare into the sparsity of the sloven crowd before me, cashed up in an alcoholic folly of Saturday night disrepair. Cheering against the rein. Those blacked out youth in their cordoroy t-shirts and labelled affair, justifying confidence with another able-bodied stint at the bar. Some drunken fuck swerves into me in a looseless-nancy, smashing his head onto the oak hardwood of the bar top besides me. Lacing it's way around the room in a liquor tetrohedron of doom, as the blood drew mess from his fractured skull. I knew I'd come to the right place, even though I'd much rather be at home. Moments before finishing off a late-night wank, ready to head to bed.
 
+"Man, where do they find these people?", I shout, knowing full-well that no one can hear me. I can tell Milo feels at home, here amongst the appetizing trash of kitsch puritance. She steps over the drunken fuck, flirts with a waitress with dark eyeliner, before turning her head towards me with sharp smirk and a brief sneer. As if to suggest that I had some part to play in this scene. She begins chatting away with the bartender. I think they kiss. Then seemingly, she disappears completely from my sight, carried away by a torrent of desperate patrons bidding for another pint. Admittedly, I'd always felt out of place at bars. Not that it felt artificial, but it didn't really fit my image of a romance. Ideally, where we'd both lay there sulking in a dark room together, cutting our wrists and acting like dumb teenagers with an insecurity for how we looked. Clearly, there was a huge part of my childhood that I'd missed out on. Milo comes over with two pints of cider and a Wet Pussy.
 
- It was clear who had become adjusted to the rein, those blacked out youth in their cordoroy t-shirts and labelled affair, justifying confidence with another stint at the bar. A drunken man swerves around me, smashing his head into the Irish trims lacing their way around the liquor tetrohedron of doom. There's a particular mistress in every bar.
+"This is for you, soldier. I've already had mine," she berates, as I down my first shot, my hearing now deteriorating to that of a 5 year old. 
 
-
-"Man, where do they find these women," I shout, knowing full-well that no one can hear me. I see Milo head to the bar, flirting with the waitress, before turning her head towards me with sharp smirk and a brief sneer in her eye, as if to suggest that I had some part to play
-
-I always felt out of place at bars. Not that it felt artificial, but it's not the kind of place you would live in, so why would you want to hang out there?
-
-Milo comes over with two pints of cider and a
-I down my first shot.
 
 I can feel her grabbing at my pants. It was wild.
 

@@ -97,3 +97,9 @@ I'm sure I could have paid a higher price for my enthusaism, although my broker 
 
 .
 clashing slovenly against the crowd in an  of joyous futility, against the singing cheers and alcoholic folly of the bar to my left, for a new a generation of cashed up patrons to falter and despair.
+
+
+
+
+
+ It was clear who had become adjusted to the rein, 

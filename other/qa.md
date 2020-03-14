@@ -38,6 +38,8 @@ In a way, the book is an ode to the 1950s beat generation. I wanted to write a m
 
 # Why is it called How to kill a Chinaman?
 
+It relates to the rejection I feel for my half-chinese side.
+
 The book is a reflection of the slow degredation of a Chinese man attempting his best to copie in Western society. The title may also been seen as a reflection of the character's self-worth; a person worth dying. It doesn't intend to be a statement against China. It intends to be a statement against the individual.
 
 It also resembles a rejection of ethnicity. The killing of one's own ethnicity. Ultimately although I am half chinese, having been brought up a single Chinese mother, I fully identify with being Chinese.
