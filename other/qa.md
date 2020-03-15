@@ -46,6 +46,8 @@ It also resembles a rejection of ethnicity. The killing of one's own ethnicity. 
 
 Perhaps it also has to do with my upbringing.
 
+It also seems to play on the racism against Chinese people. Chinese people are generally seen as being lesser to whites, which is particularly evident with our food. It's considered to be cheaper, more nasty etc. etc. 
+
 # What are some of the central themes of the novel?
 
 In essence, this is a novel about bipolar disorder. The first half of the novel describes the depression and the downfall and the second half of the novel describes the ascent.

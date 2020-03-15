@@ -1,6 +1,12 @@
-# 06-date.md
+# 05-date.md
 
 ### NOTE: Maybe this chapter should begin with a statement about dating, you know. To keep the continuity of how this book is themed.
+
+The child with a medicinal flower crown DIES in an expiry of shame before my very eyes. Her entire body. Snapping in half. Splitting in two. The stupid moronic screaming of a delicate frame. Lungs. Convulsing. An unbearable dither of lousy attention-seeking bullshit. Like choking black ice. She's dead. I killed her. Fuck her. I attempt to run away from the scene, but the relativity of her trauma pulls me back. Goosing my step. The tear tearing torn tear you tatter tit tome.
+
+Perhaps I'll be mugged today by a cunning elf with pointy ears, in a precious reminder to always stock up on earth-based elixirs and defensive magic spells.
+
+ Hot lava smoothie. 
 
 edwardian
 windsor
@@ -106,3 +112,9 @@ clashing slovenly against the crowd in an  of joyous futility, against the singi
 
 
  The unawakening surround of these mysterious unsettling tones chortle doubt into the cone of my ear,
+
+ Wrought in a silk cloth of god-fearing shyness.
+
+ Certainly, I'd had better thoughts before
+
+ It wasn't my finest moment as an able-bodied human being, but I could barely 
