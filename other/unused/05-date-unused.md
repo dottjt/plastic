@@ -6,7 +6,7 @@ The child with a medicinal flower crown DIES in an expiry of shame before my ver
 
 Perhaps I'll be mugged today by a cunning elf with pointy ears, in a precious reminder to always stock up on earth-based elixirs and defensive magic spells.
 
- Hot lava smoothie. 
+ Hot lava smoothie.
 
 edwardian
 windsor
@@ -108,7 +108,7 @@ clashing slovenly against the crowd in an  of joyous futility, against the singi
 
 
 
- It was clear who had become adjusted to the rein, 
+ It was clear who had become adjusted to the rein,
 
 
  The unawakening surround of these mysterious unsettling tones chortle doubt into the cone of my ear,
@@ -117,4 +117,15 @@ clashing slovenly against the crowd in an  of joyous futility, against the singi
 
  Certainly, I'd had better thoughts before
 
- It wasn't my finest moment as an able-bodied human being, but I could barely 
+ It wasn't my finest moment as an able-bodied human being, but I could barely
+
+ Appreciative of these stockdale houses and their avid continuity, ursurping culture along these Victorian terrace walls of vandal decor.
+
+roiled board.
+
+
+Unsympathetic in their benign intentions.
+
+rotting inside her molars,
+
+And yet for some unknown reason beyond which was clearly my own mental illness, the imagery of that arrangement turned me on.
