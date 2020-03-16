@@ -135,3 +135,5 @@ Treading through a thick soup of lawn,
 As a cunning elf with pointy ears advances towards me. Gun in hand.
 
 the sickly green milk crates stacked near a window, dressed in dandelions and other lesser features outside on the front porch below.
+
+Perhaps I'll be mugged today. Attacked by an elf with a gun in his surly pocket.
