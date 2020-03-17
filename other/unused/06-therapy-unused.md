@@ -2,7 +2,7 @@
 
 Suckle my lunt, you clitch.
 
-without pleasure of blackmail. the hearty embrace of a fuck-off grin.
+without pleasure of blackmail. 
 
 unquantifiable research.
 
@@ -26,3 +26,11 @@ insignificant granular odities
 Sold to your
 
 Germane in it's gloat.
+
+ unrequited love for Kigurumi to been exposed
+
+ and is now being
+
+mistakenly circulated and egregiously exposed
+
+in your internet search history

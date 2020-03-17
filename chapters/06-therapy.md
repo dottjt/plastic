@@ -8,11 +8,11 @@ day: "Sunday."
 
 ### Magazine
 
-"10 Hot Tips For Amazing, Mind-Blowing Sex." The front cover of every men's magazine. Sizing and measuring you down to the retrofit standard, just like the piece of shit you are. To be printed at birth upon a thin laminate of unmet judgement, stapled to your forehead and sold to the Chinese for a pretty penny n' a cuck full of gould. Unfortunately, your unrequited love for Kigurumi has been exposed via your private Twitter account, and is now being circulated to every data centre across the country for the apparent aggrieve of marketing research. Congenital in it's touch, you kooky little spider.
+"10 Hot Tips For Amazing, Mind-Blowing Sex." The front cover of every men's magazine. Sizing and measuring you down to the retrofit standard, just like the piece of shit you are. To be printed at birth upon a thin laminate of unmet judgement, stapled to your forehead and sold to the Chinese for a pretty penny n' a cuck full of gould. Oh, and it seems that your fetish for Kigurumi men has been egregiously exposed to every single data centre across the country, now aggressively circulating online for the wholesome purposes of marketing research. Congenital in it's touch, unrequited in your hold. You kooky little spider. Cum fuk me, ryder.
 
-Congratulations. Your hopes and dreams, those unwritten lies of youth, have now been successfully sent to your nearest data collection centre, where they will be processed and reassembled under the laborious eye of an obscure Japanese algorithm. Emulated in comparative Lisp, with a dash of parenthesized Cobol to boot. Perfectly rigid in it's classification of dirt and other insignificant odities. Tectonic in it's outcome. FUCK. "I am an average half-Asian male with an overwhelming propensity for sticking my penis into the hulls of pretentious white women," my label states. Illustrated in a beautiful Iranian typeface, extracted from page 5 of a ten-part contemporary guide to desktop publishing. How glorious, you must say. Well, quite glorious indeed.
+Congratulations! You're still terrible at sex and your hopes and dreams, those unwritten lies of youth, have been processed and reassembled under the laborious eye of an obscure Japanese algorithm. Emulated in comparative Lisp, with a dash of parenthesized Cobol to boot. Perfectly rigid in it's classification of dirt and other insignificant odities. Tectonic in it's outcome. Germane in it's gloat. FUCK. "I am an average half-Asian male with an overwhelming propensity for sticking my penis into the hulls of pretentious white women," my label states. Illustrated in a beautiful Iranian typeface, extracted from page five of a ten-part contemporary guide to desktop publishing. How glorious, you must say. Well, quite glorious indeed! If I don't say myself.
 
-We try to love ourselves. We try to breathe meaning into our pursuits and leisures, providing them with gloss and texture to make our lives appear more decorative than they truly are. As we shower our souls in the finest of ingredients and the most luxurious of kinds, only to witness them crumble and break down before our very eyes. Absorbed and prolonged by a plague of dear locusts, as they contemplate their regular routine around our ego in a structured curriculum of incarnate and thrice. I wasn't sure who I was in this moment, nor quite why I was here. Oh, and the smell. The fucking smell had become unbearable. Like a visually-stained splotch of acidic discharge, it spread amongst an estuary of rotting hoisery and speckled period blood. As if bathed in the crinkled skin of a burn-victim's carcass, left to disintegrate under the shoveled distress of an effluent creek. She proceeded to alternate her crossed legs, causing me to gag a second time. I couldn't fucking take it anymore. I wanted to rip the flitted flesh from this cunt's vagina and fuck the wound with a fistful of detol until it was all nice n' sheen.
+The point is that we try to love ourselves. We try to breathe meaning into our pursuits and leisures, providing them with gloss and texture to make our lives appear more decorative than they truly are. As we put on our blindfolds and shower our souls in the finest of ingredients and the most luxurious of kinds, only to witness them crumble and break down before our very eyes. Absorbed and prolonged by a plague of dear locusts, as they contemplate their regular routine around our ego in a structured curriculum of incarnate and thrice. I wasn't sure who I was in this moment, nor quite why I was here. Oh, and the smell. The fucking smell had become unbearable. Like a visually-stained splotch of acidic discharge, it spread amongst an estuary of rotting hoisery and speckled period blood. As if bathed in the crinkled skin of a burn-victim's carcass, left to disintegrate under the shoveled distress of an effluent creek. She proceeded to alternate her crossed legs, causing me to gag a second time. I couldn't fucking take it anymore. I wanted to rip the flitted flesh from this cunt's vagina and fuck the wound with a fistful of detol until it was all nice n' sheen.
 
 ### Clinic Lobby
 
@@ -183,9 +183,6 @@ I proceed to the checkout. A teenager in tight jeans greets me. I wouldn't have 
 My birthday was coming up. It helped to be prepared.
 
 
-
-
-
 ## Scene 1 END
 
 ####
@@ -198,10 +195,7 @@ A gun shop. I'd never bought a gun before. I suppose there was no harm in
 
 
 
-
 The chime of the shopkeeper's bell. Metallic refraction.
-
-
 
 
 

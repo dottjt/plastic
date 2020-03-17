@@ -8,9 +8,15 @@ day: "Saturday."
 
 ### Birthday Monologue
 
-A week of life passes by. The rain is thin. It's my birthday. The loneliest day of the year. An empty echo-chamber of must-haves and has-beens, drowning in a slurry of desperate pleas for love and lace. I often wonder what a birthday message actual is, aside from a fine-grained permission to feel. A pity cookie for old time's sake, just to prove that you haven't been raped and tortured by some Taliban rookie in a silk robe, growing opium from his ranch south of the capital. Glutinous fingers , fiercely bidding for the surface of your attention. Hoping to disperse it's lovely little claws into your spread, violating what little aspiration you have to weed your way back to safety. At first it shrieks in a mad outburst, indicating it's own displeasure with the world. Then it withers into a cloud of mould to suffocate any amount of apprehension from gaining necessary foothold. Lastly it smothers in absolute quantity, absorbing scar tissue and trauma at an incomprehensible rate. And once it's all over, in the snap of a heartbeat, it was as if nothing remained at all. A desolate fire of dementia, swept clean in an enticing devastation of brilliance.
+A week of life passes by. The rain is thin. My hair is dry. The work is dull. Today is my birthday. The loneliest day of the year. An empty echo-chamber of must-haves and has-beens, drowning in a desperate plea for love n' attention. Slurry in my deficit for lace n' affection, as I wear the hearty embrace of a fuck-off grin upon the impression of my chin. I often wondered what a birthday was, beyond a fine-grained permission to feel bad about one's existence. At most it tasted like a cookie from childhood, dipped in pity and crumbled upon the palm of your hands. For ol' time's sake. Just to prove that you hadn't yet been raped and tortured by some Taliban rookie in a silk robe, hungry to supply the American's with an ever-growing quantity of pure Afghani Opium. His glutinous fingers, a constant threat for your safety. You fear the black tar.
 
-I receive a text from mother. I don't know how it makes me feel. Anger, predominantly. Always anger.
+
+It's 10:35am. I receive a text from my mother. That bitch. That fatal fucking bitch. It supplies me with a trove a emotions which swirl in tandem around me. Throwing my emotions into a whirlwind of fervent aggression. Anger. Predominantly I felt anger. The kind of anger which evolved into a catastrophic
+
+I block her.
+
+Hoping to disperse it's lovely little claws into your spread, violating what little aspiration you have to weed your way back to safety. At first it shrieks in a mad outburst, indicating it's own displeasure with the world. Then it withers into a cloud of mould to suffocate any amount of apprehension from gaining necessary foothold. Lastly it smothers in absolute quantity, absorbing scar tissue and trauma at an incomprehensible rate. And once it's all over, in the snap of a heartbeat, it was as if nothing remained at all. A desolate fire of dementia, swept clean in an enticing devastation of brilliance.
+
 
 ### Attempted Suicide
 
