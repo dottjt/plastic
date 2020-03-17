@@ -12,8 +12,6 @@ Without even a congratulations in the mail.
 
 Circulating
 
-
-
 A new home for your hopes and dreams unspoken.
 
 granular
@@ -25,8 +23,6 @@ insignificant granular odities
 
 Sold to your
 
-Germane in it's gloat.
-
  unrequited love for Kigurumi to been exposed
 
  and is now being
@@ -34,3 +30,5 @@ Germane in it's gloat.
 mistakenly circulated and egregiously exposed
 
 in your internet search history
+
+I'm the pleasure without the blackmail, and you're just another  Suckle my lunt, you clitch.
