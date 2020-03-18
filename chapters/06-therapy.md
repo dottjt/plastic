@@ -46,33 +46,29 @@ I reached out into the depths of my brain, hoping to find something rational to 
 
 ### Therapy: What is success?
 
--->
-
 "Maybe I just don't feel successful in life," I uttered to the therapist.
 
 "Well, what's your idea of success?" the therapist responded.
 
-"I don't know. Maybe it's having sex three times a week. Owning a home. I just don't feel successful," dispersed the words from my mouth, as I dipped my face like a stubborn penguin into the plastic cup containing the remaining few drops of water I'd clearly already finshed. In actual fact, my dream was to become a writer. I'm not quite sure when the obsession began, but it was an all-consuming affair with my imagination. An innocent ploy for self-discovery, held in sanctuary by
+"I don't know. Maybe it's having sex three times a week with a hooker who'll remember my name. I guess I just want to feel less terrible about everything." These were the words which dispersed from my mouth, as I dipped my face into a plastic cup of water like a stubborn penguin. Suckling the remaining few drops I'd clearly already finshed, if only because I felt anxious sharing the hollow life that laid before me. Perishing in a pool of lethargy.
 
 "What do you think success would feel like?"
 
-"I guess I would be happy. Possibly content and fulfilled with myself, like if felt a sense of confidence and pride in who I was," I said.
+"I'm not sure. I guess I would be happy with my life. Like I'd achieved a lot or become famous, or something," I said.
 
-"And do you think you would it's possible to feel those things without success?" Fucking bitch. She had me. I knew she fuckin' had me, as the tight-lipped dryness in her eyes protruded like a telescopic rape device. I should have sued the bitch while I had the chance. I knew it wasn't a complete waste of time
+"And do you think it's possible to feel be without having achieved a lot or without becoming famous?" Fucking bitch. I knew she had me. I fuckin' knew it, as the tight-lipped dryness in her eyes protruded from her soul and grabbed me by the throat, like a telescopic rape device. I should have clocked the bitch while I had the chance.
 
-"Yeah, I guess you're right. Maybe it is possible to be happy without chasing my ideas of success. But what point is being happy if you're not successful?" Certainly, I was doubtful she pleased to deal with my inane bullshit on a Friday at 10am, as she pondered the state of her frozen eggs, suspended in a vat of pickle-juice to be extracted once her online dating profile came to full fruition. "Only a matter of time now," she would utter to herself in a fiendish tone, waiting patiently to ensnare her personal toy-boy to be kept and pleasured. Although perhaps that was just her job.
+"I don't know, maybe. But what's point in being happy if you're not successful?" HA. Die you insufferable bitch. Certainly, I doubt she was pleased to deal with my inane bullshit on a Sunday at 10am in the morning, as she sat there pondering about the ambiguous state of her frozen eggs, suspended in a vat of pickle juice to be extracted and adorned once her online dating profile had come to full fruition. "It's only a matter of time now," she'd utter to herself in a fiendish tone, drizzled in an indignant ambivalence of sexual unrest, awaiting patiently to ensnare her personal toy-boy of lust n' pleasure. Perhaps I was on the list. 
 
-"Well, what's the point of being successful if you're not happy? It sounds like you're not quite sure what it is you want. You view success as a list of objectives to complete, that you also seem to conflate with how you think it will make you feel." she said.
-
-"So what should I do then? Should I just buy the kool-aid and just pursue mindless pleasures instead?"
-
-"I wouldn't go to that extreme."
-
-"So would say that you view success as a list of objectives to complete, that you conflate with how you feel?"
-
-"What about being feeling itself? What value do you place on say, happiness?"
+"Maybe you don't quite know what you want because your idea of what you think you want, success, or at least your idea of success as a list of things to achieve, differs from how you want to feel. Which is happy, which arguably is completely independent of success itself" she said. 
 
 ### Discuss Happiness
+
+-->
+
+I wasn't sure what to think, but at the very least it felt as if I couldn't win. Certainly I knew she didn't make 
+
+All I knew was that this woman in the brown cardigan didn't make me happy, although perhaps nothing would.
 
 Happiness was never something that
 

@@ -52,3 +52,19 @@ I kid, I kid. Just give me my hit of valium and let's call it day.
 "I just feel bad about everything, you know? I feel guilty for the absolute hate I feel towards my mother, like that makes me a bad son. I feel cheated for being dumped. I just want something to workout for once in my life, but it just doesn't ever feel possible." Maybe she could help me afterall.
 
 honorary process of trust and deliberation
+
+In actual fact, my dream was to become a writer. I'm not quite sure when the obsession began, but it was an all-consuming affair with my imagination. An innocent ploy for self-discovery, held in sanctuary by
+
+
+Should I just buy the kool-aid and just pursue mindless pleasures instead?
+
+
+
+"So would say that you view success as a list of objectives to complete, that you conflate with how you feel?"
+
+"What about being feeling itself? What value do you place on say, happiness?"
+
+
+"So what should I do then?"
+
+"I wouldn't go to that extreme."
