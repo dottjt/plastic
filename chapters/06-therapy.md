@@ -4,24 +4,29 @@ description: "A short chapter with a therapist to discuss success, depression an
 day: "Sunday."
 ---
 
-## Scene 1 START - success.
+## Scene 1 START - .
 
 ### Magazine Monologue
 
-<!-- 
+<!--
 
 "10 Hot Tips For Amazing, Mind-Blowing Sex." The front cover of every men's magazine. Sizing and measuring you down to the retrofit standard, just like the piece of shit you are. To be printed at birth upon a thin laminate of unmet judgement, stapled to your forehead and sold to the Chinese for a pretty penny n' a cuck full of gould. Oh, and it seems that your fetish for Kigurumi men has been egregiously exposed online, now aggressively circulating to every single data centre across the country under the wholesome guise of Marketing Research. Congenital in it's touch. Unrequited in your hold. You kooky little spider.
 
-Congratulations, soldier! You're still terrible at sex and your hopes and dreams, those unwritten lies of youth, have now been processed and reassembled under the laborious eye of an obscure Japanese algorithm. Emulated in comparative Lisp, with a dash of parenthesized Cobol. Perfectly rigid in it's asinine classification of dirt and other insignificant odities. Granular in it's irrelevance. Tectonic in it's outcome. Germane is a gloat. FUCK. "I am an average half-Asian male with an overwhelming propensity for sticking my penis into the hulls of pretentious white women," my label states. Illustrated in a beautiful Iranian typeface, extracted from page five of a ten-part contemporary guide to desktop publishing. How glorious, you must say. Well, quite glorious indeed, if I don't say myself. And although my heart is currently beating under the false pretense of life, all I can say is that the blackmail has become far too much for me to handle and I'd really appreciate if you'd please, for the love of God, just lean over my shoulder and tell me how wonderful my smile is today. That was lovely. Thank you, Daddy. I love you too. 
+Congratulations, soldier! You're still terrible at sex and your hopes and dreams, those unwritten lies of youth, have now been processed and reassembled under the laborious eye of an obscure Japanese algorithm. Emulated in comparative Lisp, with a dash of parenthesized Cobol. Perfectly rigid in it's asinine classification of dirt and other insignificant odities. Granular in it's irrelevance. Tectonic in it's outcome. Germane is a gloat. FUCK. "I am an average half-Asian male with an overwhelming propensity for sticking my penis into the hulls of pretentious white women," my label states. Illustrated in a beautiful Iranian typeface, extracted from page five of a ten-part contemporary guide to desktop publishing. How glorious, you must say. Well, quite glorious indeed, if I don't say myself. And although my heart is currently beating under the false pretense of life, all I can say is that the blackmail has become far too much for me to handle and I'd really appreciate if you'd please, for the love of God, just lean over my shoulder and tell me how wonderful my smile is today. That was lovely. Thank you, Daddy. I love you too.
 
 The point is that we try to love ourselves. We try to breathe meaning into our pursuits and desires, providing them with gloss and texture to make our lives appear more decorative than they truly are. We shower our souls in the finest of ingredients and with the most decadent of minds, only to perceive flaw in our aberration, as we all collectively take off our blindfolds to witness the true aversion of it all. An empire of afterthought, crumbling and dismantling before our very eyes; absorbed and prolonged by a plague of famished locusts, contemplating their regular routine of savage deconstruction in a structured alimony of incarnate and curriculum. I wasn't quite sure who I was in this very moment, nor why I was here. All I knew was that the repulsion was strong on all levels. Oh, and the smell. The fucking smell had become unbearable. Like a visually-stained splotch of acidic discharge, spread thin amongst a gelatinous estuary of fangled hoisery and speckled period blood. Venerated in the exfoliated skin of a burn-victim's crotch, left to disintegrate under the shoveled distress of an effluent highway of pigs guts n' dog shit. It was the old shriveled cretin sitting next to me, as she proceeded to cross the gnarled flaps of her legs a second time, from left to right, causing me to gag in a vomit of marrow and decomposition. I couldn't fucking take it anymore. I wanted to rip the flitted flesh from this cunt's hymen and fuck the wound with a fistful of detol until I could smell the overwhelming silence of bleach, trickle from her hyperglycemic vagina.
 
 ### Clinic Lobby
 
-Part of me sat there in the lobby of the clinic, mired in a thick scrub of indigestion. Flippin' through the sham that was last week's editorial, published by a feminist with the opinion of a clown. The crisis of the patriarchy. The spate of Iran. The oppression of the Cheezel. I suppose she was right. I blink bristly at the awful stench sitting next to me, catatonic in a disasterous cough of prune juice, sippin' ethical soda by the gallon in a gully of volcanic slime. I liked her rustled coat. Electronic heart. Rancid vagina. The spewin' daffney of a frail iron harp. Scratchity sun. The sweater of a thousand nylon faces. I see yellow. The impression of a flower imprint. I suppose she was beautiful by human standards. A quick fuck before the heart attack hits. Flickering in a never-ending orgasm like the strobelight of a underground nightclub. I doubt she'd make a fine mother. Not with an octogenarian face like that. The distraction calls my name. Sunday had arrived. My purpose was glitter. It was time to shine. 
+Part of me sat there in the lobby of the clinic, mired in a thick scrub of indigestion. Flippin' through the sham that was last week's editorial, published by a feminist with the opinion of a clown. The crisis of the patriarchy. The spate of Iran. The oppression of the Cheezel. I suppose she was right. I blink bristly at the awful stench sitting next to me, catatonic in a disasterous cough of prune juice, sippin' ethical soda by the gallon in a gully of volcanic slime. I liked her rustled coat. Electronic heart. Rancid vagina. The spewin' daffney of a frail iron harp. Scratchity sun. The sweater of a thousand nylon faces. I see yellow. The impression of a flower imprint. I suppose she was beautiful by human standards. A quick fuck before the heart attack hits. Flickering in a never-ending orgasm like the strobelight of a underground nightclub. I doubt she'd make a fine mother. Not with an octogenarian face like that. The distraction calls my name. Sunday had arrived. My purpose was glitter. It was time to shine.
 
 To say that I hated therapy was an understatement. I couldn't possibly have thought of anything more pointless, nor contrived, than to explain why I was so fundamentally flawed in the most specific of ways. "I'm retarded, missy. I think it might be because I use the word faggot too much." I doubt she even knew what the word "faggot" meant. I mean, did I even know? At the very least, it was an excuse to taunt and prey upon someone more helpless than myself. The emotionless blemish of a clinical psychopath with an expensive doctorate in dialectic primatology, forever examining my white ideals of Dorian pleasure in a grand game of cat and mouse against therapist and scholar. She gestured to sit me down upon the fading fabric of a victim's nightwatch, as she groomed me with the offerings of tap water, taking advantage of my inability to fight my own biological thirst. Thank God this program was Government funded.
 
+## Scene 1 END
+
+####
+
+## Scene 2 START - therapy.
 
 ### Therapy - Expresses his feelings.
 
@@ -31,18 +36,18 @@ To say that I hated therapy was an understatement. I couldn't possibly have thou
 
 <!-- I need to verify whether the character actually is/has been dumped -->
 
-<!-- 
+<!--
 "...aaaaaand I've been dumped, and I pretty much want to kill myself." I doubt she picked up on the sarcasm, although it would have been nice to at least receive a giggle of some sort. To appease the comical foundry of suicide throwin' zingers under the seering judgement of a crabby ol' bitch. In a lot of ways, our interaction felt a bit like a golden marriage turned sour. I'll spare you the details, but let's just say that it's hard to fuck a dried husk of coconut peat without feeling the burn.
 
 ### Therapy - Response.
 
-"Listen, I'm sorry. I'm just joking. There's just a lot going on in my life at the moment." She continued to eye me, before finally deciding to chime in. 4 minutes 32 seconds into our session. A new record. 
+"Listen, I'm sorry. I'm just joking. There's just a lot going on in my life at the moment." She continued to eye me, before finally deciding to chime in. 4 minutes 32 seconds into our session. A new record.
 
-"I understand that it must have been difficult. Would you like to talk about it?" Outstanding professionalism. 
+"I understand that it must have been difficult. Would you like to talk about it?" Outstanding professionalism.
 
 ### Therapy - The guilt he feels for his mother.
 
-I reached out into the depths of my brain, hoping to find something rational to please her with. Truth was, there was simply too much to tell. How does one express the guilt, sadness and anger that one feels, without pulling a gun to their head in a misery of show n' tell? I was lost. I decided to go off on a tangent. 
+I reached out into the depths of my brain, hoping to find something rational to please her with. Truth was, there was simply too much to tell. How does one express the guilt, sadness and anger that one feels, without pulling a gun to their head in a misery of show n' tell? I was lost. I decided to go off on a tangent.
 
 ### Therapy: What is success?
 
@@ -58,68 +63,55 @@ I reached out into the depths of my brain, hoping to find something rational to 
 
 "And do you think it's possible to feel be without having achieved a lot or without becoming famous?" Fucking bitch. I knew she had me. I fuckin' knew it, as the tight-lipped dryness in her eyes protruded from her soul and grabbed me by the throat, like a telescopic rape device. I should have clocked the bitch while I had the chance.
 
-"I don't know, maybe. But what's point in being happy if you're not successful?" HA. Die you insufferable bitch. Certainly, I doubt she was pleased to deal with my inane bullshit on a Sunday at 10am in the morning, as she sat there pondering about the ambiguous state of her frozen eggs, suspended in a vat of pickle juice to be extracted and adorned once her online dating profile had come to full fruition. "It's only a matter of time now," she'd utter to herself in a fiendish tone, drizzled in an indignant ambivalence of sexual unrest, awaiting patiently to ensnare her personal toy-boy of lust n' pleasure. Perhaps I was on the list. 
+"I don't know, maybe. But what's point in being happy if you're not successful?" HA. Die you insufferable bitch. Certainly, I doubt she was pleased to deal with my inane bullshit on a Sunday at 10am in the morning, as she sat there pondering about the ambiguous state of her frozen eggs, suspended in a vat of pickle juice to be extracted and adorned once her online dating profile had come to full fruition. "It's only a matter of time now," she'd utter to herself in a fiendish tone, drizzled in an indignant ambivalence of sexual unrest, awaiting patiently to ensnare her personal toy-boy of lust n' pleasure. Perhaps I was on the list.
 
-"Maybe you don't quite know what you want because your idea of what you think you want, success, or at least your idea of success as a list of things to achieve, differs from how you want to feel. Which is happy, which arguably is completely independent of success itself" she said. 
+"Maybe you don't quite know what you want because your idea of what you think you want, success, or at least your idea of success as a list of things to achieve, differs from how you want to feel. Which is happy, which arguably is completely independent of success itself" she said.
 
 ### Discuss Happiness
 
+I wasn't quite sure what to think, but at the very least I knew that my interaction with the therapist didn't make me happy. Although perhaps nothing would. I suppose happiness had never really been one of my great aspirations in life. In fact, it wasn't a subject I really thought about at all. It was more a quirky nice-to-have, like a side of fries with a dab of Tabasco sauce. A never-ceasing sometimes pain, sometimes pleasure, which would sporadically appear at points throughout the day to remind you of your own mortality. Maybe what I truly wanted was to prove myself right against this bitch. Maybe that's what would make me happy. I decided to make myself happy.
+
+"Aren't you going to ask me where Daddy touched me," I said, clearly getting on her nerves. Before she could fit in a word, I decided to take my plastic cup to the watercooler at the back of the room for a refill. Surely even she could tell I was getting dehydrated. Taking my time not to further defame my already ruined reputation as a potential sex offender. Yummy yummy. Let this whispy stranger take you away, little child, to a place your parents couldn't possibly imagine. Decipher that one, doc.
+
+### Therapist Cracks
+
+"Maybe we should end today's session here." Yes. Perhaps we should. Goodbye Brown Cardigan. You soulless bag of apples.
+
+"And maybe I'm also not the right person to help you with your problems. You seem resistant to this idea that I can help you." Well, fuck. There ya have it folks. Discard the reminder. Throw out the bath water. There's fun to be had for all.
+
+"I don't think you trust me to help you understand your own problems." Correct. I didn't trust her. I didn't trust her to understand my pain. I didn't trust to truly understand what it was like to even fathom the loneliness that held in highest regard. Although honestly, what difference did it make. I barely even trusted myself.
+
 -->
 
-I wasn't sure what to think, but at the very least it felt as if I couldn't win. Certainly I knew she didn't make 
+### Leaving Practice
 
-All I knew was that this woman in the brown cardigan didn't make me happy, although perhaps nothing would.
-
-Happiness was never something that
-
-I guess I've never really been happy.
-
-It wasn't something you ever thought about.
-
-"Would you say that success and happiness are not the same thing?"
-
-"What about family? Friends?" Maybe
-
-"Aren't you going to ask me where Daddy touched me," I said, clearly getting on her nerves. Okay, maybe I should be a little more accomodating.
+I felt weary as I left her practice. Blinded by a combination of fog and sun, as it marooned my eyes into a tribal lull of pantomime sweat and mounting idealisation. Feeling unsure about this whole "life" thing. Just as I'd felt an hour earlier, as the non-clamateur puffed out of my lungs in a lapse of hard judgement, and onto a plate of sick. Covered in dread. Consume like a thick gravy. Sully in these wretched hands, pulling my strings and caressing me with a demented kindness. Carelessly tilting me towards it's touch of vice and candour. It was a loneliness reimagined for a smarter generation, delicate in it's illusions of cheerful carousel. Gathered in a grand court of caliph and vizier. Crowning hopelessness as it's young new leader to guide and extrapolate, in this celebration of formal resignation. And yet life more often than not, felt more like a chore to be flung around, rather than a purpose to be held. Too exhausted to cry. Too manic to pretend. I wish I knew myself better beyond the plastic shadow which mimiced my words and
 
 
 
-I decided to grab myself a plastic cup of water from the watercooler in the room, taking my time not to further defame my already ruined reputation as a possible unrealised sex offender. Children too. Yummy yummy. Let this whispy stranger take you to a place your parents couldn't possibly imagine.
+All I knew was that I still wanted to fuck her. Her long black hair tied into perfect ponytails, pulled back into my chest as I fucked her from behind. Something to take the edge off
 
+The thoughts of man trapped in desperation, ready to tear through the fabric of reality leaving ammonia.
 
+## Scene 2 END
 
-Truth is, the bitch had no idea what she was talkin' about.
+####
 
+## Scene 3 START - self-therapy.
 
-I wanted to feel.
-
-What did it mean to cope?
-
+### Cynicism Monologue
 
 I feel unadjusted. I feel unprepared for a life without meaning, though perhaps I'm simply unable to produce meaning without spreading my intellectual tar as a gift to the inconsequence slicing me open. It's a delicate buffet, so please dig in. An unpleasant feeling, a kind of surreal suffocation, that blinds me as welcomingly as it graces. I would happily equate it to grafting impure enamel into the soft edges of my eye-lids, allowing me to process what little conscious thought I have towards cultivating my dull insensitivity to .
 
 So here I am. It's post-cull and it's killing season. I have my rifle, my ammunition and as you can see, attached to my belt-buckle is the first kill for the afternoon. Unfortunately the fat-fuck couldn't waddle away fast enough to mummy's comfort, so I killed the entire family and here I am prodding away at a dead carcass with my great big fucking sword. Fuck you rabbit. Fuck you indeed.
 
 
-## Scene 1 END
-
-####
-
-## Scene 2 START - self-describe
-
-### Cynicism Monologue
 
 The orange agent places a sticker on your shoulder, congratulating you for your success, cackling delirious at the charity you demanded in the cusp of your two hands.
 
 There are some with a fantasy to discuss a big-breasted child with a severe OCD for sucking cock.
 
 Surely, in raptum we trust, you silly woman.
-
-### Success Conversation Again
-
-"Do you think I'll ever become a successful writer?"
-
-"I'm not sure if that's something I can answer. Although I imagine hard-work can take you a long way towards self-improvement."
 
 ### Reimagining Therapy
 
@@ -139,85 +131,4 @@ A finer touch if ever you demanded one, although as we both know, these words ar
 
 A mature fight-fighter with a body like a well-kept fire axe, covered in the tan ripple of a thoughtless afternoon, fucking your wife by the poolside as you watch by in self-justified shame.
 
-
-### Therapist Cracks
-
-"Maybe I'm not the right person to help you with your problems. You seem resistant to this idea that I can help you." Well, fuck. There ya have it folks. I was just another discarded reminder in this game of bastard cards.
-
-"I don't think you trust me to help you understand your own problems." Correct. I didn't trust her. I didn't trust her to understand my pain. I didn't trust to truly understand what it was like to even fathom the loneliness that held itself in high regard. Maybe I didn't trust her because I was barely willing to trust myself.
-
-
 ## Scene 2 END
-
-####
-
-## Scene 3 START - gun.
-
-### Leaving Therapy
-
-I wasn't quite sure what to think as I left her practice, although I was becoming more and more unsure about everything in my life up until this point. All I knew were the wretched hands which pulled at my strings and caressed me with a demented kindness, carelessly tilting me towards it's touch of vice and candour. Loneliness reimagined for a smarter generation, delicate in it's illusions of happy-fun-time and cheerful carousel. Gathered in a grand court of vizier and caliph, hopelessness had crowned it's young new leader to guide and extrapolate, to celebrate in the formal resignation of the
-
-Life more often than not, felt like a chore to be flung around, purported into a variety of situations which felt integral to my human, yet felt completely foreign and cold. Too exhausted to cry. Too manic to pretend. I wish I knew myself better beyond the plastic shadow which mimiced my words and
-
-All I knew was that I still wanted to fuck her. Her long black hair tied into perfect ponytails, pulled back into my chest as I fucked her from behind. Something to take the edge off
-
-The thoughts of man trapped in desperation, ready to tear through the fabric of reality leaving ammonia.
-
-<!-- probably do gun chapter -->
-
-
-### Wallet Monologue.
-
-You stare at your wallet. It stares back. There's money, but it looks sick. It is devoid of culture. It is without faith. A venture of pity. So you give it a home. A home in your heart. You decorate it with colour and quantity. For it to become your new loyal best friend. Yet you realise your offering is paltry. It is still without culture. It lingers for a soul. So you begin to worship the notes, validating the crisp outline of it's lilac surface. Embracing the judgement it strikes upon you with fear. The power of the divine. Now when you look at your wallet, you notice nothing but pride. The mystique of a millionaire, at a fraction of the dime. Your wallet is lordship. Your wallet has priest.
-
-### Describe Tampons / Milo
-
-The weekly shop. Danger's quinn. I walk past a packet of tampons. A menstrual pleasure enthralled in the candid exasperation of a desperate lowlife. A murky sign of affection. The golden trickle of nostalgia, reminding you of how weak you truly are. I'd try to eat them, but they reminded me too much of Milo. Her erratic touch. The boiled ingenuity of her misanthropic mind. Washed out against the afflictive sleaze of mindless inconsequence. More than anything, I simply wanted to hold her. Perhaps more than I wanted to be held. Merely as a sign of my own hospitalised desires, now working against me in a defective ward of malevolent circumstance. Locking her away in a blighted cage, never to be realised again. I walk past a healthy young couple. They seemed happy. Despair. Reason to plunge my colostrum hand into a vat of butter and drown my sorrows out in the creamy goodness of pasturised opulence. Although peppy with my remarks, I had no idea what I needed to maintain my minimal function. I would have been happy to simply perish in the soles of these shoes, to be permanently transferred away to a happier place where the heaviness in my heart could be free.
-
-### Describe the store
-
-Shell-shocked and without care, I continued to my narcissistic plea inside the interior of the large department store, now left in the capable hands of consumerist advertising to guide me towards an ideal set of nutritional choices. I embarked into what seemed like a vernacular of aluminum cans and toasted boxes, I couldn't help but notice the loneliness of the infirmary white aisles. Radiating an unrelenting beam of UV into the cornea of my eye, incinerating all bacteria amongst the cardboard cities of crackers n' blue pastes drifting in amongst the discount stickers begging you boutique fallacy. I place my hand on a container of coffee. Do I even drink coffee? Well, I do now, as I placed it half-willingly into the hand basket weighing me down. Soiling my mood in gloom.
-
-The aromatic disparity of the meekly roasted chickens grabs me and cuts into my wiring. This is what men swore. Creamy pasta salad. Thank you, sir. Tins of tins of tins. Reconstituted tallow. Clog me, baby. Thunder-fuck me in shame. Forget the greens. Antioxidonts. Mac n' Cheese was fair game, and although I was unsure as to how I was going to haul several dozen boxes of it home, I at least made the effort to upgrade my carrier to a fully-fledged shopping trolley.
-
-
-### Describe the checkout
-
-I proceed to the checkout. A teenager in tight jeans greets me. I wouldn't have even fucked her mother.
-
-My birthday was coming up. It helped to be prepared.
-
-
-## Scene 1 END
-
-####
-
-## Scene 2 START
-
-## A Gun shop.
-
-A gun shop. I'd never bought a gun before. I suppose there was no harm in
-
-
-
-The chime of the shopkeeper's bell. Metallic refraction.
-
-
-
-Standing behind the counter was a brattish  . The ideal career path for a former Hooter's model.
-
-with pink ponytails.
-
-"What can I do you for?"
-
-"I'm looking to purchase I gun."
-
-"Obviously. What do you need it for?"
-
-I hesitated slightly. I think she noticed.
-
-"What looks cooler?"
-
-I liked the idea of a revolver.
-
-## Scene 3 END
