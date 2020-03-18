@@ -35,7 +35,7 @@ Then in a Reveille of keen emissivity, my ears latch onto an erratic stampede of
 
 "Only slightly suicidal. I think I bumped into your friend at the door. Is she going to be okay? She's currently flailing on the patio singing an ol' Groucho Marx tune." I hear further groaning in the background. Clearly she's in need of desperate attention.
 
-"It's only Ketamine. She's down to twice a week now, so I think she'll be fine for tonight." An expert opinion from the premiere of expertise itself. Welcome to reality, rundle kitches, where absolutely nothing makes sense. Have a milky bar, kid. The calcium is good for you. Her shoelaces now tight around her military ankle, the cat was ready pounce. She lights up another cigarette, struts towards me and exhales a plume of irradiated smoke. Kissing me on the lips in a femme fatale of provocative aorism. She curls her right leg around mine, kicking my excitement into full-gear. The light was here and it was my time to shine.
+"It's only Ketamine. She's down to twice a week now, so I think she'll be fine for tonight." An expert opinion from the premiere of expertise itself. Welcome to reality, rundle kitches, where absolutely nothing makes sense. Have a milky bar, kid. The calcium is good for you. Her shoelaces now tight around her military ankle, the cat was ready pounce. She lights up another cigarette, struts towards me and exhales a plume of irradiated smoke. Kissing me on the lips in a femme fatale of provocative aorism. She curls her right leg around mine, kicking my excitement into full-gear. The light was here and it was my refulgence was hither.
 
 "What do you say we head out to the city? My shout."
 
