@@ -9,6 +9,7 @@ day: "Sunday."
 ### Magazine Monologue
 
 <!-- 
+
 "10 Hot Tips For Amazing, Mind-Blowing Sex." The front cover of every men's magazine. Sizing and measuring you down to the retrofit standard, just like the piece of shit you are. To be printed at birth upon a thin laminate of unmet judgement, stapled to your forehead and sold to the Chinese for a pretty penny n' a cuck full of gould. Oh, and it seems that your fetish for Kigurumi men has been egregiously exposed online, now aggressively circulating to every single data centre across the country under the wholesome guise of Marketing Research. Congenital in it's touch. Unrequited in your hold. You kooky little spider.
 
 Congratulations, soldier! You're still terrible at sex and your hopes and dreams, those unwritten lies of youth, have now been processed and reassembled under the laborious eye of an obscure Japanese algorithm. Emulated in comparative Lisp, with a dash of parenthesized Cobol. Perfectly rigid in it's asinine classification of dirt and other insignificant odities. Granular in it's irrelevance. Tectonic in it's outcome. Germane is a gloat. FUCK. "I am an average half-Asian male with an overwhelming propensity for sticking my penis into the hulls of pretentious white women," my label states. Illustrated in a beautiful Iranian typeface, extracted from page five of a ten-part contemporary guide to desktop publishing. How glorious, you must say. Well, quite glorious indeed, if I don't say myself. And although my heart is currently beating under the false pretense of life, all I can say is that the blackmail has become far too much for me to handle and I'd really appreciate if you'd please, for the love of God, just lean over my shoulder and tell me how wonderful my smile is today. That was lovely. Thank you, Daddy. I love you too. 
@@ -21,36 +22,37 @@ Part of me sat there in the lobby of the clinic, mired in a thick scrub of indig
 
 To say that I hated therapy was an understatement. I couldn't possibly have thought of anything more pointless, nor contrived, than to explain why I was so fundamentally flawed in the most specific of ways. "I'm retarded, missy. I think it might be because I use the word faggot too much." I doubt she even knew what the word "faggot" meant. I mean, did I even know? At the very least, it was an excuse to taunt and prey upon someone more helpless than myself. The emotionless blemish of a clinical psychopath with an expensive doctorate in dialectic primatology, forever examining my white ideals of Dorian pleasure in a grand game of cat and mouse against therapist and scholar. She gestured to sit me down upon the fading fabric of a victim's nightwatch, as she groomed me with the offerings of tap water, taking advantage of my inability to fight my own biological thirst. Thank God this program was Government funded.
 
+
+### Therapy - Expresses his feelings.
+
+"Well, for starters, I disowned my mother," I began, pretending as if I were actually being interviewed for a spot on Saturday Night Live. Cashed in an alter-ego of hilarity. The stunning of remarks of a mere amateur. I gleamed at her with a promissory tone of observation, taking note of the bright green earrings which dangled from her ears like a freckled bouillie. Surely, an op-shop discount for a special lady wearing a handbag for a husband. As per usual, the therapist was unimpressed with my lack of commitment to the process. Visually she was uninspired by my tatty remark, remnant of an orgasm she had 25 years ago during an episode of Seinfeld. The therapist was a cold shoulder of taut one-liners and intricately gross examinations which bordered on dyslexic. A siamese bucket of discarded tape recorders, patched together with the incomplete narratives of hollow young men. She truly was a vacuum of utilitarian comfort, designed to suck the joy and pleasure from basic human necessity, formulised in a haptic frenzy of uncompromising hand gestures and seizure-inducing flashes. Yet, there was something comforting in the brown cardigan which served solely as a dilapidated corkboard of cat hair and coffee stains. Truth is I'd always wanted to fuck my therapist. Actually it was fair to say that I was keen to fuck anything. She continued to study me.
+
 -->
 
-### Therapy - Expresses his feelings. 
+<!-- I need to verify whether the character actually is/has been dumped -->
 
-"Well, for starters, I disowned my mother," I began, pretending as if I were actually being interviewed for a spot on Saturday Night Live. Cashed in an alter-ego of hilarity. The stunning of remarks of a mere amateur. I gleamed at her with a promissory tone of observation, taking note of the bright green earrings which dangled from her ears like a freckled bouillie. Surely, an op-shop discount for a special lady with a handbag for a husband. 
-
-As per usual, the therapist was unimpressed with my lack of commitment. Perhaps she was even so uninspired by my tatty remark, that it caused her to activate the remote vibrator in her vagina, just to get a little kick out of my general . Certainly, I don't recommend sexualising disappointment, although it's a quick fix for what is essentially a poor choice in career. Go study economics instead.
-
-"...aaaaaand I've been dumped, and I pretty much want to kill myself." I hope she picked up on the sarcasm. I also hoped she'd just drop dead on the floor and begin spasming on the ground, eager for my blunt hands to take advantage of her talcum'd breasts, but did it really even matter at this point? Can I please get an AMEN?
+<!-- 
+"...aaaaaand I've been dumped, and I pretty much want to kill myself." I doubt she picked up on the sarcasm, although it would have been nice to at least receive a giggle of some sort. To appease the comical foundry of suicide throwin' zingers under the seering judgement of a crabby ol' bitch. In a lot of ways, our interaction felt a bit like a golden marriage turned sour. I'll spare you the details, but let's just say that it's hard to fuck a dried husk of coconut peat without feeling the burn.
 
 ### Therapy - Response.
 
-"Listen, I'm sorry. I'm just joking. There's just a lot going on in my life at the moment." She continued to eye me, before finally deciding to chime in.
+"Listen, I'm sorry. I'm just joking. There's just a lot going on in my life at the moment." She continued to eye me, before finally deciding to chime in. 4 minutes 32 seconds into our session. A new record. 
 
-"I understand that it must have been difficult. Would you like to talk about it?", she responded. Outstanding professionalism. The enema of politeness. Another fuck-hole with a source of intelligence. 
+"I understand that it must have been difficult. Would you like to talk about it?" Outstanding professionalism. 
 
 ### Therapy - The guilt he feels for his mother.
 
-I reached out into the depths of my brain, hoping to find something rational to respond with. Truth was, there was simply too much to tell. How does one express the crushing guilt, sadness and anger that one feels, without pulling a gun out and simply allowing the remenants of reality speak for itself? I decided to grab myself a plastic cup of water from the watercooler in the room, taking my time not to further defame my already ruined reputation as a possible unrealised sex offender. Children too. Yummy yummy. Let this whispy stranger take you to a place your parents couldn't possibly imagine.
-
-"I just feel bad about everything, you know? I feel guilty for the absolute hate I feel towards my mother, like that makes me a bad son. I feel cheated for being dumped. I just want something to workout for once in my life, but it just doesn't ever feel possible." Maybe she could help me afterall.
-
+I reached out into the depths of my brain, hoping to find something rational to please her with. Truth was, there was simply too much to tell. How does one express the guilt, sadness and anger that one feels, without pulling a gun to their head in a misery of show n' tell? I was lost. I decided to go off on a tangent. 
 
 ### Therapy: What is success?
 
-"Maybe I just don't feel successful in life," I uttered to the therapist, a cold shoulder of taut one-liners and intricately gross examinations which bordered on dyslexic. A siamese bucket of discarded tape recorders, patched together with the incomplete narratives of hollow young men. She truly was a vacuum of utilitarian comfort, designed to suck the joy and pleasure from basic human necessity, formulised in a haptic frenzy of uncompromising hand gestures and seizure-inducing flashes. Yet, there was something comforting in the brown cardigan which served solely as a dilapidated corkboard of cat hair and coffee stains. Truth is I'd always wanted to fuck my therapist. Actually it was fair to say that I was keen to fuck anything.
+-->
+
+"Maybe I just don't feel successful in life," I uttered to the therapist.
 
 "Well, what's your idea of success?" the therapist responded.
 
-"I don't know. Maybe it's having sex three times a week. Owning a home. I just don't feel successful," I said, as I dipped my face into my coffee cup like a stubborn penguin. In actual fact my dream was to become a writer. I'm not quite sure when the obsession began, but it was an all-consuming affair with my imagination. An innocent ploy for self-discovery, held in sanctuary by
+"I don't know. Maybe it's having sex three times a week. Owning a home. I just don't feel successful," dispersed the words from my mouth, as I dipped my face like a stubborn penguin into the plastic cup containing the remaining few drops of water I'd clearly already finshed. In actual fact, my dream was to become a writer. I'm not quite sure when the obsession began, but it was an all-consuming affair with my imagination. An innocent ploy for self-discovery, held in sanctuary by
 
 "What do you think success would feel like?"
 
@@ -86,6 +88,7 @@ It wasn't something you ever thought about.
 
 
 
+I decided to grab myself a plastic cup of water from the watercooler in the room, taking my time not to further defame my already ruined reputation as a possible unrealised sex offender. Children too. Yummy yummy. Let this whispy stranger take you to a place your parents couldn't possibly imagine.
 
 
 
@@ -136,7 +139,7 @@ So let me try and paint you a picture.
 
 You’re a crispy Ted. Your haircut is an impression-less damp scruff of pastiche antiquity. I’ve never quite seen a suit so brown nor flavourless, and yet you have the confidence to match the dull-drudgery holding you down by your neck. A personality devoid of pleasure. Hell, I doubt even your own irony understands itself. Even what little you bring to the table, but I tell ya what, it’s real cackle to try and observe you attempt to arrange those i’s and o’s into some kind of logical alphabet soup, glisten to an audience privy to the self-abuse you provide. But the good news is that you’re loved. Yes, Mummy loves you. She craves you. Here’s an expired Campbell’s chicken soup she prepared earlier, even opened the can n’ everything. This soup was crafted with real tears, real buttery tears, the kind of tears only found in upper-market department stores and gold-plated Jewish morgues. The kind of soup that burns your throat and slashes your budget into a miserable low-digit summary. Yet Mummy is in a lot of pain, because you made her pussy bleed and now there’s a frail old lady on the floor, mummified in the nostalgia you once thought intangible. There are scars as thick as knife wounds, carved throughout the maze of willingness you expend
 
-### A finer touch if ever you demanded one, although as we both know, these words are nothing more than a trap our senses are both trying to fight. “It’s okay to burn”, preaches the local glass nun, shouting vast through these pages without even a hint of respite, white powder thick to her heels in a perfect mirage of gloss and so sheen. Ah yes, and just when you thought life’s searing gaze couldn’t get any worse, a talking Harry presents itself in full-fashion and it just doesn’t know when to stop. Shut up Harry. You violent Harry. Fucking Harry. I was sure she was being tart.
+A finer touch if ever you demanded one, although as we both know, these words are nothing more than a trap our senses are both trying to fight. “It’s okay to burn”, preaches the local glass nun, shouting vast through these pages without even a hint of respite, white powder thick to her heels in a perfect mirage of gloss and so sheen. Ah yes, and just when you thought life’s searing gaze couldn’t get any worse, a talking Harry presents itself in full-fashion and it just doesn’t know when to stop. Shut up Harry. You violent Harry. Fucking Harry. I was sure she was being tart.
 
 A mature fight-fighter with a body like a well-kept fire axe, covered in the tan ripple of a thoughtless afternoon, fucking your wife by the poolside as you watch by in self-justified shame.
 

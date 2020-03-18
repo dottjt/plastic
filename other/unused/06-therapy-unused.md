@@ -34,3 +34,21 @@ in your internet search history
 I'm the pleasure without the blackmail, and you're just another  Suckle my lunt, you clitch.
 
 My least favourite day of the week.
+
+ Perhaps she was even so uninspired by my tatty remark, that it caused her to activate the remote vibrator in her vagina, just to get a little kick out of my general 
+
+ . Certainly, I don't recommend sexualising disappointment, although it's a quick fix for what is essentially a poor choice in career. Go study economics instead.
+
+ as she proceeded to squeeze more lemon juice onto her lips to ensure her response was as sour as possible
+
+
+ An enema of politeness. Another fuck-hole with a source of intelligence. 
+
+
+Part of me wished that she'd just drop dead on the floor and begin spasming in an gasp of inebriated fear, eager for my hands to take advantage of her talcum'd breasts. 
+
+I kid, I kid. Just give me my hit of valium and let's call it day. 
+
+"I just feel bad about everything, you know? I feel guilty for the absolute hate I feel towards my mother, like that makes me a bad son. I feel cheated for being dumped. I just want something to workout for once in my life, but it just doesn't ever feel possible." Maybe she could help me afterall.
+
+honorary process of trust and deliberation
