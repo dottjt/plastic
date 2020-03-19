@@ -97,3 +97,8 @@ happy-fun-time and
 
 purported into a variety of situations which felt integral to my human, yet felt completely foreign and cold.
 
+ sweat and mounting
+
+All I knew was that I still wanted to fuck her. Her long black hair tied into perfect ponytails, pulled back into my chest as I fucked her from behind. Something to take the edge off
+
+The thoughts of man trapped in desperation, ready to tear through the fabric of reality leaving ammonia.

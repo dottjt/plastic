@@ -4,7 +4,7 @@ description: "A short chapter with a therapist to discuss success, depression an
 day: "Sunday."
 ---
 
-## Scene 1 START - .
+## Scene 1 START - lobby.
 
 ### Magazine Monologue
 
@@ -85,13 +85,7 @@ I wasn't quite sure what to think, but at the very least I knew that my interact
 
 ### Leaving Practice
 
-I felt weary as I left the practice. Blinded by a combination of fog and sun, as it marooned my eyes into a tribal lull of pantomime sweat and mounting idealisation. Feeling unsure about this whole "life" thing, just as I'd felt an hour earlier. As the non-clamateur puffed out of my lungs in a lapse of hard judgement, and onto a plate of sick. Designed to arouse the elderly into a covert sipple of dread. Consume like a thick gravy upon a tartare of pulverised mutton. Sully in the taint of these wretched hands, pulling my strings and caressing me with a demented kindness. Carelessly tilting me towards it's touch of vice and candour. It was a loneliness reimagined for a smarter generation, delicate in it's illusions of cheerful carousel. Gathered in a grand court of caliph and vizier. Crowning hopelessness as it's young new leader to guide and extrapolate, in this celebration of formal resignation. And yet life more often than not, felt more like a chore to be flung around, rather than a purpose to be held. Too exhausted to cry. Too manic to pretend. I wish I knew myself better beyond the plastic shadow which mimiced my words and
-
-
-
-All I knew was that I still wanted to fuck her. Her long black hair tied into perfect ponytails, pulled back into my chest as I fucked her from behind. Something to take the edge off
-
-The thoughts of man trapped in desperation, ready to tear through the fabric of reality leaving ammonia.
+I felt weary as I left the therapist's office. Blinded by a combination of fog and sun, as the shimmer of the dusk breeze light marooned across my eyelids in a tribal lull of pantomime idealisation. Ultimately feeling unsure about this whole "life" thing, just as I'd felt an hour earlier. As the non-clamateur puffed out of my lungs in a lapse of hard judgement, and onto a plate of sick. Designed to arouse the elderly into a covert sipple of dread. Consume like a thick gravy upon a tartare of pulverised mutton. Sully in the taint of these wretched hands, pulling my strings and caressing me with a demented kindness. Carelessly tilting me towards it's touch of vice and candour. It was a loneliness reimagined for a smarter generation, delicate in it's illusions of cheerful carousel. Gathered in a grand court of caliph and vizier. Crowning hopelessness as it's young new leader to guide and extrapolate, in this celebration of formal resignation. And yet life more often than not, felt more like a chore to be flung around, rather than a purpose to be held. Too exhausted to cry. Too manic to pretend. I wish I knew myself better beyond the plastic shadow which mimiced my words and
 
 ## Scene 2 END
 
@@ -101,11 +95,9 @@ The thoughts of man trapped in desperation, ready to tear through the fabric of 
 
 ### Cynicism Monologue
 
-I feel unadjusted. I feel unprepared for a life without meaning, though perhaps I'm simply unable to produce meaning without spreading my intellectual tar as a gift to the inconsequence slicing me open. It's a delicate buffet, so please dig in. An unpleasant feeling, a kind of surreal suffocation, that blinds me as welcomingly as it graces. I would happily equate it to grafting impure enamel into the soft edges of my eye-lids, allowing me to process what little conscious thought I have towards cultivating my dull insensitivity to .
-
 So here I am. It's post-cull and it's killing season. I have my rifle, my ammunition and as you can see, attached to my belt-buckle is the first kill for the afternoon. Unfortunately the fat-fuck couldn't waddle away fast enough to mummy's comfort, so I killed the entire family and here I am prodding away at a dead carcass with my great big fucking sword. Fuck you rabbit. Fuck you indeed.
 
-
+I feel unadjusted. I feel unprepared for a life without meaning, though perhaps I'm simply unable to produce meaning without spreading my intellectual tar as a gift to the inconsequence slicing me open. It's a delicate buffet, so please dig in. An unpleasant feeling, a kind of surreal suffocation, that blinds me as welcomingly as it graces. I would happily equate it to grafting impure enamel into the soft edges of my eye-lids, allowing me to process what little conscious thought I have towards cultivating my dull insensitivity to .
 
 The orange agent places a sticker on your shoulder, congratulating you for your success, cackling delirious at the charity you demanded in the cusp of your two hands.
 
@@ -130,5 +122,7 @@ You’re a crispy Ted. Your haircut is an impression-less damp scruff of pastich
 A finer touch if ever you demanded one, although as we both know, these words are nothing more than a trap our senses are both trying to fight. “It’s okay to burn”, preaches the local glass nun, shouting vast through these pages without even a hint of respite, white powder thick to her heels in a perfect mirage of gloss and so sheen. Ah yes, and just when you thought life’s searing gaze couldn’t get any worse, a talking Harry presents itself in full-fashion and it just doesn’t know when to stop. Shut up Harry. You violent Harry. Fucking Harry. I was sure she was being tart.
 
 A mature fight-fighter with a body like a well-kept fire axe, covered in the tan ripple of a thoughtless afternoon, fucking your wife by the poolside as you watch by in self-justified shame.
+
+I went to the cupboard for a bottle of jock.
 
 ## Scene 2 END
