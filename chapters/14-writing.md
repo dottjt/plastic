@@ -5,7 +5,7 @@ description: "Chapter about my affair with writing"
 
 ## Scene 1 START
 
-"It's like breathing glass." I really liked the meaning behind this metaphor. It's intention is to convey how something so seemingly benign can be so unbearable. You see, glass is transparent, much like air. It's symbolic of honesty. a giver of life. Oxygen.
+"It's like breathing glass." I really liked the meaning behind this metaphor. Its intention is to convey how something so seemingly benign can be so unbearable. You see, glass is transparent, much like air. It's symbolic of honesty. a giver of life. Oxygen.
 
 Obviously, having your lungs full of glass would be unbearable. Yet glass itself is transparent, much like air. It appears to be safe, no different to how Hydrochloic acid looks like water.
 

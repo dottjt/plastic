@@ -21,3 +21,9 @@ it's path in a feared
 In reality it was just like any other day at the office, and the train ride really was no different to the 143 previous train rides I'd already taken this year, although who would want to read about that. Duh.
 
 in a feud of pure injustice.
+
+Where the sucker got paid a meagre salary for his adequate attendance.
+
+this incandescent population
+
+in an unending cascade of hyperbolic discernment for the scorched.

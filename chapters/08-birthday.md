@@ -15,12 +15,12 @@ It's 10:35am. I receive a text from my mother. That bitch. That fatal fucking bi
 
 I block her.
 
-Hoping to disperse it's lovely little claws into your spread, violating what little aspiration you have to weed your way back to safety. At first it shrieks in a mad outburst, indicating it's own displeasure with the world. Then it withers into a cloud of mould to suffocate any amount of apprehension from gaining necessary foothold. Lastly it smothers in absolute quantity, absorbing scar tissue and trauma at an incomprehensible rate. And once it's all over, in the snap of a heartbeat, it was as if nothing remained at all. A desolate fire of dementia, swept clean in an enticing devastation of brilliance.
+Hoping to disperse its lovely little claws into your spread, violating what little aspiration you have to weed your way back to safety. At first it shrieks in a mad outburst, indicating its own displeasure with the world. Then it withers into a cloud of mould to suffocate any amount of apprehension from gaining necessary foothold. Lastly it smothers in absolute quantity, absorbing scar tissue and trauma at an incomprehensible rate. And once it's all over, in the snap of a heartbeat, it was as if nothing remained at all. A desolate fire of dementia, swept clean in an enticing devastation of brilliance.
 
 
 ### Attempted Suicide
 
-Saturday morning. Sunday autopsy. Duck-taped to the underside of my desk, I vainly attempt to rip the pistol from the fragmented clumps of dust underlying the trigger, pointing the barrel of the gun at my head. I can feel it sneeze. Manic in it's worry. I cry. I whimper. I breathe. I scream. I sustain it. I scream so loud I can feel my throat polymerise blood into tracks of . Ears turning a bright purple. My finger slips, and I am interrupted. "Shut the fuck up!" my neighbour shouts from across the hall, furious at the relative loss of peace my existence has caused to their regular programming. I put the gun down and continue to stare at the wall in front of me, splintered in the flakes of white gloss peeling in the isolated sections of my unjustified desire to live. The doorbell rings. It's my friend. It's my birthday. I just want to die.
+Saturday morning. Sunday autopsy. Duck-taped to the underside of my desk, I vainly attempt to rip the pistol from the fragmented clumps of dust underlying the trigger, pointing the barrel of the gun at my head. I can feel it sneeze. Manic in its worry. I cry. I whimper. I breathe. I scream. I sustain it. I scream so loud I can feel my throat polymerise blood into tracks of . Ears turning a bright purple. My finger slips, and I am interrupted. "Shut the fuck up!" my neighbour shouts from across the hall, furious at the relative loss of peace my existence has caused to their regular programming. I put the gun down and continue to stare at the wall in front of me, splintered in the flakes of white gloss peeling in the isolated sections of my unjustified desire to live. The doorbell rings. It's my friend. It's my birthday. I just want to die.
 
 ### Introduce Friend
 
@@ -50,11 +50,11 @@ You could tell he was having  . I noted not to shake his hand.
 The driver spoke three different languages. Japanese, Chinese and Korean.
 
 
-If I could fuck any emotion I would fuck sadness. It would be your most malleable best friend. It wouldn't care if you beat it, raped it or crushed it's a thousand tiny pieces. It would persist in it's grief, elated in the distress it had already come to expect of itself. Grateful in your neediness and desperate in your pleasure. It is what Gods come to expect of their young.
+If I could fuck any emotion I would fuck sadness. It would be your most malleable best friend. It wouldn't care if you beat it, raped it or crushed into a thousand tiny pieces. It would persist in its grief, elated in the distress it had already come to expect of itself. Grateful in your neediness and desperate in your pleasure. It is what Gods come to expect of their young.
 
 ### Describe Stripmall
 
-The Mexican restaurant made it's home within the matchwood interiors of a refurbished Church, house to slurry of canned beans and quarter-ounce jars
+The Mexican restaurant made its home within the matchwood interiors of a refurbished Church, house to slurry of canned beans and quarter-ounce jars
 
 
 
@@ -66,7 +66,7 @@ The enchilada. An inoffensive mound of maize-infused goop, seared in a second-ha
 ### Emotions
 
 Hid behind my over-sized sombrero, the streaming lights of the 8pm disco-ball.
-It's
+Its
 
 ## Scene 2 END
 
