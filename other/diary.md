@@ -1,6 +1,10 @@
 # diary.
 
-11/03/2020 - I've been sidetracked from writing my novel. I've been busy with sorting out this new gaming pc that I'm buying for my partner, as well as figuring out which monitor to get, which has been mentally draining. With that said, chapter 4 is complete and I'm half-way through chapter 5 - . 
+21/03/2020 - Making nice casual progress on the book. Doing my bit each day. I think I've definitely become a lot less worried about, and focusing on the process of enjoying writing it and just ensuring that I have a high quality book at the end of the day. I have no idea how long it will take realistically, but that's okay too! I've also really, really been getting into working out, so I have other ambitions as well which I find awesome. Lifting six days a week.
+
+Also, it's worth stating that the stock market crash has nothing to do with the coronavirus. That was written well-before the pandemic.
+
+11/03/2020 - I've been sidetracked from writing my novel. I've been busy with sorting out this new gaming pc that I'm buying for my partner, as well as figuring out which monitor to get, which has been mentally draining. With that said, chapter 4 is complete and I'm half-way through chapter 5 - .
 
 21/02/2020 - I had the weirdest dream last night. But essentially I was at a Chinese nightclub. And essentially what it ended up being was a massive brothel, and that's what they considered to be
 
