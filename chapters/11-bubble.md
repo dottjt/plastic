@@ -26,14 +26,13 @@ From the station to my stride, there was a keen sense of dread that lingered ove
 
 -->
 
-I throw a smile at the receptionist. The usual happy-hour of the moment. She returns my request with a stark glare. Putrid in its bitterness. Montane in its stare. As if I'd just maimed her cat with a thin piece of chicken wire, dumping its sopping corpse in front of her. Gone were the vibrant colours and buoyant pick-me-ups. Those things which made her mainstay. Instead, in were the bleak browns. The sickening whites. Matched against an ice-cold block of Carbon lipstick and expired hand sanitiser. Lumpy in it's squirt. Like a lap dance at a funeral. I continued to walk in silence into the office.
+I throw a smile at the receptionist. The usual happy-hour of the moment. She returns my request with a stark glare. Putrid in its bitterness. Montane in its stare. As if I'd just maimed her cat with a thin piece of chicken wire, dumping its sopping corpse in front of her. Wearing it's personalised cat collar with a wink and a nudge. Gone were the vibrant colours and buoyant pick-me-ups. Those things which made her mainstay. The electra of her heart. The beauty of her way. In were the bleak browns. The sickening whites. The pulmonate shells. Matched against an ice-cold block of Carbon lipstick and expired sanitiser. Lumpy in it's squirt. Like a lap dance at a Jewish funeral; a lousy grunge of lude malaise. I continued to walk through the lobby and into the office. Veiled in silence. The portraits were gone. Thrown in a pile and burnt for warmth, as a blue-back hissed towards my direction. Afraid of the unknown. Thankfully the kitchen hadn't changed all that much, although I couldn't possibly have understood how it could have degraded any further. In fact, I think it had almost improved in some unbeknownst way. Even the office manager was shocked, as she inspected the outstanding lack of grime on the kitchen-top counter. A fascination for us all.
 
-
-Junior developers pacing back and forth in between their workstations, coddled in an anxiety of austere Bluetooth mouth and technological hysteria. Marketing co-ordinators and copywriters, in the dozens, tying nooses and makeshift scythes out of rejected board-meeting catch phrases, plain in the throughfare of dismal hype lending itself to this very disaster. Lowly interns grabbing imaginary cups of coffee from imaginary vendors, terrified in a role play of psychological truce.
+Unlike the kitchen however, the rest of the office had completely reduced itself into a satisfaction of erratic self-reliance and equatorial unrest. Born from a dystopian savagery which bore into the thick peptone of our heads, and created what seemed like an asylum of misguided self-gurus. Junior developers could be witnessed pacing back and forth in between their workstations, coddled in an anxiety of austere Bluetooth mouth. The technological hysteria of a gaping moron. Marketing co-ordinators and copywriters alike, in the dozens, tying nooses and makeshift scythes out of rejected board-meeting catch phrases, plain in the throughfare of dismal hype lending itself to this very disaster. Lowly interns grabbing imaginary cups of coffee from imaginary vendors, terrified in a role play of psychological truce.
 
 ### Milo Interaction
 
-The only person who didn't quite seem so dejected was
+The only person who didn't quite seem so dejected was Milo.
 
 "Hello stranger. Looks like someone decided to rock up to work today. I didn't know you liked me that much."
 
@@ -47,7 +46,7 @@ I wanted to cry.
 
 "Oh, you know me. I would never allow a witness escape. No, didn't you hear about the stock market? It's pretty brutal."
 
-Yet something had caught her by surprise. Shock. Horror. Delore. In the fade distance, chirping in a distinctive waddle of daphnia and jellied sand, was a man the office had witnessed in months. Dressed casual in a Tahitian blind, peppered to the brim in tropical flowers and exotic motifs. It was a bit like watching an air travel billboard approach you without warning, alas to everyone's surprise. The boss was in the office for the first time in months. The chastity had become agonising. God had arrived.
+Yet something had caught her by surprise. Shock. Horror. Delore. In the fade distance, chirping in a distinctive waddle of daphnia and jellied sand, was a man the office had witnessed in months. Dressed casual in a Tahitian blind, peppered to the brim in subtropic flowers and exotic motifs. It was a bit like watching an air travel billboard approach you without warning, alas to everyone's surprise. The boss was in the office for the first time in months. The chastity had become agonising. God had arrived.
 
 ## Scene 1 END
 
