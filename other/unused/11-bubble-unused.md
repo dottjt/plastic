@@ -27,3 +27,13 @@ Where the sucker got paid a meagre salary for his adequate attendance.
 this incandescent population
 
 in an unending cascade of hyperbolic discernment for the scorched.
+
+An anguish of booze and silvery goon.
+
+Inconspicuously gathered around the emanating crust of their paychecks. Thrust upon all.
+
+Shudder, at the loss of life within the impudence which bred.
+
+I was presented with an emetology of
+
+Montane in its ochlophobia
