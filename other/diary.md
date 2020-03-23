@@ -1,5 +1,7 @@
 # diary.
 
+23/03/2020 - The book has definitely become a struggle at this point. Perhaps because we're all permanently stuck at home due to the coronavirus. Working from home is kinda killing me in terms of routine, because I would write the book on the train into work, as well as back from work. Regardless, I'll get through it. Also hasn't helped that my mental health hasn't been great, but that's okay too. At least attempting to work on it at all is good. I'm slowly coming back down from the hysteria. I've stopped reading the news and that's helped a lot. Especially in terms of regaining my focus. 
+
 21/03/2020 - Making nice casual progress on the book. Doing my bit each day. I think I've definitely become a lot less worried about, and focusing on the process of enjoying writing it and just ensuring that I have a high quality book at the end of the day. I have no idea how long it will take realistically, but that's okay too! I've also really, really been getting into working out, so I have other ambitions as well which I find awesome. Lifting six days a week.
 
 Also, it's worth stating that the stock market crash has nothing to do with the coronavirus. That was written well-before the pandemic.

@@ -43,6 +43,8 @@ Thankfully the tabs were nothing like the seeds. You'd have to perform an alcoho
 
 In. Out. In. Out.
 
+Hoping to disperse its lovely little claws into your spread, violating what little aspiration you have to weed your way back to safety. At first it shrieks in a mad outburst, indicating its own displeasure with the world. Then it withers into a cloud of mould to suffocate any amount of apprehension from gaining necessary foothold. Lastly it smothers in absolute quantity, absorbing scar tissue and trauma at an incomprehensible rate. And once it's all over, in the snap of a heartbeat, it was as if nothing remained at all. A desolate fire of dementia, swept clean in an enticing devastation of brilliance.
+
 
 ## Scene 1 END
 

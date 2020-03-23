@@ -1,5 +1,7 @@
 # 07-birthday.md
 
+Muted in it's love n' attention, our friskier nightmarish twin
+
 I wish I had a car. But instead, I had a date.
 
 
@@ -9,3 +11,6 @@ I often wondered what a birthday message actual is, aside from a fine-grained pe
  growing opium from his ranch south of the capital.
 
  Fiercely bidding for the surface of your attention.
+
+you hadn't yet been raped and tortured by some Taliban rookie in a silk robe, hungry to supply the American's with an ever-growing quantity of pure Afghani Opium. His glutinous fingers, a constant threat for your safety. You fear the black tar.
+

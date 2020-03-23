@@ -3,22 +3,30 @@ title: "birthday."
 description: "A short chapter with an attempted suicide, "
 day: "Saturday."
 ---
-
+<!--
 ## Scene 1 START
 
 ### Birthday Monologue
 
-A week of life passes by. The rain runs thin. My hair is dry. The work is dull. Today is my birthday. The loneliest day of the year. An empty echo-chamber of must-haves and has-beens, drowning in a desperate plea for love n' attention. Slurry in my deficit for lace n' affection, as I wear the hearty embrace of a fuck-off grin upon the impression of my chin. I often wondered what a birthday was, beyond a fine-grained permission to feel bad about one's existence. At most it tasted like a cookie from childhood, dipped in pity and crumbled upon the palm of your hands. For ol' time's sake. Just to prove that you hadn't yet been raped and tortured by some Taliban rookie in a silk robe, hungry to supply the American's with an ever-growing quantity of pure Afghani Opium. His glutinous fingers, a constant threat for your safety. You fear the black tar.
+A week of life passes by. The rain runs thin. My hair mauves dry. The work is dull. Welcome to my birthday. The loneliest day of the year. An empty echo-chamber of must-haves and has-beens, drowning in a desperate plea for lace n' affection. Muted in it's love n' attention. Slurry in a deficit of biblical tear, as I wear the hearty embrace of a fuck-off grin. Grace upon the impression of my chinny chin chin.
 
+I often wondered what a birthday was, beyond a fine-grained permission to feel. To feel lonely about one's existence. Like a cookie stolen from childhood. Teetering amongst a hound of rabid adults. To be ripped from your soul, dipped in pity and crumbled upon the palm of one's own hands. For ol' times sake, buck-aroo. If only to prove that you were the child of some megalomaniac debacle with a binge for Chinese counter-terrorism. Sad carpark regrets in the parking lot of a faux pas KFC. If only I'd choked on the potato n' gravy that day. Then and only then might I've had the chance to forge some kind of future in heaven, away from the mess that was solemn n' dare.
 
-It's 10:35am. I receive a text from my mother. That bitch. That fatal fucking bitch. It supplies me with a trove a emotions which swirl in tandem around me. Throwing my emotions into a whirlwind of fervent aggression. Anger. Predominantly I felt anger. The kind of anger which evolved into a catastrophic
-
-I block her.
-
-Hoping to disperse its lovely little claws into your spread, violating what little aspiration you have to weed your way back to safety. At first it shrieks in a mad outburst, indicating its own displeasure with the world. Then it withers into a cloud of mould to suffocate any amount of apprehension from gaining necessary foothold. Lastly it smothers in absolute quantity, absorbing scar tissue and trauma at an incomprehensible rate. And once it's all over, in the snap of a heartbeat, it was as if nothing remained at all. A desolate fire of dementia, swept clean in an enticing devastation of brilliance.
-
+It's 10:35am. I receive a text from my mother. That bitch. The feeling is immense. That fucking bitch. A trove of anger overcomes me. Aggravating my emotions to swirl in tandem around the big ball of fire calculating thought into a bucket of crimson anarchy. A twitch of self-harm emerges. Grabbing me by the throat in a violent slam of mottled indigo, now caught in a whirlwind of fervent aggression. Rage. Predominantly I felt rage from the indignation which burst from my infuriation with the Führer itself. The kind of anger which inevitably evolves into a catastrophic cuss of doth and cower. I block her number. It's just how I cope.
+ -->
 
 ### Attempted Suicide
+
+It's now 10:45am. I'm not feeling so lucky. I'm stuck in bed with an unmatched sadness. A growing orgaism of spite. Enveloping my body in a web
+
+ These words are the only thing keeping me from vomitting all over the linen.
+
+The time is 11:00am.
+
+
+
+
+Maybe I was feeling lucky this morning.
 
 Saturday morning. Sunday autopsy. Duck-taped to the underside of my desk, I vainly attempt to rip the pistol from the fragmented clumps of dust underlying the trigger, pointing the barrel of the gun at my head. I can feel it sneeze. Manic in its worry. I cry. I whimper. I breathe. I scream. I sustain it. I scream so loud I can feel my throat polymerise blood into tracks of . Ears turning a bright purple. My finger slips, and I am interrupted. "Shut the fuck up!" my neighbour shouts from across the hall, furious at the relative loss of peace my existence has caused to their regular programming. I put the gun down and continue to stare at the wall in front of me, splintered in the flakes of white gloss peeling in the isolated sections of my unjustified desire to live. The doorbell rings. It's my friend. It's my birthday. I just want to die.
 
