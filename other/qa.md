@@ -46,7 +46,7 @@ It also resembles a rejection of ethnicity. The killing of one's own ethnicity. 
 
 Perhaps it also has to do with my upbringing.
 
-It also seems to play on the racism against Chinese people. Chinese people are generally seen as being lesser to whites, which is particularly evident with our food. It's considered to be cheaper, more nasty etc. etc. 
+It also seems to play on the racism against Chinese people. Chinese people are generally seen as being lesser to whites, which is particularly evident with our food. It's considered to be cheaper, more nasty etc. etc.
 
 # What are some of the central themes of the novel?
 
@@ -96,3 +96,8 @@ I'm not sure if it's a special ability, but I have this thing where I'm able to 
 
 This will be an absolute bastard to edit. It will not be quick. It will require every ounce of your attention, to catch the nuances and lyricism of each and every phrase.
 
+
+
+# Words which describe this book
+
+Macabre
