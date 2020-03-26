@@ -11,3 +11,5 @@ Artificial
 Validating their crisp outlines upon their lilac surfaces.
 
 before the power of divine.
+
+My birthday was coming up. It helped to be prepared.
