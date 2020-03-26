@@ -36,15 +36,22 @@ I proceed to the checkout. A greasy teenager in tight jeans greets me. Her camel
 
 -->
 
-Bright lights n' dazzlin' situations. The croon was neigh this evening, and I was neither here, nor there. Lost inside the mind of a fernlike observation. Slurpin' on a 30 cent cup of Calder Joe's coffee. The inferior granulose of those flocculent beans could be felt a mile away. Grinding in the back of your tongue. That fucker was going to get cancer whether he liked it or not. Croak. My neck picks up and the regatta is strong. I feel for a join in the left pocket of my coat. It was like searching for a needle in a gaystack. The homophobia really rocks it. A NASCAR-inspired blow-job was surely on it's way. A child runs towards his mother, exasperating his lungs with a tune he heard on the radio into the Jackie O's. I don't quite catch the reference. The mall truly was a man-made pleasure to be thrust at all times and all hours of day. Need a haircut? Well, just say your name and next available dilf will take you away to a magical place, full of khaki cheer and a penchant for universal healthcare. Tea shops. Sweat shops. All kinds of roundish goods, designed to infiltrate and sallow in the loamy scrunge of a back-house shoot out.
+Bright lights n' dazzlin' situations. The croon was neigh, and I was neither here, nor there. Lost inside the slipstream of a fernlike observation. Slurpin' a 30 cent cup o' Calder Joe's. The inferior granulose of a flocculent bean, flung against the cold chill of a dysfunctional respirator. Grindin'. Scramble. Makin' coffee in the back of my tongue. That fucker was a cancer waitin' to happen, whether I liked it or not. Croak. My neck picks up the regatta of a strong wind. I turn behind me. A thought captures my attention. I place my hand in my left pocket, searcching for a joint I rolled earlier. It was like tryin' a find a needle in a gaystack. The homophobia really ROCKS it. Who knows, maybe I'd receive one free NASCAR-inspired blow-job if I continued the spontaneity. You could really taste the wet. Fuck off Calder Joe, you tasteless piece of shit. A child runs towards his mother, exasperating his lungs with a repetitive tune. That narcissistic cunt. He bites into a Jackie Bar, as his anemic body blurs into a peripheral vision of wonky convolution. I just wanted to snap his legs in two and use them as chopsticks. The mall truly was a man-made pleasure to be thrust at all times, at all hours of the day. Plaid in it's false pasta-like like tendrils. Sloppin' fun across the five-storey smorgasboard of blood, guts n' entertainment, for the whole family to enjoy. Need a haircut? Well, fuckin' come on in and our next available DILF will try he best, as he scrapes the semen from his asshole and attempts to deliver you a penchant for khaki cheer and universal healthcare. Tea shops. Sweat shops. All kinds of roundish goods, designed to infiltrate and swallow in the loamy scrunge of a back-house shoot out. 2nd floor, to your right.
 
-Oh look. A gun shop. In the middle of the Navada desert. Actually, it was just a thematic construct which had appeared in my mind, but I liked it as a companion to my thoughts. The rolling highways of Route 405. An eagle calls my name in the distance. I'm sure I'd get to sexualising it later. Admittedly I'd never been inside a gun shop before. I mean, what purpose could one have with a firearm. A loaded weapon. A symbol of status. I was intrigued. The chime of the shopkeeper's bell. The metallic refraction of the 
+I couldn't help but notice the teens standing outside of the gun shop. One was holding an oversized Pikachu. Covered in dark eyeliner, as if to suggest heartfelt struggle. It felt like the kind of situation where a seasoned pick-up artist would swoop in, claiming to be 12, in an attempt to collect hymen
+
+Oh look. A gun shop. In the middle of the Navada desert. Actually, it was on the 3rd floor of the mall next to the Sushi bar, but it was an attractive thematic construct which had captured my mind. The rolling hills of Route 405, fit for a stranger with a glock n' a gall for danger. The perfecxt companion to my thoughts, as an eagle calls my name in the distance. I'm sure I would have sexualised it if I'd continued my rambling any further. Admittedly I'd never been inside a gun shop before. I mean, what purpose could one have with a firearm. A loaded killing device. A symbol of status. I was intrigued. The chime of the shopkeeper's bell causes a metallic refraction in my ear. It seems to persist for hours.
+
+Standing behind the counter was a brattish military type. Clearly prefers her . Was probably raped by a segment of wildlife at a very young age. Ideological anarchist. The ideal career path for a former Hooter's model. I think she's holding a knife, but I'm too preoccupied by her cleavage.
 
 
 
-Standing behind the counter was a brattish  . The ideal career path for a former Hooter's model.
+The pink ponytails were cute.
 
-with pink ponytails.
+
+
+
+
 
 "What can I do you for?"
 
@@ -59,3 +66,7 @@ I hesitated slightly. I think she noticed.
 I liked the idea of a revolver.
 
 ## Scene 3 END
+
+
+
+I don't quite catch the reference.

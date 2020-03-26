@@ -33,6 +33,9 @@ Like most uncouth, tabs had become a regular fact of life. Ego refreshers. They 
 
 Recently I've just been chaining them.
 
+LSD was a Psychopath's playground.
+
+
 The only thing I didn't like about the tabs was the vasoconstriction. It felt as if your veins were being suffocated from the outside-in.
 
 The key with takin' tabs is to keep them away from light. It was also important to smoke weed beforehand, as it synergised with the psychadelic properties of hte tabs.
