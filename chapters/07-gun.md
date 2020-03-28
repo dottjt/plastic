@@ -44,11 +44,11 @@ I couldn't help but notice the teens standing outside of a gun shop. The chubby 
 
 ## Inside Gun Shop
 
-The chime of the shopkeeper's bell feels real. 
+The chime of the shopkeeper's bell. It seems to persist for hours.
 
-causes a metallic refraction in my ear. It seems to persist for hours.
+causes a metallic refraction in my ear.
 
-Standing behind the counter was a brattish military type. Clearly prefers her . Was probably raped by a segment of wildlife at a very young age. Ideological anarchist. The ideal career path for a former Hooter's model. I think she's holding a knife, but I'm too preoccupied by her cleavage.
+Standing behind the counter was a brattish military type. Clearly prefers her men old n' rusty. Was probably raped by a vertical segment of wildlife at a very young age. Ideological anarchist. The ideal career path for a former Hooter's model. I think she's holding a knife, but I'm too preoccupied by her cleavage.
 
 
 The pink ponytails were cute.
@@ -57,6 +57,7 @@ The pink ponytails were cute.
 
 
 
+## Shopkeeper
 
 "What can I do you for?"
 
