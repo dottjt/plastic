@@ -6,13 +6,13 @@ notes: [
     "I'm not 100% sure about the necessity of some of these paragraphs, in particular their ordering, let alone the whether they should be deleted permanently. Like I don't know how I feel about the first paragraph. Lyrically it doesn't add a lot of depth."
 ]
 ---
-<!--
+
 ## Scene 1 START - sharehouse.
 
 ### Describe Anxiety
 
 Blah. Blah. Blah. Twirple. Twerp. Twat. Surrrpple. Slosh. Schlop. Barmy. Larmy. Plum. Sempre. Empire. Oh. Empire? Zanana. Tempelio. Adarsh. Fremissimo. Palundius. Mant. Cultun. Splatoot. Eippal. Wzender. Mollat. Cat-anya. Howwel. Venner. Natura. Nervous. Excited. Quaint. I felt sick. Heart wretched tight. Eyes tumbled violent. Stripped. Tenderised. A hurl of mirage. A sidewalk of sausage. Mahogany. Breakfast. Fuck. My immediate vicinity. A mere outline of dissolved potential. Shapes n' sounds. Our friendly dynamic duplicit duality dynamo duo. tre. quatro. That's right. That's right? THAT'S RIGHT! Pow! Wow! OMG!? The bread. The butter. My mouth. An explosion of yeast. Rumbling coarse through my stomach. Beautiful. Boy. Lovely. Liam. Teeth like a corroded rubber stamp. I begin touching myself uncontrollably. Face of Crompton™. My hands shake. shake. shake. I just want to be. Let me be me. Be me be. Let.
- -->
+
 ### Describe Neighbourhood
 
 It was dark. I'd just arrived at the Street of Plenty™, embalmed in a couldron of Robin Hood Anxiety™. Umbrella in hand. Happy to appear relevant in this quiet boardgame of Neighbourhood™. The hesitation is subtle. I continue to mult my way down towards the end of the street. Appreciative of the avid continuity of these Victorian terrace walls, ursurping all culture along Plenty's stockdale homes of vandal decor. In relish of their stolen Windsor ceilings, cracked and commended by the beaten Oceania of their rusted tin roofs. Born from an accolade of mismatch husbandry and illicit one-time affairs, the street was as loud as it was dear. Double Plenty™. Treading through a thick soup of native lawn, I pictured Milo being fucked on the worn cream couch next outside on the front porch in front of me, all while trying to down a beer with her recently vacant non-smoking hand. Appropriately being ravaged from her fingers in a diplo of aerosol enthusiasm, as our unnamed assailant pins her down and she his penis through a thick yoke of pre-cum dribbling in turmoil from the malaise her uretha. A point of contrition under the dithering necessity of liquor, forcing her to brave his giant cock and simply push through. What was wrong with me.

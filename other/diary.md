@@ -1,6 +1,10 @@
 # diary.
 
-26/03/2020 - I've been focusing on my mental and physical health and I believe I am back on track with this novel. 
+31/03/2020 - Okay, new solution. Been struggling to write my novel since working from home. This morning I decided to sit inside the car to write. It has been working beautifully, I've realised it's because I basically need :)
+
+30/03/2020 - Had a relaxed weekend (today is Monday) and I didn't do any writing. Haven't been feeling it/stressed out about potentially losing my job at MYOB. They haven't said anything, but it's a strong suspicion of mine. But I've realised that I don't think I could write full-time. Writing for me works as a supplementary activity to my daily routine, and when I don't have a daily routine, then the writing becomes difficult. Regardless, I'm taking it easy on the novel as of now. Things are stressful as is, and I'm deciding to place my mental health first. But yeah, I truly don't feel like writing this novel anymore. It no longer has meaning to me anymore. Like, I'm not sure why I'm writing this anymore. This could be a greater reflection of my life in general, but the challenge is no longer... there.
+
+26/03/2020 - I've been focusing on my mental and physical health and I believe I am back on track with this novel.
 
 23/03/2020 - The book has definitely become a struggle at this point. Perhaps because we're all permanently stuck at home due to the coronavirus. Working from home is kinda killing me in terms of routine, because I would write the book on the train into work, as well as back from work. Regardless, I'll get through it. Also hasn't helped that my mental health hasn't been great, but that's okay too. At least attempting to work on it at all is good. I'm slowly coming back down from the hysteria. I've stopped reading the news and that's helped a lot. Especially in terms of regaining my focus.
 
