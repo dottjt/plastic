@@ -21,3 +21,16 @@ Ominously flick
 Rotting the minds of us all.
 
 The one true thing keeping me alive. Foundation upon an American staple of ketchup and unpayable student debt.
+
+The party of drones.
+
+Soiling my mood in gloom.
+
+
+Even if you'd provided me with a bucket of sand to lay my ruined cock in peace
+
+ and I highly I doubt the insurance could have even covered the immediate shame of inserting my penis into t
+
+It's shangle of monetary rape.
+
+ penchant for khaki cheer and universal healthcare.
