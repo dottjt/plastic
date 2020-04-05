@@ -139,3 +139,10 @@ the sickly green milk crates stacked near a window, dressed in dandelions and ot
 Perhaps I'll be mugged today. Attacked by an elf with a gun in his surly pocket.
 
 My mugging is ace.
+
+, as my thoughts flutter about in a triage of .
+
+undeniably stunning in worst possible way
+
+Nothing about her existence offered purity, nor sanctity,
+

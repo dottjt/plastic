@@ -59,6 +59,7 @@ I can feel the reverberation from underneath the sheets. A buzz. A text from Mil
 
 I looked at my cast and back at my phone, my heart crunching in a painful . I wanted to vomit.
 
+In a lot of ways, she was simply a more evolved female version of myself, determined in the self-hate which it dignified through drugs and enclitic spire. Truth was that I simply didn't have the intellect, nor courage, to approach my own desperation and loneliness beyond the women I threw myself at. All I wanted was to create the impression that I was worth at least someone's attention, even that of my own.
 
 
 I wanted to try better.

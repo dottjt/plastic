@@ -28,6 +28,8 @@ The story is told through the thoughts and observations of the main character, w
 
 # What is the intention of the novel?
 
+I want the reader to be able to taste the self-hate. 
+
 The novel attempts to reveal what it means to be a contemporary Asian person through the eyes of unadultered counter-culture. In other words, what's sorely lacking in Western culture is Chinese counter-culture. You know, the kind of stuff that kids listen to on their Spotify accounts, which tells them to go fuck themselves, and which helps develop their sense of purpose and self-esteem in life.
 
 How to Kill a Chinaman is delicate construction of hard-hitting counter-culture which I believe competes with the best of them. I wanted to recreate the sense of feeling that I had as a young adult reading William S. Burroughs' Naked Lunch, only for a new generation. Disgust. Obsession. Depravity. Whore. The novel is a contemporary reflection of a Chinese man's experience in Western society, which intends to smear shit into the reader's eyes, and leave them in a puddle of their own guilt. All while, beautifully written as if delivered by a stark angel with ornate wings.
