@@ -6,9 +6,9 @@ notes: [
     "I'm not 100% sure about the necessity of some of these paragraphs, in particular their ordering, let alone the whether they should be deleted permanently. Like I don't know how I feel about the first paragraph. Lyrically it doesn't add a lot of depth."
 ]
 ---
-<!--
-## Scene 1 START - sharehouse.
 
+## Scene 1 START - sharehouse.
+<!--
 ### Describe Anxiety
 
 Blah. Blah. Blah. Twirple. Twerp. Twat. Surrrpple. Slosh. Schlop. Barmy. Larmy. Plum. Sempre. Empire. Oh. Empire? Zanana. Tempelio. Adarsh. Frelissimo. Palundius. Mant. Cultun. Splatoot. Eippal. Wzender. Mollat. Cat-anya. Howwel. Venner. Natura. Nervous. Excited. Quaint. I felt sick. Heart wretched tight. Eyes tumbled violent. Stripped. Tenderised. A hurl of mirage. A sidewalk of sausage. Mahogany. Breakfast. Fuck. My immediate vicinity. A mere outline of dissolved potential. Shapes n' sounds. Our friendly dynamic duplicit duality dynamo duo. tre. quatro. That's right. That's right? THAT'S RIGHT! Pow! Wow! OMG!? The bread. The butter. My mouth. An explosion of yeast. Rumbling swough through my stomach. Beautiful. Boy. Lovely. Teeth like a corroded rubber stamp. Liam. I begin touching myself uncontrollably. Face of Crompton™. My hands shake with a Stetson tenacity. I just want to be. Let me be me. Be me be. Let.

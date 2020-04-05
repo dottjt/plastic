@@ -6,6 +6,11 @@ The child with a medicinal flower crown DIES in an expiry of shame before my ver
 
 Perhaps I'll be mugged today by a cunning elf with pointy ears, in a precious reminder to always stock up on earth-based elixirs and defensive magic spells.
 
+medicinaldestitution
+
+medicinaldestitution
+
+
  Hot lava smoothie.
 
 edwardian

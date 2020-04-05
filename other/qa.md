@@ -98,8 +98,11 @@ I'm not sure if it's a special ability, but I have this thing where I'm able to 
 
 This will be an absolute bastard to edit. It will not be quick. It will require every ounce of your attention, to catch the nuances and lyricism of each and every phrase.
 
+Truth is, the novel doesn't need to make sense. It just needs to read well. It needs conviction and it needs prose. That's what this book is about.
 
 
 # Words which describe this book
 
 Macabre
+
+
