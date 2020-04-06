@@ -28,7 +28,7 @@ The story is told through the thoughts and observations of the main character, w
 
 # What is the intention of the novel?
 
-I want the reader to be able to taste the self-hate. 
+I want the reader to be able to taste the self-hate.
 
 The novel attempts to reveal what it means to be a contemporary Asian person through the eyes of unadultered counter-culture. In other words, what's sorely lacking in Western culture is Chinese counter-culture. You know, the kind of stuff that kids listen to on their Spotify accounts, which tells them to go fuck themselves, and which helps develop their sense of purpose and self-esteem in life.
 
@@ -104,5 +104,8 @@ Truth is, the novel doesn't need to make sense. It just needs to read well. It n
 # Words which describe this book
 
 Macabre
+
+
+Maybe the next book could be about my friendship with Amelia. In a way, there are elements of Amelia within Milo. I suppose there's elements of every girl I've ever dated within Milo, which isn't really saying much. 
 
 

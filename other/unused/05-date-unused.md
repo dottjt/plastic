@@ -151,3 +151,5 @@ undeniably stunning in worst possible way
 
 Nothing about her existence offered purity, nor sanctity,
 
+
+Daddy picks child. Up. Shouts in a foreign. Language. Mummy stands tall. Waiting.
