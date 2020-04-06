@@ -153,3 +153,11 @@ Nothing about her existence offered purity, nor sanctity,
 
 
 Daddy picks child. Up. Shouts in a foreign. Language. Mummy stands tall. Waiting.
+
+
+ Not just as the guy at her desk telling jokes like it's 1999, but also as a lover at the end of her bed, eating her out in a diseased frenzy free-for-all.
+
+
+anchored naivety.
+
+ only to realise in a distant episode that it had been sinking me at my feet this entire time,
