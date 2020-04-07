@@ -161,3 +161,11 @@ Daddy picks child. Up. Shouts in a foreign. Language. Mummy stands tall. Waiting
 anchored naivety.
 
  only to realise in a distant episode that it had been sinking me at my feet this entire time,
+
+, palpitating down in the antic mul of the pub jeer.
+
+
+as the blood drew mess from his fractured skull
+
+
+ I knew I'd come to the right place, even though I'd much rather be at home. Moments before finishing off a late-night wank, ready to head to bed.
