@@ -169,3 +169,5 @@ as the blood drew mess from his fractured skull
 
 
  I knew I'd come to the right place, even though I'd much rather be at home. Moments before finishing off a late-night wank, ready to head to bed.
+
+wearing dark eyeliner, Caught
