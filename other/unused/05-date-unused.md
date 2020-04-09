@@ -171,3 +171,11 @@ as the blood drew mess from his fractured skull
  I knew I'd come to the right place, even though I'd much rather be at home. Moments before finishing off a late-night wank, ready to head to bed.
 
 wearing dark eyeliner, Caught
+
+<!-- Maybe you see her makeout with another guy. Maybe that's what sets you off -->
+
+Admittedly, I was never much of an alcohol kind of guy. I always
+
+<!-- When they have sex, he can't cum. -->
+
+I wanted her more than anything else in the world.

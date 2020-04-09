@@ -67,37 +67,30 @@ We get closer. I take another pointless comment from my mouth and I stick it on 
 
 ## Scene 3 START - outing.
 
-### At Bar
+### Describe the bar
 
 Rock n' roll n' nicotine scratches. The immediate reverberation of the in-house band pummels me into a two-bit amplitude of broken distortion, rupturing my canals into a pile of smashed rubble n' narcoleptic disorientation. It was the beginning of what would become a post-traumatic ringing in my ears, which would be felt well into the early hours of the next morning. Churning meekly at the cones and rods shaken violent against my harrowing plea for homely subsistence. The jackhammer equivalent of a week-long DXM binge, burrowing it's way into the erysipelas of my soul. I needed a drink. The head honco flips me her middle finger, wholesome in a French occupation of swivel inebriation. I liked her style. Her short black bob wig; a trashy kind of iconography. It was almost as synthetic as her bloated lips, attached to the end of a bathroom stall blowjob still awaiting it's final outcome. Dark n' murky like her black military boots, designed to stomp n' decapitate a gook's weak neck. I was in. Wait, where did Milo go? I take a moment to glare at the sloven sparsity before me, crowd n' cashed up n' an alcoholic folly of Saturday night disrepair. Cheering against the rein, buyin' teenage angst at adult prices in amongst a fuckwit's galore. Those blacked out youth in their cordoroy t-shirts n' tie-labelled affair, justifyin' confidence with another able-bodied stint at the helm of the bar. The medieval swoon had arrived and I was keen to boot. Slumber. Some drunken fuck swerves into me in a looseless-nancy, smashing his head onto the oak hardwood of the bar top besides me. As the oak laces its way around the room in a liquor tetrohedron of doom. The blood was a mess. Although nothing a quick wank couldn't fix.
 
+### Milo's Desires
+
 "Man, where do they find these people!?", I shout out into the crowd, knowing full-well that no one can hear me. It turns out Milo was behind me this whole time, searching for some kind of self-recognition to tout. Perhaps for another man to grab her on the breast, just to prove how awful men were. Just so she could turn that anger into a ravenous allegation of sexual misappropriation, as I embroil my finger along the outskirts of her palsied vagina. Emotionally indifferent to her subdue of bronchitis n' cheese puffs. I was ill. I could tell Milo felt at home in amongst the grunge, as her mind erred towards the adolescent trash feeding her appetite for arterial distress. Comfort in the inarticulate flay of heat n' cosmetic muscle in this dumb mediocre soup of voiceless excitement. She steps over the drunk fuck to access the bar, flirting with the waitress along the way. Perhaps as a sign of good measure. Certainly the bust of her celtic dress catches my eye, clearly ten sizes too small for her overly indulgent must-have figure. The sweat on my hands mellow as the band winds down their set, calculated in their next number. The resounding chatter amplifies. The rowdiness of the crowd develops. Milo turns her head towards me with a sharp smirk n' a brief giggling sneer, as if to suggest that I had some part to play in this scene. Perhaps a threesome in the dumpster outback to alleviate my prudish infidelity. She begins chatting away with the bartender. I think they kiss. Then seemingly, she disappears completely from my sight, carried away by a torrent of desperate patrons bidding for their next pint. Bloody hell. It was just like the '90s all over again.
+
+### Character realises his desperation
+
+Admittedly I'd always felt out of place at bars. Not that it felt artificial, but it certainly didn't reflect the level of intimacy I'd desired, smudgeon across the venerable hardwiring of my brain. Not that these ideas were particularly fancy within themselves, although what choice did I have in this game of cat n' cum, seeping from the cringe of my mottled foreskin, now pulsating wildly in a ripe fondue of refulgent effluvium for the women on my screen to jerk n' plunder. Rancid was the contrast. In my ideal fantasy world we'd both be laying there naked, sulking in a dark room together. Alone. Tending to our wrists in a physical alteration of emotional depression, actin' blind whortled like a bunch of straggled teenagers with a penchant for nostalgia n' late-night addiction. How sickeningly cliché. It became clear to me in that moment, in amongst the affective layers of aborted diaphoresis circularating within the air, that there was a large part of my childhood which simply didn't exist. Which had effectively fabricated itself into the prose of these words, designed to drag n' inundate like an hour-long session of replication therapy. Overanxious. Vulnerable. Deceit. Milo arrives from the bar carrying two pints of cider, along with what looks like a Wet Pussy. Perhaps we could make this work after all.
 
 -->
 
-Admittedly I'd always felt out of place at bars. Not that it felt artificial, but it certainly didn't reflect the level of intimacy the hardwiring in my mind delivered. Not that those ideas were particularly realistic within themselves, although my mind was my mind and it was all I had to work with. In my ideal fantasy world, we'd both lay there sulking in a dark room together. Cutting our wrists both physically and emotions, actin' like a bunch of insecure teenagers with a penchant for nostalgia and addiction. It became clear to me in that moment that there was a large part of my childhood which simply wasn't there, which had fabricated itself into the prose of these words. Overanxious. Vulnerable. Deceit. Milo arrives comes over with two pints of cider and a Wet Pussy.
+### The two dance
 
-"This is for you, soldier. I've already had mine," she berates, as I down my first shot, my hearing now deteriorating to that of a 5 year old.
-
-
+"This is for you, soldier. I've already had mine," she loathes in a thyroxine of excitement. Her two-dollar lipstick now smeared down to her neck, as I attempt to down the misappropriately named cocktail. Mesmerised by the charity of her generous hands, grabbing at my pants in what was clearly a sign of risky behaviour. The pants wanted more. Undeniably I'd largely softened to her charm, although she continued to leave a bad taste in my mouth in the same way that a beaten cat covered in it's own piss fills you with doubt. The kind of thing reekig of regurgitated sardines n' all sorts of blue-collar misandry. Part of you wants to love the innocence of it's poverty, and yet the entire outfit still manages to repulse you. And yet, the repulse is exactly what captures your imagination, as you interally devise a routine of all the naughty things you believe you can get away with in it's humble state of pure vexation. The thought dettaches. My hands multiply. My vision begins to blur and I can feel the alcohol rush to my head in an ecstatic reminder of dewy potential. We push our bodies slowly together, feeling the enchantment of our own misery. 
 
 
-
-I can feel her grabbing at my pants. It was wild.
-
-Undeniably, I'd softened a little too much to her charm, although how could one control it?
-
-<!-- Maybe you see her makeout with another guy. Maybe that's what sets you off -->
+making out with tongue and all.
 
 ### Dance Together
 
 
-
-Admittedly, I was never much of an alcohol kind of guy. I always
-
-<!-- When they have sex, he can't cum. -->
-
-I wanted her more than anything else in the world.
 
 ### Heading Home
 

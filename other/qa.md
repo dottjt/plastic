@@ -106,6 +106,7 @@ Truth is, the novel doesn't need to make sense. It just needs to read well. It n
 Macabre
 
 
-Maybe the next book could be about my friendship with Amelia. In a way, there are elements of Amelia within Milo. I suppose there's elements of every girl I've ever dated within Milo, which isn't really saying much. 
+Maybe the next book could be about my friendship with Amelia. In a way, there are elements of Amelia within Milo. I suppose there's elements of every girl I've ever dated within Milo, which isn't really saying much.
 
+You know actually, if I had to write another book it would make sense to write it from Milo's perspective. Because when you think about it, I only really have one story to tell. One character. But to develop it from a female's perspective (well, my perspective of a female) then that would work quite well, I think.
 
