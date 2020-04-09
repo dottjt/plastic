@@ -1,6 +1,8 @@
 # diary.
 
-01/04/2020 - Well, it seems that I'm 100% back to writing my novel and I'm now very committed to it. Put simply, I came to the realisation that writing is literally a matter of process, which means finding ways to facilitate that process. For me, it's about finding a quiet place for me to be able to write in the morning (i.e. the car) which wires me to feel compelled to write. While you can't force yourself to write when you don't feel like it, you can certain put yourself in a position where you feel like writing. 
+10/04/2020 - Been steadily writing the novel and really enjoying it, just like I used to. I no longer need to sit in the car, because I've sorted my mental health out and I'm focused on writing it. Nearly finished the date chapter, so hoping to get chapter 5, 6 and 7 completed. I think it's entirely do-able. I've also noticed that I write better when I'm not working out or doing landscaping, because it's energy I can spend on the book. Of course, like anything in life, balance is important. Glad to be back, kiddo.
+
+01/04/2020 - Well, it seems that I'm 100% back to writing my novel and I'm now very committed to it. Put simply, I came to the realisation that writing is literally a matter of process, which means finding ways to facilitate that process. For me, it's about finding a quiet place for me to be able to write in the morning (i.e. the car) which wires me to feel compelled to write. While you can't force yourself to write when you don't feel like it, you can certain put yourself in a position where you feel like writing.
 
 31/03/2020 - Okay, new solution. Been struggling to write my novel since working from home. This morning I decided to sit inside the car to write. It has been working beautifully, I've realised it's because I basically need :)
 

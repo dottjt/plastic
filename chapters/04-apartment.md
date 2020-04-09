@@ -9,7 +9,7 @@ day: "Saturday."
 
 ### Depression Monologue
 
-"Moderately entertaining." Tonight's obligations are being delivered pro-rata amidst a cheerless harmony of subversive glee, as these words drag themselves miserably along a serrated tarmac of fibre-optic lunacy and profane blather. The paraxial of thy gracious word, spectacularly contoured in a harlem of distasteful abjection, like the Dead Recurved Skunk of St. Nicholas' grave which lies on its belly in the tall notched grass besides the knurled quandary grasping at its toes.
+"Moderately entertaining." Tonight's obligations are being delivered pro-rata amidst a cheerless harmony of subversive glee, as these words drag themselves miserably along a serrated tarmac of profane blather. The paraxial of thy gracious word, spectacularly contoured in a harlem of distasteful abjection, like the Dead Recurved Skunk of St. Nicholas' grave which lies on its belly in the tall notched grass besides the knurled quandary grasping at its toes.
 
 Cheeky, in an attempt to tell a misplaced joke about the inequality of nuts. Hilarious, in the laughter which ensues. The crowd applauses. The Skunk staves night for one more day and the after party is wild in its veneration of critique. Breasts are held. Champagne is sauntered. The Skunk is esteemed. What a great day for comedy in this kowtow of pudicity, modest in the absurdity nibbling at your woes. Although in keeping relevant with my response, I simply yawned at the review, testament to my perception as Queen in this bizarre brute resilience of both force and sensuality.
 

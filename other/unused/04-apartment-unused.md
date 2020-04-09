@@ -4,6 +4,8 @@ A profane blather of fibre-optic lunacy.
 
 coddled destitution
 
+fibre-optic lunacy and
+
 Romeo lunacy
 fibre-optic lunacy
 cobbled lunacy

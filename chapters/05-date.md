@@ -8,7 +8,7 @@ notes: [
 ---
 
 ## Scene 1 START - sharehouse.
-<!--
+
 ### Describe Anxiety
 
 Blah. Blah. Blah. Twirple. Twerp. Twat. Surrrpple. Slosh. Schlop. Barmy. Larmy. Plum. Sempre. Empire. Oh. Empire? Zanana. Tempelio. Adarsh. Frelissimo. Palundius. Mant. Cultun. Splatoot. Eippal. Wzender. Mollat. Cat-anya. Howwel. Venner. Natura. Nervous. Excited. Quaint. I felt sick. Heart wretched tight. Eyes tumbled violent. Stripped. Tenderised. A hurl of mirage. A sidewalk of sausage. Mahogany. Breakfast. Fuck. My immediate vicinity. A mere outline of dissolved potential. Shapes n' sounds. Our friendly dynamic duplicit duality dynamo duo. tre. quatro. That's right. That's right? THAT'S RIGHT! Pow! Wow! OMG!? The bread. The butter. My mouth. An explosion of yeast. Rumbling swough through my stomach. Beautiful. Boy. Lovely. Teeth like a corroded rubber stamp. Liam. I begin touching myself uncontrollably. Face of Crompton™. My hands shake with a Stetson tenacity. I just want to be. Let me be me. Be me be. Let.
@@ -59,7 +59,7 @@ Through the thick musk of the dusk harbor bay, our footsteps wade. Concurrent wi
 
 I take a moment to admonish the sultry glamour of her fishnet blouse, causing her to spark in a melodic betrayal of Bismore judgement. I don't understand why, but I enjoy the attention. Phase shift. She turns her head towards the coil of my hesitation. Eyes wide-open. Tautologically drawing the outline of my torso with the edge of her tongue, now slithered in-between her teeth in a plymouth hunger of pneumatic tension. Inconsummate, like a tailor of preferential indecision bleeding sour from her gums. Ideologically opposed. Delinquent. I suppose I'd always been afraid of this moment. Where man meets women, and where woman meets man. Cavalcade to an underground cavern of sexual theatre, taught millennia before the common triangulations of consent n' jowl health. Woman is clubbed. Woman is raped. Woman gives birth to the future of the crown and life continues its viscous cycle until we eventually achieve some semblance of balance. A union of civil rights n' unfavourable divorce. Naughty. Leading us to present day. Ground zero. An uncanny valley of gore and racism where not even the sweetest of words are enough to impress the discarded genitalia of a used Japanese sex doll. The catastrophic grief you feel inside you blares with a soft loudness, resuming expectation's mighty roar. Manhood. Lost. The pressure rips itself methodologically through the grain of your skin, scolding bone as a consequence of your own childish demeanor. Aching and breaking you. Leaving you sad and alone. Longing for expression. Any expression at all. Attempting to prove itself dear in this smear of naked adoration, like a slaw of mulched grape seed slobbered down upon a senior's breakfast pantaloon. Chutney. Milo was my main course and I was absolutely dying to chew. Give me your pulp, bitch. Give me your whore.
 
-We get closer. I take another pointless comment from my mouth and I stick it on her forehead, hoping to sound lost within my own intellectuality. It gathers no response. Her milk is tepid. I can see it in her eyes, the boredom which grows at a snail's pace across the glaze of her truffle belaire. Idle. Repeating. I am annoying to her. A jester without his hands Inundating her air with a clear sense of D E S P E R A T I O N; another flaw I'd simply come to accept as a premium feature of my own personality. Revealing itself in my obvious inability to convey anything meaningful beyond the vacillation of words prominent in their displace. The tally is revised. The gates begin their mechanical draw and I am one step closer to sitting alone in my apartment, contemplating suicide as I eat a half-frozen meatpie in front of the thin layer of dust I call my computer monitor. Wanking. Lying about my happiness to the world. Eventually raping my therapist to feel even a glick of emotion. Thankfully, the destination had arrived at our footsteps and the pace was ready to explode. A second chance for a second best man. A pub with a Scottish name. I presume it was written in some form of Gaelic. I doubt it was a detail the reader would care about. Although I kept it in for good measure.
+We get closer. I take another pointless comment from my mouth and I stick it on her forehead, hoping to sound lost within my own intellectuality. It gathers no response. Her milk is tepid. I can see it in her eyes, the boredom which grows at a snail's pace across the glaze of her truffle belaire. Idle. Repeating. I am annoying to her. A jester without his hands Inundating her air with a clear sense of D E S P E R A T I O N; another flaw I'd simply come to accept as a premium feature of my own personality. Revealing itself in my obvious inability to convey anything meaningful beyond the vacillation of these words, prominent in their displace. The tally is revised. The gates begin their mechanical draw and I am one step closer to sitting alone in my apartment, contemplating suicide as I eat a half-frozen meatpie in front of the thin layer of dust I call my computer monitor. Wanking. Lying about my happiness to the world. Eventually raping my therapist to feel even a glick of emotion. Thankfully, the destination had arrived at our footsteps and the pace was ready to explode. A second chance for a second best man. A pub with a Scottish name. I presume it was written in some form of Gaelic. I doubt it was a detail the reader would care about. Although I kept it in for good measure.
 
 ## Scene 2 END
 
@@ -79,123 +79,24 @@ Rock n' roll n' nicotine scratches. The immediate reverberation of the in-house 
 
 Admittedly I'd always felt out of place at bars. Not that it felt artificial, but it certainly didn't reflect the level of intimacy I'd desired, smudgeon across the venerable hardwiring of my brain. Not that these ideas were particularly fancy within themselves, although what choice did I have in this game of cat n' cum, seeping from the cringe of my mottled foreskin, now pulsating wildly in a ripe fondue of refulgent effluvium for the women on my screen to jerk n' plunder. Rancid was the contrast. In my ideal fantasy world we'd both be laying there naked, sulking in a dark room together. Alone. Tending to our wrists in a physical alteration of emotional depression, actin' blind whortled like a bunch of straggled teenagers with a penchant for nostalgia n' late-night addiction. How sickeningly cliché. It became clear to me in that moment, in amongst the affective layers of aborted diaphoresis circularating within the air, that there was a large part of my childhood which simply didn't exist. Which had effectively fabricated itself into the prose of these words, designed to drag n' inundate like an hour-long session of replication therapy. Overanxious. Vulnerable. Deceit. Milo arrives from the bar carrying two pints of cider, along with what looks like a Wet Pussy. Perhaps we could make this work after all.
 
--->
+### The Kiss
 
-### The two dance
+"This is for you, soldier. I've already had mine," she loathes in a thyroxine of excitement. Her two-dollar lipstick now smeared down to her neck, as I attempt to injest the inappropriately named cocktail. Mesmerised by the charity of her generous hands, grabbing at my pants in what was clearly a sign of risky behaviour. And yet the pants wanted more, undeniably hardened by the kick of her feverish charm. In a lot of ways, Milo was like a beaten cat covered in it's own piss. Reeking of doubt n' regurgitated sardines n' all sorts of blue-collar misandry, and although part of you wanted to adore the innocence of its poverty, the putrid of its shame, it was also hard not to be repulsed by the linger of its outfit. Churning in your stomach like a yellow fever. Palpitating joyous in the stupor of my grim. And yet, the repulse is exactly what captures your imagination, as you interally devise a list of all the nasty things you hope to get away with. Stepping on thy pitiful. Eating from its poor beggarly hands. Fallaciously drawing you deeper into it's venal state of mired vexation; the perfect canvas for an iterative mind n' gunk full of impious greed. The abjection curses at me with a heavy smile. The thought dettaches. My hands multiply and the world around me becomes pronounced in ways I coudln't have possibly desired. Legible. Saint. My vision begins to blur n' fade within the wisdom of my own mind, as the alcohol rushes to my head in an aggrieved reminder of dewy potential. We push our bodies slowly together, feeling the enchantment of our own misery. Her mouth enters mine. Our lips become supple and for the first time in my life, I'd finally knew I'd won.
 
-"This is for you, soldier. I've already had mine," she loathes in a thyroxine of excitement. Her two-dollar lipstick now smeared down to her neck, as I attempt to down the misappropriately named cocktail. Mesmerised by the charity of her generous hands, grabbing at my pants in what was clearly a sign of risky behaviour. The pants wanted more. Undeniably I'd largely softened to her charm, although she continued to leave a bad taste in my mouth in the same way that a beaten cat covered in it's own piss fills you with doubt. The kind of thing reekig of regurgitated sardines n' all sorts of blue-collar misandry. Part of you wants to love the innocence of it's poverty, and yet the entire outfit still manages to repulse you. And yet, the repulse is exactly what captures your imagination, as you interally devise a routine of all the naughty things you believe you can get away with in it's humble state of pure vexation. The thought dettaches. My hands multiply. My vision begins to blur and I can feel the alcohol rush to my head in an ecstatic reminder of dewy potential. We push our bodies slowly together, feeling the enchantment of our own misery. 
+### The Choke
 
+Milo chokes.
 
-making out with tongue and all.
+"Is everything okay?", I respond. Too drunk to fully understand what was truly going on. She pulls away from me, unapologetically throwing my hand off her. I'm confused. I chase her to the bar, where she stops me.
 
-### Dance Together
+"Listen. I'm sorry kiddo, but I can't do this."
 
+"What do you mean?"
 
+"I mean you're a nice guy n' all, but I gotta stop fuckin' around. You're just not my type."
 
-### Heading Home
+### The Disbelief
 
-## Scene 2 END
+For a moment I stand there. Paralysed in my own unbecoming. Entirely unresponsive to the world and it's misgivings. It hurts to breathe, but that's okay. At least it indicates that I still have a breath at all. I see her standing there. Awkwardly. I break down into a flurry of tears. I think she's upset too, although perhaps for different reasons. How was I not her type? I was her everything. Perhaps that was just the narrative I'd told myself. The breathing becomes harder. My stomach freezes into a hurl of black ice. Why was I so worthless? Why couldn't I just have something nice happen in my life for once? I see her turn away. Please don't leave. A million different thoughts rush through my mind, all seemingly inconsequential to the experience of life. Her nice legs disappear. I try to compose myself, but I don't see the point. I need to get out of this joint. Hell, it would have been nice to have had a joint on hand as well, but I didn't really think that far. I stumble out of the pub and I vomit into the gutter of the sidewalk. Face down. Nervous. Alone. Thinking of Milo. How much I missed her already. I pick myself up and start walking towards the station. The misery had just begun and I had no idea how to stop it.
 
-####
-
-
-
-
-
-## Scene 3 START - sex.
-
-### Describe Feelings
-
-I'm covered in the silk of my own drool. She's right besides me. It was perfect. She was perfect. The perfect image of me. Everything my heart desired in the punishing impulsiveness which was her fabled dreamscape of a errorless body. Those perky nipples,
-
-Even to this day, I have no possible idea how we managed to get home in the state that we were in, however
-
-### Describe Sex
-
-She pushed me into the front door. We started making out. Her tongue against mine. Guiding me without evidence. She pushes her torso against mine, reaching for my pants. This is what I wanted. This is who she was, and this is what I'd dreamed of experiencing from the moment I saw her.
-
-We reach my bedroom. I couldn't stop looking into her eyes. In a sense, I couldn't tell if she happy, sad . It was as if she was . As if deep down inside she was actually mentally running away from herself. From her life, and I was merely an outlet for it all.
-
-She gets on top of me.
-
-
-
-
-<!-- ## Scene 1 START
-
-### Expressing love
-
-An acoustic stream of pink decorations fluttered around me, gently letting me down ina a confetti of fairy dust. I couldn't have imagined anything more perfect than the sanctuary of her presence, held in esteem beyond the very words which brought her to life. More than anything, I simply wanted to hold her in my hand, pretending to be hers in every sense of the word. A lucky charm of eternity which
-
-I could have stared at her for hours, absorbing the finer details of her skin. Hold her tight
-
-The perfect image of cuckholdry
-
-I could feel her body pressed against mine. The soft touch of her pores
-
-
-
-So this is what love was. A pure evaporation if cynicism, .
-
-
-. It was like staring at a godess.
-
-
-She's distant.
-
-### Waking up with Milo
-
- I was ecstatic.
-
-The air was thin this morning. It had been quite cold recently, and I wasn't quite sure
-
-"I think I have a condition."
-
-"Fuck, you don't have syphilis, do you?", she spouted in an over-reaction of concern, hugging the bed-sheets in a last bastion of earthly safety.
-
-"Oh no, it's not that.
-
-"Try and talk about your mental il=ln
-
-### Talk about making breakfast together.
-
-"Wet cake makes for a soppy treat," she announces, floating her way to the heel of my toes, t-shirt draped across her bare shoulders.
-
-### Breaking point.
-
-(maybe make it about trust issues)
-
-
-
-## Scene 1 END
-
-####
-
-## Scene 2 START
-
-
-### The breakup.
-
-"I don't think I can do this anymore. I like you n' all, and I think you're a really smart and funny guy, but you're just not really my type."
-
-My first reaction was to vomit. Either because I felt I deserved the pain of wretching my guts out, or because I felt so sick that I didn't know how else to respond.
-
-
- How does one feel rejection when they already live and breathe it by mere fracture of their existence?
-
-"What do you mean? What more is there than being smart or funny?", I recited, following a long careful examination of the situation. Truth was, I was devastated.
-
-
-### She leaves.
-
-My first reaction once she'd left was to masturbate. It was remained in the sunken realisation that all hope had decided to evade me, leaving my corspe in a
-
-It was what comforted me. Showed me peace. Helped soften the blow of having
-
-Careful not to think, I picked myself up and slowly
-I walked my
-
- Someone shove a shard of glass into
-
-
-## Scene 2 END -->
+## Scene 3 END
