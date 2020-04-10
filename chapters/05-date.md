@@ -93,7 +93,7 @@ Milo chokes.
 
 "What do you mean?"
 
-"I mean you're a nice guy n' all, but I gotta stop fuckin' around. You're just not my type."
+"I mean you're a nice guy n' all, but I gotta stop fuckin' around. This just isn't me and you're not my type."
 
 ### The Disbelief
 
