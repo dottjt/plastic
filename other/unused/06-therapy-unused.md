@@ -1,6 +1,18 @@
 # 06-therapy.md
 
-Suckle my lunt, you clitch.
+---
+NOTE: This was the original intro, however I don't think this works. I feel like it doesn't tell a strong narrative, although I'll give it some time. My head doesn't feel right today.
+
+"10 Hot Tips For Amazing, Mind-Blowing Sex." The front cover of every men's magazine. Sizing and measuring you down to the retrofit standard just like the piece of shit you are. To be printed at birth upon a thin laminate of unmet judgement, stapled to your forehead and sold to the Chinese for a pretty penny n' a cuck full of gould. Oh, and it seems that your fetish for Kigurumi men has been egregiously exposed to the world of online, now circulating aggressively to every single data centre across the country under the guise of marketing research. Congenital in its touch. Unrequited in its hold. Wholesome is thy neighbour. Be hound, be told.
+
+Congratulations, soldier! You're still terrible at sex and your hopes and dreams, those unwritten lies of youth, have now been processed and reassembled under the laborious eye of an obscure Japanese algorithm. Emulated in comparative Lisp with a dash of parenthesized Cobol to boot. Perfectly rigid in its asinine classification of dirt n' other insignificant odities. Granular in its irrelevance. Tectonic in its outcome. Germane is a gloat. FUCK. "I am an average half-Asian male with an overwhelming propensity for sticking my penis into the hulls of pretentious white women," my label states. Illustrated in a beautiful Iranian typeface, extracted from page five of a ten-part contemporary guide to desktop publishing. How glorious, you must say. Well, quite glorious indeed if I don't say myself. And although my heart is currently beating under the false pretense of a meaningful life, all I can say is that the blackmail has become far too much for me to handle and I'd really appreciate it if you'd please PLEASE, for the love of God, just lean over my shoulder and tell me how WONDERFUL my smile is today. Oh, that was lovely. Thank you, Daddy. It's great you could make it. Yes, I love you too.
+
+We try to love ourselves. We try to breathe meaning into our pursuits and desires, providing them with gloss n' texture to make our lives appear more decorative than they truly are. We shower our souls in the finest of ingredients and with the most decadent of minds, only to perceive flaw in the essence of our aberration. As we collectively take off our blindfolds to witness the true aversion of it all. Tearing us apart in a hemorrhage of immense sociological marvel. In an empire of afterthought. Crumbling n' dismantling before our very eyes. Absorbed and prolonged by a plague of famished locusts, contemplating their regular routine of savage deconstruction in a structured alimony of incarnate and curriculum. I wasn't quite sure who I was in this very moment, nor why I was here. All I knew was that the repulsion was strong. Oh, and the smell. The fuckin' smell had become unbearable. Like a visually-stained splotch of acidic discharge, spread thin amongst a gelatinous estuary of fangled hoisery and speckled period blood. Venerated in the exfoliated skin of a burn-victim's crotch, left to disintegrate under the shoveled distress of an effluent highway of pigs guts n' dog shit. It was the odor of the old shriveled cretin sitting besides me, as she proceeded to cross her gnarled flaps a second time, causing me to gag in a marrow vomit of scented decomposition. I couldn't take it anymore. I wanted to rip the flitted flesh from this cunt's hymen, fucking the wound with a fistful of detol until I could smell the overwhelming silence of bleach. Trickling from the hyperglycemic depths of her fetid vagina. Perhaps I'd come to the right place after all.
+
+----
+
+award vs accolade
+floozy vs flouncy
 
 without pleasure of blackmail.
 
