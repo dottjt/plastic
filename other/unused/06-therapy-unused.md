@@ -9,6 +9,7 @@ Congratulations, soldier! You're still terrible at sex and your hopes and dreams
 
 We try to love ourselves. We try to breathe meaning into our pursuits and desires, providing them with gloss n' texture to make our lives appear more decorative than they truly are. We shower our souls in the finest of ingredients and with the most decadent of minds, only to perceive flaw in the essence of our aberration. As we collectively take off our blindfolds to witness the true aversion of it all. Tearing us apart in a hemorrhage of immense sociological marvel. In an empire of afterthought. Crumbling n' dismantling before our very eyes. Absorbed and prolonged by a plague of famished locusts, contemplating their regular routine of savage deconstruction in a structured alimony of incarnate and curriculum. I wasn't quite sure who I was in this very moment, nor why I was here. All I knew was that the repulsion was strong. Oh, and the smell. The fuckin' smell had become unbearable. Like a visually-stained splotch of acidic discharge, spread thin amongst a gelatinous estuary of fangled hoisery and speckled period blood. Venerated in the exfoliated skin of a burn-victim's crotch, left to disintegrate under the shoveled distress of an effluent highway of pigs guts n' dog shit. It was the odor of the old shriveled cretin sitting besides me, as she proceeded to cross her gnarled flaps a second time, causing me to gag in a marrow vomit of scented decomposition. I couldn't take it anymore. I wanted to rip the flitted flesh from this cunt's hymen, fucking the wound with a fistful of detol until I could smell the overwhelming silence of bleach. Trickling from the hyperglycemic depths of her fetid vagina. Perhaps I'd come to the right place after all.
 
+Leaving behind an overwhelming smell of bleach, as it silently trickles from the hyperglycemic depths of her fetid vagina.
 ----
 
 award vs accolade
@@ -116,3 +117,5 @@ All I knew was that I still wanted to fuck her. Her long black hair tied into pe
 The thoughts of man trapped in desperation, ready to tear through the fabric of reality leaving ammonia.
 
 You kooky little spider.
+
+virtuous vs impeccable
