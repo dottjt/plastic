@@ -119,3 +119,11 @@ The thoughts of man trapped in desperation, ready to tear through the fabric of 
 You kooky little spider.
 
 virtuous vs impeccable
+
+
+
+The rustle of her coat falters against the mundane of her jowls.
+
+Lickin' the tips of my exquisite fingers with a quaint jeer of synthetic perceptiveness
+
+Plumes of veil. Scratchity sun
