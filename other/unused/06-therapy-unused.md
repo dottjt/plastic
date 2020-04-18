@@ -127,3 +127,5 @@ The rustle of her coat falters against the mundane of her jowls.
 Lickin' the tips of my exquisite fingers with a quaint jeer of synthetic perceptiveness
 
 Plumes of veil. Scratchity sun
+
+Taking advantage of my inability to fight my own biological thirst. Government funded, we must.
