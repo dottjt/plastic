@@ -129,3 +129,9 @@ Lickin' the tips of my exquisite fingers with a quaint jeer of synthetic percept
 Plumes of veil. Scratchity sun
 
 Taking advantage of my inability to fight my own biological thirst. Government funded, we must.
+
+parenthesised Cobol
+
+. As we collectively take off our blindfolds to witness reality's illustrious grim,
+
+Granular in its irrelevance. Tectonic in its outcome.
