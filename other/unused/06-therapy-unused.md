@@ -135,3 +135,9 @@ parenthesised Cobol
 . As we collectively take off our blindfolds to witness reality's illustrious grim,
 
 Granular in its irrelevance. Tectonic in its outcome.
+
+
+as you lay there to be throat-fucked by Aunty Cowley's fist of Bulgarian pleasure. 
+
+
+Granular in its irrelevance. Tectonic in its outcome.
