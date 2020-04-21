@@ -83,6 +83,10 @@ I liked the idea of a revolver.
 
 It feels heavy in my hand.
 
+S&W Model 29 in .44 magnum
+
+.38 caliber Smith & Wesson Model 10
+
 
 ## Scene 3 END
 

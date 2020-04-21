@@ -57,9 +57,9 @@ A delicious free-for-all against the senses.
 
 ### 08 - birthday.
 
-- It's the character's birthday.
--
-- Talks about the user's birthday.
+- It's the character's birthday. He's lonely. Contemplates suicide.
+- Friend arrives. They chat and discuss life.
+- They head out to a mexican restaurant. 
 
 ### 11 - bubble.
 
