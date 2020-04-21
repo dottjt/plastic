@@ -25,45 +25,51 @@ Peter was an alcoholic.
 
 ### Chapters.
 
-  ## 00 - The Setup
+## 00 - The Setup
 
 ### 01 - life.
 
-- This chapter introduces the Character and the Editor.
-- Character meets with Editor. They go out to lunch.
-- Character gets fed up with Editor. Leaves.
+- Character meets with an Editor to discuss his manuscript. The Editor is clueless.
+- They go out to lunch in Chinatown. Character describes Chinatown and Restaurant.
+- Character gets fed up with Editor. Leaves for work.
 
 ### 02 - work.
 
-- This chapter introduces his love interest, Milo, as well as the Boss.
-- Character returns from meeting with Editor.
-- Interacts with Milo.
-- Interacts with The Boss.
+- Character arrives at work. Bumps into his love interest, Milo.
+- Character describes Milo and workplace.
+- Milo proposes a date. Character accepts hesitantly.
 
 ### 03 - family.
 
-- This chapter introduces the Mother and the Helper.
-- Character describes sperm and life. Describes the relationship he has with his mother.
-- They fight. They're miserable.
+- Character heads to meet his mother for dinner.
+- Character describes the affluent Chinese suburb, his porn addiction and his mother.
+- Character realises she's toxic and decides to disown her. Character leaves abruptly.
 
-### 04 - depression.
+### 04 - apartment.
 
+- Character wakes up the next day in a depression.
+- Character describes his feelings. Decides to get high.
+- Character bumps into his neighbour. They chat. They both are fond of each other.
+- Character leaves for his date with Milo.
+
+### 05 - date.
+
+- Character arrives at Milo's house. Describes neighbourhood and Milo's house.
+- They leave for the city. They end up at a pub. They kiss.
+- Milo chokes.
+
+### 06 - therapy.
+
+- It's the next day. Character is
 -
 
+Talks about the user's birthday.
 
-### 05 - therapy.
+### 07 - gun.
 
-- Meets up with his therapist.
-
-### 06 - birthday.
-
-- Talks about the user's birthday.
-
-### 07 - bubble.
+### 11 - bubble.
 
 - The stock market crashes and the character loses their job. Hangs out with Milo and gets very drunk.
-
-- Maybe he can't cum?
 
 ###  night.
 
@@ -178,5 +184,15 @@ day: "Sunday."
 Technical aspects:
 - Story is well structured.
 - Macro is very well structured.
-- Writing style itself however, will be hard to edit. 
+- Writing style itself however, will be hard to edit.
 
+
+# Potential tools to use
+
+http://www.hemingwayapp.com/
+https://languagetoolplus.com/
+https://languagetool.org/
+
+# Ideas
+
+- Maybe he can't cum?

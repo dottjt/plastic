@@ -99,4 +99,8 @@ Milo chokes.
 
 For a moment I stand there. Paralysed in my own unbecoming. Entirely unresponsive to the world and it's misgivings. It hurts to breathe, but that's okay. At least it indicates that I still have a breath at all. I see her standing there. Awkwardly. I break down into a flurry of tears. I think she's upset too, although perhaps for different reasons. How was I not her type? I was her everything. Perhaps that was just the narrative I'd told myself. The breathing becomes harder. My stomach freezes into a hurl of black ice. Why was I so worthless? Why couldn't I just have something nice happen in my life for once? I see her turn away. Please don't leave. A million different thoughts rush through my mind, all seemingly inconsequential to the experience of life. Her nice legs disappear. I try to compose myself, but I don't see the point. I need to get out of this joint. Hell, it would have been nice to have had a joint on hand as well, but I didn't really think that far. I stumble out of the pub and I vomit into the gutter of the sidewalk. Face down. Nervous. Alone. Thinking of Milo. How much I missed her already. I pick myself up and start walking towards the station. The misery had just begun and I had no idea how to stop it.
 
+I recieve a text on my phone.
+
+"Oh, and please don't text or call me."
+
 ## Scene 3 END
