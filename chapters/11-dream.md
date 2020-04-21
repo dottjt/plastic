@@ -1,8 +1,17 @@
 ---
-title: "breakup."
-description: ""
-day: "Saturday."
+title: "dream."
+description: "A chapter where the character explains a dream he had."
+day: "Wednesday."
 ---
+
+## Scene 1 START
+
+<!-- - This dream chapter explains how he wished his life actually turned out. -->
+
+<!-- See if this chapter makes any sense. If not then don't worry about it. -->
+
+I could feel her holding me.
+
 
 ## Scene 3 START - sex.
 

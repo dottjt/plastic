@@ -14,3 +14,19 @@ Obviously, having your lungs full of glass would be unbearable. Yet glass itself
 The monitor. My friend.
 
 I always maintained an innately intimate relationship with my monitor, like an adorable sibling that spent all their time admiring your talents. It was the first thing that greeted me every morning, joining me for a brief moment as I relieved myself to a bunch of videos featuring. Perhaps because it was the thing I spent most my life staring at, yet never really quite noticing. I suppose the ancient equivalent would be falling in-love with your servant who cleaned the house and did your laundry.
+
+
+
+I liked writing about my feelings.
+
+
+## Scene 1 END
+
+####
+
+## Scene 2 START
+
+<!-- Maybe character hangs out with the neighbour. It needs to happen at some point. -->
+
+
+## Scene 2 END

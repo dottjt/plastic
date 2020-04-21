@@ -53,11 +53,11 @@ Soon the girl loses my attention. I mean, I'd already had a quick wank in the ba
 
 ## Inside Gun Shop
 
-The chime of the shopkeeper's bell rattles my ears. It seems to persist for hours upon a metallic refraction of passionless retirement. Boring it's detriment into my skull. Reminding me that all my meaning and friendship in life had truly died. 
+The chime of the shopkeeper's bell rattles my ears. It seems to persist for hours upon a metallic refraction of passionless retirement. Boring it's detriment into my skull. Reminding me that all my meaning and friendship in life had truly died.
 
-Standing behind the counter was one of those brattish military types. Hair like a gay leopard, prowling over the shining attention-seeking objects obscuring her view. Her preference for men was obvious. Old n' rusty. Strewn in swathed snus. A paid tit-job n' a star-bangled tattoo accross her shaved asshole, as an oldie from down the road gobs into her douche and rides her into the trailer. Shoving his tongue deep n' wide as the thought of glory captures her mind. The natural talents of her mind. I imagine she was probably raped by a vertical segment of wildlife at a very young age. An ideological anarchist for the fans. An ideal career path for a former Hooter's model, knowledgable only in the arts of drugs n' marital assault. 
+Standing behind the counter was one of those brattish military types. Hair like a gay leopard, prowling over the shining attention-seeking objects obscuring her view. Her preference for men was obvious. Old n' rusty. Strewn in swathed snus. A paid tit-job n' a star-bangled tattoo accross her shaved asshole, as an oldie from down the road gobs into her douche and rides her into the trailer. Shoving his tongue deep n' wide as the thought of glory captures her mind. The natural talents of her mind. I imagine she was probably raped by a vertical segment of wildlife at a very young age. An ideological anarchist for the fans. An ideal career path for a former Hooter's model, knowledgable only in the arts of drugs n' marital assault.
 
-"What can I do you for?", she lends, sly in the knock of her movement, as she leans in on the glass cabinet. Intent on eating me alive. She holds a knife, although I'm too preoccupied with her cleavage to notice the urgency of the situation. 
+"What can I do you for?", she lends, sly in the knock of her movement, as she leans in on the glass cabinet. Intent on eating me alive. She holds a knife, although I'm too preoccupied with her cleavage to notice the urgency of the situation.
 
 
 The pink ponytails were cute.
@@ -80,6 +80,9 @@ I hesitated slightly. I think she noticed.
 "What looks cooler?"
 
 I liked the idea of a revolver.
+
+It feels heavy in my hand.
+
 
 ## Scene 3 END
 
