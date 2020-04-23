@@ -141,3 +141,12 @@ as you lay there to be throat-fucked by Aunty Cowley's fist of Bulgarian pleasur
 
 
 Granular in its irrelevance. Tectonic in its outcome.
+
+
+
+which served solely as a dilapidated corkboard of 
+
+Truth is I'd always wanted to fuck my therapist. Actually it was fair to say that I was keen to fuck anything. 
+
+corked in several layers of cat hair n' coffee which didn't seem to bother her one bit.
+
