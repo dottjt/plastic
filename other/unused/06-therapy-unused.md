@@ -150,3 +150,12 @@ Truth is I'd always wanted to fuck my therapist. Actually it was fair to say tha
 
 corked in several layers of cat hair n' coffee which didn't seem to bother her one bit.
 
+The reminder had already triggered my depression, so I decided to go off on a tangent.
+
+like a telescopic rape device. I should have clocked the bitch while I had the chance.
+
+that special well-read guy had rode into her life
+
+"Maybe you don't quite know what you want because your idea of what you think you want, success, or at least your idea of success as a list of things to achieve, differs from how you want to feel. Which is happy, which arguably is completely independent of success itself" she said.
+
+in this battle I was slowly losing, but at the very least I knew that my interaction with the therapist didn't make me happy.
