@@ -41,24 +41,22 @@ Now, to say that I hated therapy was an understatement. I couldn't possibly have
 "Well for starters... I disowned my mother," I began. Pretending as if I were actually being interviewed for a cordial position on Saturday Night Live. The flair of my unassuming conceit, cashed against the alter-ego of my sometimes hilarity. The stunning chalcedony of a mere amateur. I gleamed into her eyes with a promissory tone of calcic observation, taking note of the bright green earrings which dangled from her ears like a freckled bouillie. Surely it was an amiable gift from an astute admirer, as she wore what appeared to be a handbag for a husband. As per usual, my therapist was unimpressed with my lack of commitment to the dread. Visually, she was uninspired by my tatty remark. Perhaps remnant of an orgasm she experienced 25 years ago during a extraordinarilyextraordinarily fatuous episode of Seinfeld. I didn't dare to proclaim.
 
 The therapist was a cold shoulder of hate n' posterity. Ludicrous in her preposterous interrogations, which bordered dyslexic in the implausible hum of inconsequence which scowled from her tongue. At best she was an incomplete set of peevish narratives, detailing the mischief she insinuated upon 20th century men via the discarded tape recorders she kept to reinforce her ego. Like a vacuum of utilitarian comfort, designed to suck the joy and pleasure from the basic necessities of human life itself. A method she eneveloped into a haptic frenzy of uncompromising hand gestures and seizure-inducing flashes; the kind of foreplay she paid good money for. How quaint. Yet, there was something comforting in the brown cardigans n' tennis trainers she bore. As if to suggest that she simply didn't care for the deep layers of cat hair which preoccupied her blouse, nor whether she'd even remembered to brush her teeth that day. Much like my dearest Milo. Of course, it was my mission as a male to fuck everything and anything that moved. So the sentiment served as merely another discomfort I was expected to repress. She continued to study me.
--->
-"...aaaaaand I've been dumped, and I pretty much want to kill myself." I doubt she picked up on the sarcasm, although it would have been nice to at least haved received a giggle. Perhaps even a recommendation for the suicide hotline. Laugh you stupid whore. Appease this comical foundry you witness before thee, demoralised by your rotten consternation.
 
-. Apparently she was confused by my suicide-themed zinger, now tossed aboard under the sterling judgement of this crabby ol' bitch. In a lot of ways, our interaction felt a bit like a golden marriage turned sour. I'll spare you the details, but let's just say that it's hard to fuck a dried husk of coconut peat without feeling the burn.
+"...aaaaaand I've been dumped, and I pretty much want to kill myself." I doubt she picked up on the sarcasm, although it would have been nice to at least haved heard a giggle. Laugh you stupid whore. Appease this comical foundry of foresaken witness, demoralised by thee rotten consternation. Apparently the suicide-themed zinger had not only confused her, but had been sternly tossed aboard under the sterling judgement of her crabby crab crim. In a lot of ways, our interaction was a golden marriage turned sour. Sheath in the dried husk of coconut peat I would soon describe as her vagina. Although I suppose it was in my best interest to throw her a bone during these hungry, hungry times. I was beginning to feel sorry for her, and these precious ears were dying for some closure.
 
 ### Therapy - Response.
 
-"Listen, I'm sorry. I'm just joking. There's just a lot going on in my life at the moment." She continued to eye me, before finally deciding to chime in. 4 minutes 32 seconds into our session. A new record.
+"Listen, I'm sorry. I was just joking. There's a lot going on in my life at the moment." She continued to eye me with a dim falsetto, before finally deciding to chime in to the network of my woes. Only 4 minutes 32 seconds into our session. A new record in this dime of dimes.
 
 "I understand that it must have been difficult. Would you like to talk about it?" Outstanding professionalism.
 
 ### Therapy - The guilt he feels for his mother.
-
-I reached out into the depths of my brain, hoping to find something rational to please her with. Truth was, there was simply too much to tell. How does one express the guilt, sadness and anger that one feels, without pulling a gun to their head in a misery of show n' tell? I was lost. I decided to go off on a tangent.
+-->
+Maybe I did. Maybe I didn't. Perhaps I wasn't ready to admit that I was an awful human being. Perhaps I didn't trust her. Why was I even here? My neck began to tighten. I reached out into the depths of my brain, hoping to discover something rational in amongst the recreation ween of my teenage mind. Obsessed with the nitrogenous oxidation of sex, streaming down my arms in a slurry of poriferous sorrow. Administered in candentation. Pleading to be filled. Overflowing in thirst. As I sat there in the zenith of the harbinger chair, bought on the back of an unpayable student loan, it was clear that my mind was in no place to belong. To breathe. To relate. Paralysed by the volume of emotion which kept me up at night. Chide in their snicker. I mean, how does one express the guilt, sadness and anger that one feels, without breaking down into a puddle of harangue puree? Peddlin' in circles. Lipid at the substrate. The reminder had already triggered my depression, so I decided to go off on a tangent.
 
 ### Therapy: What is success?
 
-"Maybe I just don't feel successful in life," I uttered to the therapist.
+"Maybe I just don't feel successful," I uttered to the therapist. She knew I was bluffing, but I suppose it was more than I deserved.
 
 "Well, what's your idea of success?" the therapist responded.
 
