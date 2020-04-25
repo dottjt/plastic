@@ -60,21 +60,21 @@ Who knows. Maybe I did. Maybe I didn't. Perhaps I wasn't ready to admit that I w
 
 "Well, what's your idea of success?" the therapist responded.
 
-"I don't know. Maybe it's having sex with a hooker who'll remember my name. Maybe it's just having sex at all. I guess I just want to feel less terrible about everything." You could almost taste the ingenuity crimp from the constrain in these words, like a kiss of battery acid along the press of one's lips, dispersed without warning, as I dipped my face into a plastic cup of water like a stubborn penguin with a purpose to be meant. Lopsidedly suckling the remaining few drops of liquid I'd clearly already finshed, if only because I felt anxious sharing the hollow life that laid before me. Perishing exponentially into a pool of all apathy. 
+"I don't know. Maybe it's having sex with a hooker who'll remember my name. Maybe it's just having sex at all. I guess I just want to feel less terrible about everything." You could almost taste the ingenuity crimp from the constrain in these words, like a kiss of battery acid along the press of one's lips, dispersed without warning, as I dipped my face into a plastic cup of water like a stubborn penguin with a purpose to be meant. Lopsidedly suckling the remaining few drops of liquid I'd clearly already finshed, if only because I felt anxious sharing the hollow life that laid before me. Perishing exponentially into a pool of all apathy.
 
-"And what would feeling less terrible mean to you?" Thanks Aunty Grace. 
+"And what would feeling less terrible mean to you?" Thanks Aunty Grace.
 
 "I'm not sure. I guess I wouldn't worry so much. I guess like how famous people feel. Acomplished and recognised," I said.
 
 "Do you think it's possible to feel less terrible without having achieved a lot or without becoming famous?" Of course not, you fucking bitch. Although I knew she had me. I fuckin' knew it. As the tight-lipped dryness in her eyes protruded from her soul and grabbed me by the throat. Convincing me to drown.
 
-"I don't know. Maybe. But what's point in being happy if you're not successful?" HA. Die you insufferable bitch. To be fair, I would hate me too. I doubt she was pleased to deal with my inane bullshit at 10am on a Sunday morning, as she sat there pondering, harmlessly contemplating the somewhat ambiguous state of her frozen eggs. Suspended in a vat of pickle juice to be extracted n' adorned once her online dating profile had come to ample fruition. "It's only a matter of time now," she'd utter to herself in a fiendish tone. Drizzled in an indignant ambivalence for sexual unrest, awaiting patiently to ensnare her personal toy-boy of lust n' pleasure. Hopefully I was at least within her top 10 imaginary preferences for suitable fathers. Then and only then would I consider addressing my depression. 
+"I don't know. Maybe. But what's point in being happy if you're not successful?" HA. Die you insufferable bitch. To be fair, I would hate me too. I doubt she was pleased to deal with my inane bullshit at 10am on a Sunday morning, as she sat there pondering, harmlessly contemplating the somewhat ambiguous state of her frozen eggs. Suspended in a vat of pickle juice to be extracted n' adorned once her online dating profile had come to ample fruition. "It's only a matter of time now," she'd utter to herself in a fiendish tone. Drizzled in an indignant ambivalence for sexual unrest, awaiting patiently to ensnare her personal toy-boy of lust n' pleasure. Hopefully I was at least within her top 10 imaginary preferences for suitable fathers. Then and only then would I consider addressing my depression.
 
-"There's no reason why you can't be both happy and successful independently. It's just perhaps being happy might help you to become successful." she said. Certainly, it was hard to say she was wrong. 
+"There's no reason why you can't be both happy and successful independently. It's just perhaps being happy might help you to become successful." she said. Certainly, it was hard to say she was wrong.
 
 ### Discuss Happiness
 
-I wasn't quite sure what to think. All I knew was that I was losing this battle, worst of all to my own therapist. Whom I knew for certain did not make me happy. Although perhaps nothing would. I suppose happiness had never really been one of my great aspirations in life. In fact, it was a subject I hadn't really thought about at all. Happiness to me was more of a quirky nice-to-have, like a side of fries with a dab of Tabasco horse. A never-ceasing, sometimes pain, sometimes pleasure. Which would sporadically appear throughout one's life just to remind you of your own mortality. Perhaps more than happiness, what I truly wanted was to prove myself. To prove myself capable of wit and passion. Already, I felt happier. 
+I wasn't quite sure what to think. All I knew was that I was losing this battle, worst of all to my own therapist. Whom I knew for certain did not make me happy. Although perhaps nothing would. I suppose happiness had never really been one of my great aspirations in life. In fact, it was a subject I hadn't really thought about at all. Happiness to me was more of a quirky nice-to-have, like a side of fries with a dab of Tabasco horse. A never-ceasing, sometimes pain, sometimes pleasure. Which would sporadically appear throughout one's life just to remind you of your own mortality. Perhaps more than happiness, what I truly wanted was to prove myself. To prove myself capable of wit and passion. Already, I felt happier.
 
 "Aren't you going to ask me where Daddy touched me," I murmured.
 
@@ -82,15 +82,15 @@ I wasn't quite sure what to think. All I knew was that I was losing this battle,
 
 "Maybe we should end today's session here." Yes. Perhaps we should. You soulless bag of refined cheddar.
 
-"I would also consider finding another therapist. You seem consistently resistant to this idea that I can help you." My heart sank. Well, fuck. There ya have it folks. Discard the reminder. Throw out the bath water. I was no good for brown cardigan n' co. 
+"I would also consider finding another therapist. You seem consistently resistant to this idea that I can help you." My heart sank. Well, fuck. There ya have it folks. Discard the reminder. Throw out the bath water. I was no good for brown cardigan n' co.
 
-"I don't think you trust me to help you understand your own problems," she iterated for a second time. It's true. I didn't trust her. I didn't trust her to understand me. I didn't trust to understand the loneliness I felt each night as I stepped out of the shower, covered in the filth of my own grief. Sorry I was even alive at all. Although what difference did it make? I barely even trusted myself. I suppose it could have been worse. 
+"I don't think you trust me to help you understand your own problems," she iterated for a second time. It's true. I didn't trust her. I didn't trust her to understand me. I didn't trust to understand the loneliness I felt each night as I stepped out of the shower, covered in the filth of my own grief. Sorry I was even alive at all. Although what difference did it make? I barely even trusted myself. I suppose it could have been worse.
 
 ### Leaving Practice
 
 I felt weary as I exited the lobby of the therapist's den. Supple to the elastic gestures of these bustling city streets. Blinded by a combination of fog n' footstep; caste to the shimmer of a Bedouin breeze. Melting across my eyelids with the theatrical zeal of a tribal face lacquer. Pantomime in its warbanding aggression. Ideal in its animation, leaving me cold and unsure. Just as I'd felt walking into the clinic only moments ago. Consommé like a thick gravy of mutton tartare, maroon upon a refulgent plate of vibrant pintar sick. As the haught clamateur, that beamy rose of trix valorant, heaved from my lungs. Sully in the candent taint of these wretched hands, pulling these strings with the caress of a demented kindness. Carelessly tilting me towards its vice n' candour. The feeling was good and the disrepair expansive.
 
-I suppose I was always destined to become a kind of reimagined loneliness for a future generation to aspire to. Delicate in its cheerful carousel of tinted rosewood, soft against the abrasive melancholy of its desolate touch. For I am a robust man. A grand representative of caliph and vizier. Our young new leader to both guide and extrapolate upon this celebration of joust n' resignation. Hopelessness adieu. My pulse had become weak. Too exhausted to cry, I sat at the bus stop with a pretend on my face. Mincing my words under the breathlessness of a warble distress. 
+I suppose I was always destined to become a kind of reimagined loneliness for a future generation to aspire to. Delicate in its cheerful carousel of tinted rosewood, soft against the abrasive melancholy of its desolate touch. For I am a robust man. A grand representative of caliph and vizier. Our young new leader to both guide and extrapolate upon this celebration of joust n' resignation. Hopelessness adieu. My pulse had become weak. Too exhausted to cry, I sat at the bus stop with a pretend on my face. Mincing my words under the breathlessness of a warble distress.
 
 "Someone please love me."
 
@@ -102,23 +102,13 @@ I suppose I was always destined to become a kind of reimagined loneliness for a 
 
 ### Cynicism Monologue
 
-So here I am. It's post-cull and it's killing season. I have my rifle. My ammunition. It's all there. And as you can see, attached to my belt-buckle is the uh... first kill of the afternoon. Fresh as frush can be. As I'm sure you're aware, the fat-fuck couldn't waddle away fast enough from my bullet. So ere' he is, slaughtered as fuck. And here I am, prodding away at its dead carcass with the knuckle of my firearm, because that's just what people like us do. Fuck n' instigate. 
--->
+So here I am. It's post-cull and it's killing season. I have my rifle. My ammunition. It's all there. And as you can see, attached to my belt-buckle is the uh... first kill of the afternoon. Fresh as frush can be. As I'm sure you're aware, the fat-fuck couldn't waddle away fast enough from my bullet. So ere' he is, slaughtered as fuck. And here I am, prodding away at its dead carcass with the knuckle of my firearm, because that's just what people like us do. Fuck n' instigate.
 
-I lower my mind down to a steady two. Unadjusted in the incongruous grease, foolishly gushing from my brain. Feeling somewhat unprepared for a life without consequence, bathed in an intellectual tar which ran all the way down to the furrow of my shirt. I implore you to defile at this delicate buffet, so please dig in. Unpleasant as it may seem, I quite enjoy this kind of surreal suffocation. The kind which blinds you in its mania, welcoming 
-
-
- that blinds me as welcomingly as it graces. I would happily equate it to grafting impure enamel into the soft edges of my eye-lids, allowing me to process what little conscious thought I have towards cultivating my dull insensitivity to .
-
-The orange agent places a sticker on your shoulder, congratulating you for your success, cackling delirious at the charity you demanded in the cusp of your two hands.
-
-There are some with a fantasy to discuss a big-breasted child with a severe OCD for sucking cock.
-
-Surely, in raptum we trust, you silly woman.
+I lower my mind down to a four. Clobber upon the unadjusted leavening of an incongruous grease, foolishly gushing from my brain like a demonic squirm pigeon in free fall. Injured by the inconsequence of feeling; unprepared by the brute facet of life. You could wholeheartedly smell the intellectual tar which ran down my arms and into the furrow of my shirt. Imploring you to defile at this evening's buffet. So please dig in, unpleasant as it may seem. I suppose quite enjoy this kind of surreal suffocation. This kind of blinding mania, which welcomes only a dutch few. A notion I equate to grafting enamel onto the raw plasticity of one's own pupils; a process which allows me to evaporate what little conscious thought I have left towards cultivating my dull insensitivity to the trend. An orange agent places a twirly sticker on the jut of your shoulder. Congratulating you for your success. Cackling thunderous under the charity which you sought in its demand, precipitating the sadness from your reason. I move my hand away from my lips, and sigh.
 
 ### Reimagining Therapy
-
-A platter of unapologetic jelly splatters across your face, filling the hollow arteries of your veins with a sense of purpose not know since these words commanded God the pleasure of man. Fabled heroin masqueraded as a cheap 50 cent lice, tasty when chewed. And you know, since we're here to talk about life, let's discuss something more than the stars, the weather or the cookie-cutter commonality which extrudes itself from these dark coarse fabrics currently draping your electric gold. Your brain craves more than just crimson hue, and certainly can afford more than just the tart swine you reach and squander. It’s imperative that we take the excessive plastic off and exercise communication the old-fashioned way, with a gun and a cloud of nicotine vapour designed solely to penetrate your eyes and envelop curiosity in a way which floor would you into compliance.
+-->
+I wanted to shrink as the delusions continued to vitiate. Shunt. Wobble. Resume. A platter of unapologetic jelly splatters across your face, filling the hollow arteries of your veins with a sense of purpose. Commanding God thy bombastic pleasure of man. And you know, since we're here to talk about life, let's discuss something more than the stars, the weather or the cookie-cutter commonality which extrudes itself from these dark coarse fabrics currently draping your electric gold. Your brain craves more than just crimson hue, and certainly can afford more than just the tart swine you reach and squander. It’s imperative that we take the excessive plastic off and exercise communication the old-fashioned way, with a gun and a cloud of nicotine vapour designed solely to penetrate your eyes and envelop curiosity in a way which floor would you into compliance.
 
 Given our therapy session has officially begun, I think it’s worth mentioning a few things which I’m sure will help shape our timely discourse. Ultimately, I want you as the reader to take full-view of the Julius Reade TM experience as if you were the great man himself, cast dazzling in perfect tanned bronze upon a height of glory last emanated from the creation of the sun. Looking past the corruption and blatant animal abuse, I think there’s a lot to like about this guy. He lathers his tongue in a motion of self-loathing, and he encourages an agonising torment of indecision, abysmally profound in its making. The tribe gathers itself around the bounty, thrashing itself about in a sadistic two-time beat. The horrid grin slathers in a ritual known as the hoard, pertain to the long-lasting peace you've always desired. There's a knife on the table and Mr. Compadre sitting across from you has something to say. Let's see who can scream louder.
 
@@ -126,9 +116,7 @@ Certainly, I don't mean to offend you. I mean, don't like to split either, but w
 
 ### Describe Yourself
 
-So let me try and paint you a picture.
-
-You’re a crispy Ted. Your haircut is an impression-less damp scruff of pastiche antiquity. I’ve never quite seen a suit so brown nor flavourless, and yet you have the confidence to match the dull-drudgery holding you down by your neck. A personality devoid of pleasure. Hell, I doubt even your own irony understands itself. Even what little you bring to the table, but I tell ya what, it’s real cackle to try and observe you attempt to arrange those i’s and o’s into some kind of logical alphabet soup, glisten to an audience privy to the self-abuse you provide. But the good news is that you’re loved. Yes, Mummy loves you. She craves you. Here’s an expired Campbell’s chicken soup she prepared earlier, even opened the can n’ everything. This soup was crafted with real tears, real buttery tears, the kind of tears only found in upper-market department stores and gold-plated Jewish morgues. The kind of soup that burns your throat and slashes your budget into a miserable low-digit summary. Yet Mummy is in a lot of pain, because you made her pussy bleed and now there’s a frail old lady on the floor, mummified in the nostalgia you once thought intangible. There are scars as thick as knife wounds, carved throughout the maze of willingness you expend
+So let me try and paint you a picture. You’re a crispy Ted. Your haircut is an impression-less damp scruff of pastiche antiquity. I’ve never quite seen a suit so brown nor flavourless, and yet you have the confidence to match the dull-drudgery holding you down by your neck. A personality devoid of pleasure. Hell, I doubt even your own irony understands itself. Even what little you bring to the table, but I tell ya what, it’s real cackle to try and observe you attempt to arrange those i’s and o’s into some kind of logical alphabet soup, glisten to an audience privy to the self-abuse you provide. But the good news is that you’re loved. Yes, Mummy loves you. She craves you. Here’s an expired Campbell’s chicken soup she prepared earlier, even opened the can n’ everything. This soup was crafted with real tears, real buttery tears, the kind of tears only found in upper-market department stores and gold-plated Jewish morgues. The kind of soup that burns your throat and slashes your budget into a miserable low-digit summary. Yet Mummy is in a lot of pain, because you made her pussy bleed and now there’s a frail old lady on the floor, mummified in the nostalgia you once thought intangible. There are scars as thick as knife wounds, carved throughout the maze of willingness you expend
 
 A finer touch if ever you demanded one, although as we both know, these words are nothing more than a trap our senses are both trying to fight. “It’s okay to burn”, preaches the local glass nun, shouting vast through these pages without even a hint of respite, white powder thick to her heels in a perfect mirage of gloss and so sheen. Ah yes, and just when you thought life’s searing gaze couldn’t get any worse, a talking Harry presents itself in full-fashion and it just doesn’t know when to stop. Shut up Harry. You violent Harry. Fucking Harry. I was sure she was being tart.
 
@@ -143,3 +131,10 @@ And although my heart is currently beating under the false pretense of a meaning
 Melodramatic was the score.
 
 ## Scene 3 END
+
+
+There are some with a fantasy to discuss a big-breasted child with a severe OCD for sucking cock.
+
+Surely, in raptum we trust, you silly woman.
+
+Fabled heroin masqueraded as a cheap 50 cent lice, tasty when chewed.
