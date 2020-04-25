@@ -1,71 +1,81 @@
 # How to kill a Chinaman
 
-How to kill a Chinaman is my first novel. It is a collection of stories (based on themed chapters) about a particular character. Each story represents a different situation/phase in this person's life.
+How to kill a Chinaman is my first novel. It's a first-person narrative of an unidentified character with mental illness. 
 
-The novel doesn't have a narrative per-say. Rather, the character itself is the "narrative" in the sense that it is the subject being developed and understood by the reader.
-
-The intention of the novel is to take you through a provocative theme-park of erotic therapy and extreme trauma. To drop you violently against the floor, crushing your skull in a sudden knockout thud, drifting you beautifully into a state of perpetual coma.
-
-The writing is largely based on the first-person observations and interactions of an unnamed character. The only character which is named is his love interest, Milo.
-
-A delicious free-for-all against the senses.
+The intention of the novel is to take you through a provocative theme-park of cynicism, violence and mania. I suppose you could describe it as a delicious free-for-all against the senses. 
 
 ### Plot Overview
 
-### 01 - life.
+### Chapter 01 - life.
 
 - Character meets with an Editor to discuss his manuscript. The Editor is clueless.
 - They go out to lunch in Chinatown. Character describes Chinatown and Restaurant.
 - Character gets fed up with Editor. Leaves for work.
 
-### 02 - work.
+### Chapter 02 - work.
 
 - Character arrives at work. Bumps into his love interest, Milo.
 - Character describes Milo and workplace.
 - Milo proposes a date. Character accepts hesitantly.
 
-### 03 - family.
+### Chapter 03 - family.
 
 - Character heads to meet his mother for dinner.
 - Character describes the affluent Chinese suburb, his porn addiction and his mother.
 - Character realises she's toxic and decides to disown her. Character leaves abruptly.
 
-### 04 - apartment.
+### Chapter 04 - apartment.
 
 - Character wakes up the next day in a depression.
 - Character describes his feelings. Decides to get high.
 - Character bumps into his neighbour. They chat. They both are fond of each other.
 - Character leaves for his date with Milo.
 
-### 05 - date.
+### Chapter 05 - date.
 
 - Character arrives at Milo's house. Describes neighbourhood and Milo's house.
 - They leave for the city. They end up at a pub. They kiss.
 - Milo chokes. Breaks up with Character.
 
-### 06 - therapy.
+### Chapter 06 - therapy.
 
 - Character attends therapy the next day. Describes clinic lobby.
 - Character meets with therapist. They get nowhere.
 - Character provides an introspective monologue, mimicking his idea of therapy.
 
-### 07 - gun.
+### Chapter 07 - gun.
 
 - Character heads out to do his weekly grocery shop. Describes mall.
 - Notices a gun shop. Heads inside.
 - Ends up purchasing a revolver.
 
-### 08 - birthday.
+### Chapter 08 - birthday.
 
 - It's the character's birthday. He's lonely. Contemplates suicide.
 - Friend arrives. They chat and discuss life.
 - They head out to a mexican restaurant. 
 
-### 11 - bubble.
+### Chapter 09 - bubble.
 
-- The stock market crashes and the character loses their job. Hangs out with Milo and gets very drunk.
+- The character heads into work. Describes how the stock market has crashed.
+- The character delivers a monologue about work. The character meets with his boss. He's fired.
+- The character leaves for home. 
 
-###
+### Chapter 10 - death.
+
+- The character depressed to a point of delusion. He simply does not care.
+- He decides to take acid and meet up with a dodgy friend.
+- He completely freaks out.    
+
+### Chapter 11 - dream.
+
+- The character has a lucid dream which details how he wish life was.
+- It still ends in tragedgy?
+
+### Chapter 12 - recovery.
+
+- The character wakes up in a hospital ward. 
+- He returns home and sulks.
 
 
 ## Plot Ideas

@@ -10,6 +10,8 @@ day: "Wednesday."
 
 <!-- See if this chapter makes any sense. If not then don't worry about it. -->
 
+<!-- Should it maybe still end in tragedy? -->
+
 I could feel her holding me.
 
 

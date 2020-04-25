@@ -36,7 +36,7 @@ The only person who didn't quite seem so dejected was Milo.
 
 "Hello stranger. Looks like someone decided to rock up to work today. I didn't know you liked me that much."
 
-I wanted to cry.
+I wanted to cry. She acted normal, as if nothing had happened between us. 
 
 "Sure."
 
@@ -70,16 +70,25 @@ Men and children alike grab sections of her bruised body as it's dragged by in h
 
 "Shut up, pansy. Now listen here kids. I've got some big news for you all, and you ain't gonna like it. This place is fallin' to shit and we're going to have to make some changes around ere'." Although everyone was seemingly aware of the financial strife that the company was going through, it was still business as usual round these parts of town. Largely, people lounged around and dwadled on their screens, sending each other memes and . At one point I'm pretty sure I even saw someone enstated a cardboard cutout.
 
-
 ### Pulled into the bosses' office
 
 The room was so small you'd thought you were inside a miniature doll-sized simulation.
 
 
-
 ### Post Getting Fired.
 
-
-
-
 ## Scene 2 END
+
+####
+
+## Scene 3 START
+
+### Leaving the office
+
+<!-- Describe leaving the office and witnessing the carnage -->
+
+<!-- Describe the train station and the train ride home -->
+
+<!-- Maybe he watches porn when he gets home -->
+
+## Scene 3 END
