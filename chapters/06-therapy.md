@@ -101,13 +101,14 @@ I suppose I was always destined to become a kind of reimagined loneliness for a 
 ## Scene 3 START - self-therapy.
 
 ### Cynicism Monologue
+
+So here I am. It's post-cull and it's killing season. I have my rifle. My ammunition. It's all there. And as you can see, attached to my belt-buckle is the uh... first kill of the afternoon. Fresh as frush can be. As I'm sure you're aware, the fat-fuck couldn't waddle away fast enough from my bullet. So ere' he is, slaughtered as fuck. And here I am, prodding away at its dead carcass with the knuckle of my firearm, because that's just what people like us do. Fuck n' instigate. 
 -->
 
-So here I am. It's post-cull and it's killing season. I have my rifle. My ammunition. It's all there. And as you can see, attached to my belt-buckle is the uh... first kill of the afternoon. Fresh as frush can be. As I'm sure you're aware, the fat-fuck couldn't waddle away fast enough from my bullet. So ere' he is, slaughtered as fuck. And here I am, prodding away at its dead carcass with the end of my firearm, because that's just what people like us do. Fuck n' instigate. 
+I lower my mind down to a steady two. Unadjusted in the incongruous grease, foolishly gushing from my brain. Feeling somewhat unprepared for a life without consequence, bathed in an intellectual tar which ran all the way down to the furrow of my shirt. I implore you to defile at this delicate buffet, so please dig in. Unpleasant as it may seem, I quite enjoy this kind of surreal suffocation. The kind which blinds you in its mania, welcoming 
 
-I lower my mind down to a two. 
 
-I feel unadjusted. I feel unprepared for a life without meaning, though perhaps I'm simply unable to produce meaning without spreading my intellectual tar as a gift to the inconsequence slicing me open. It's a delicate buffet, so please dig in. An unpleasant feeling, a kind of surreal suffocation, that blinds me as welcomingly as it graces. I would happily equate it to grafting impure enamel into the soft edges of my eye-lids, allowing me to process what little conscious thought I have towards cultivating my dull insensitivity to .
+ that blinds me as welcomingly as it graces. I would happily equate it to grafting impure enamel into the soft edges of my eye-lids, allowing me to process what little conscious thought I have towards cultivating my dull insensitivity to .
 
 The orange agent places a sticker on your shoulder, congratulating you for your success, cackling delirious at the charity you demanded in the cusp of your two hands.
 

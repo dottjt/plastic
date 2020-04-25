@@ -173,3 +173,7 @@ Especially when applied to the depths of your heart.
  And yet though I could see my potential from afar, I was far more interested 
 
  life often felt more like a chore to be flung around, rather than a purpose to be execised and held.
+ 
+, though perhaps I'm simply unable to produce meaning without spreading my 
+
+ as a gift to the inconsequence slicing me open. 
