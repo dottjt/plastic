@@ -165,3 +165,11 @@ Before she could fit in a word, I decided to take my plastic cup to the watercoo
 Goodbye Brown Cardigan.
 
  23rd West Avenue
+
+Too manic to pretend. I wish I knew myself better beyond the plastic shadow which mimiced my words and
+
+Especially when applied to the depths of your heart.
+
+ And yet though I could see my potential from afar, I was far more interested 
+
+ life often felt more like a chore to be flung around, rather than a purpose to be execised and held.

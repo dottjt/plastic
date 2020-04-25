@@ -87,13 +87,12 @@ I wasn't quite sure what to think. All I knew was that I was losing this battle,
 "I don't think you trust me to help you understand your own problems," she iterated for a second time. It's true. I didn't trust her. I didn't trust her to understand me. I didn't trust to understand the loneliness I felt each night as I stepped out of the shower, covered in the filth of my own grief. Sorry I was even alive at all. Although what difference did it make? I barely even trusted myself. I suppose it could have been worse. 
 
 ### Leaving Practice
--->
 
-I felt weary as I left the lobby of the therapist's den. Supple to the elastic gestures of my tired mind. Blinded by a combination of fog and sun, refracting from a street sign from down the road. Caught in the shimmer of a Bedouin breeze, leaving me cold and unsure of how to best proceed with life. Consommé like a thick gravy of tartare mutton, maroon across the eyelids upon a tribal face paint of pantomime idealisation. As the haught clamateur heaved from my lungs, resulting 
+I felt weary as I exited the lobby of the therapist's den. Supple to the elastic gestures of these bustling city streets. Blinded by a combination of fog n' footstep; caste to the shimmer of a Bedouin breeze. Melting across my eyelids with the theatrical zeal of a tribal face lacquer. Pantomime in its warbanding aggression. Ideal in its animation, leaving me cold and unsure. Just as I'd felt walking into the clinic only moments ago. Consommé like a thick gravy of mutton tartare, maroon upon a refulgent plate of vibrant pintar sick. As the haught clamateur, that beamy rose of trix valorant, heaved from my lungs. Sully in the candent taint of these wretched hands, pulling these strings with the caress of a demented kindness. Carelessly tilting me towards its vice n' candour. The feeling was good and the disrepair expansive.
 
- in a lapse of hard judgement, and onto a plate of sick. Designed to arouse the elderly into a covert sipple of dread. 
+I suppose I was always destined to become a kind of reimagined loneliness for a future generation to aspire to. Delicate in its cheerful carousel of tinted rosewood, soft against the abrasive melancholy of its desolate touch. For I am a robust man. A grand representative of caliph and vizier. Our young new leader to both guide and extrapolate upon this celebration of joust n' resignation. Hopelessness adieu. My pulse had become weak. Too exhausted to cry, I sat at the bus stop with a pretend on my face. Mincing my words under the breathlessness of a warble distress. 
 
-. Sully in the taint of these wretched hands, pulling my strings and caressing me with a demented kindness. Carelessly tilting me towards its touch of vice and candour. It was a loneliness reimagined for a smarter generation, delicate in its  in it's tinted  of cheerful carousel. Gathered in a grand court of caliph and vizier. Crowning hopelessness as its young new leader to guide and extrapolate, in this celebration of formal resignation. And yet life more often than not, felt more like a chore to be flung around, rather than a purpose to be held. Too exhausted to cry. Too manic to pretend. I wish I knew myself better beyond the plastic shadow which mimiced my words and
+"Someone please love me."
 
 ## Scene 2 END
 
@@ -102,8 +101,11 @@ I felt weary as I left the lobby of the therapist's den. Supple to the elastic g
 ## Scene 3 START - self-therapy.
 
 ### Cynicism Monologue
+-->
 
-So here I am. It's post-cull and it's killing season. I have my rifle, my ammunition and as you can see, attached to my belt-buckle is the first kill for the afternoon. Unfortunately the fat-fuck couldn't waddle away fast enough to mummy's comfort, so I killed the entire family and here I am prodding away at a dead carcass with my great big fucking sword. Fuck you rabbit. Fuck you indeed.
+So here I am. It's post-cull and it's killing season. I have my rifle. My ammunition. It's all there. And as you can see, attached to my belt-buckle is the uh... first kill of the afternoon. Fresh as frush can be. As I'm sure you're aware, the fat-fuck couldn't waddle away fast enough from my bullet. So ere' he is, slaughtered as fuck. And here I am, prodding away at its dead carcass with the end of my firearm, because that's just what people like us do. Fuck n' instigate. 
+
+I lower my mind down to a two. 
 
 I feel unadjusted. I feel unprepared for a life without meaning, though perhaps I'm simply unable to produce meaning without spreading my intellectual tar as a gift to the inconsequence slicing me open. It's a delicate buffet, so please dig in. An unpleasant feeling, a kind of surreal suffocation, that blinds me as welcomingly as it graces. I would happily equate it to grafting impure enamel into the soft edges of my eye-lids, allowing me to process what little conscious thought I have towards cultivating my dull insensitivity to .
 
