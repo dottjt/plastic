@@ -137,16 +137,16 @@ parenthesised Cobol
 Granular in its irrelevance. Tectonic in its outcome.
 
 
-as you lay there to be throat-fucked by Aunty Cowley's fist of Bulgarian pleasure. 
+as you lay there to be throat-fucked by Aunty Cowley's fist of Bulgarian pleasure.
 
 
 Granular in its irrelevance. Tectonic in its outcome.
 
 
 
-which served solely as a dilapidated corkboard of 
+which served solely as a dilapidated corkboard of
 
-Truth is I'd always wanted to fuck my therapist. Actually it was fair to say that I was keen to fuck anything. 
+Truth is I'd always wanted to fuck my therapist. Actually it was fair to say that I was keen to fuck anything.
 
 corked in several layers of cat hair n' coffee which didn't seem to bother her one bit.
 
@@ -170,10 +170,19 @@ Too manic to pretend. I wish I knew myself better beyond the plastic shadow whic
 
 Especially when applied to the depths of your heart.
 
- And yet though I could see my potential from afar, I was far more interested 
+ And yet though I could see my potential from afar, I was far more interested
 
  life often felt more like a chore to be flung around, rather than a purpose to be execised and held.
- 
-, though perhaps I'm simply unable to produce meaning without spreading my 
 
- as a gift to the inconsequence slicing me open. 
+, though perhaps I'm simply unable to produce meaning without spreading my
+
+ as a gift to the inconsequence slicing me open.
+
+ I wanted to shrink as the delusions continued to interfere. Shunt. Wobble. Digress. A platter of unapologetic jelly splatters, filling the hollow arteries of your veins with a mucilaginous grin. Commanding God thy bombastic pleasure of man.
+
+ Fabled heroin masqueraded as a cheap 50 cent lice, tasty when chewed.
+
+ lathers his tongue in a motion of self-loathing, and he encourages an agonising torment of indecision, abysmally profound in its making.
+
+
+ Perhaps your brain craves more than just a crimson hue, much to its afford of tart n' squander.
