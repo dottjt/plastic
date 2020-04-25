@@ -186,3 +186,6 @@ Especially when applied to the depths of your heart.
 
 
  Perhaps your brain craves more than just a crimson hue, much to its afford of tart n' squander.
+
+ Of course, following tonight's preceedings its
+
