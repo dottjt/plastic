@@ -159,3 +159,9 @@ that special well-read guy had rode into her life
 "Maybe you don't quite know what you want because your idea of what you think you want, success, or at least your idea of success as a list of things to achieve, differs from how you want to feel. Which is happy, which arguably is completely independent of success itself" she said.
 
 in this battle I was slowly losing, but at the very least I knew that my interaction with the therapist didn't make me happy.
+
+Before she could fit in a word, I decided to take my plastic cup to the watercooler at the back of the room for a refill. Surely even she could tell I was getting dehydrated. Taking my time not to further defame my already ruined reputation as a potential sex offender. Yummy yummy. Let this whispy stranger take you away, little child, to a place your parents couldn't possibly imagine. Decipher that one, doc.
+
+Goodbye Brown Cardigan.
+
+ 23rd West Avenue

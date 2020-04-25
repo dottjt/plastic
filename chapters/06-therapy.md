@@ -73,22 +73,27 @@ Who knows. Maybe I did. Maybe I didn't. Perhaps I wasn't ready to admit that I w
 "There's no reason why you can't be both happy and successful independently. It's just perhaps being happy might help you to become successful." she said. Certainly, it was hard to say she was wrong. 
 
 ### Discuss Happiness
--->
-I wasn't quite sure what to think. All I knew was that I was losing this battle, worst of all to my own therapist. Whom I knew for certain did not make me happy. Although perhaps nothing would. I suppose happiness had never really been one of my great aspirations in life. In fact, it wasn't a subject I really thought about at all. It was more a quirky nice-to-have, like a side of fries with a dab of Tabasco sauce. A never-ceasing sometimes pain, sometimes pleasure, which would sporadically appear at points throughout the day to remind you of your own mortality. Maybe what I truly wanted was to prove myself right against this bitch. Maybe that's what would make me happy. I decided to make myself happy.
 
-"Aren't you going to ask me where Daddy touched me," I said, clearly getting on her nerves. Before she could fit in a word, I decided to take my plastic cup to the watercooler at the back of the room for a refill. Surely even she could tell I was getting dehydrated. Taking my time not to further defame my already ruined reputation as a potential sex offender. Yummy yummy. Let this whispy stranger take you away, little child, to a place your parents couldn't possibly imagine. Decipher that one, doc.
+I wasn't quite sure what to think. All I knew was that I was losing this battle, worst of all to my own therapist. Whom I knew for certain did not make me happy. Although perhaps nothing would. I suppose happiness had never really been one of my great aspirations in life. In fact, it was a subject I hadn't really thought about at all. Happiness to me was more of a quirky nice-to-have, like a side of fries with a dab of Tabasco horse. A never-ceasing, sometimes pain, sometimes pleasure. Which would sporadically appear throughout one's life just to remind you of your own mortality. Perhaps more than happiness, what I truly wanted was to prove myself. To prove myself capable of wit and passion. Already, I felt happier. 
+
+"Aren't you going to ask me where Daddy touched me," I murmured.
 
 ### Therapist Cracks
 
-"Maybe we should end today's session here." Yes. Perhaps we should. Goodbye Brown Cardigan. You soulless bag of apples.
+"Maybe we should end today's session here." Yes. Perhaps we should. You soulless bag of refined cheddar.
 
-"And maybe I'm also not the right person to help you with your problems. You seem resistant to this idea that I can help you." Well, fuck. There ya have it folks. Discard the reminder. Throw out the bath water. There's fun to be had for all.
+"I would also consider finding another therapist. You seem consistently resistant to this idea that I can help you." My heart sank. Well, fuck. There ya have it folks. Discard the reminder. Throw out the bath water. I was no good for brown cardigan n' co. 
 
-"I don't think you trust me to help you understand your own problems." Correct. I didn't trust her. I didn't trust her to understand my pain. I didn't trust to truly understand what it was like to even fathom the loneliness that held in highest regard. Although honestly, what difference did it make. I barely even trusted myself.
+"I don't think you trust me to help you understand your own problems," she iterated for a second time. It's true. I didn't trust her. I didn't trust her to understand me. I didn't trust to understand the loneliness I felt each night as I stepped out of the shower, covered in the filth of my own grief. Sorry I was even alive at all. Although what difference did it make? I barely even trusted myself. I suppose it could have been worse. 
 
 ### Leaving Practice
+-->
 
-I felt weary as I left the therapist's office. Blinded by a combination of fog and sun, as the shimmer of the dusk breeze light marooned across my eyelids in a tribal lull of pantomime idealisation. Ultimately feeling unsure about this whole "life" thing, just as I'd felt an hour earlier. As the non-clamateur puffed out of my lungs in a lapse of hard judgement, and onto a plate of sick. Designed to arouse the elderly into a covert sipple of dread. Consume like a thick gravy upon a tartare of pulverised mutton. Sully in the taint of these wretched hands, pulling my strings and caressing me with a demented kindness. Carelessly tilting me towards its touch of vice and candour. It was a loneliness reimagined for a smarter generation, delicate in its  in it's tinted  of cheerful carousel. Gathered in a grand court of caliph and vizier. Crowning hopelessness as its young new leader to guide and extrapolate, in this celebration of formal resignation. And yet life more often than not, felt more like a chore to be flung around, rather than a purpose to be held. Too exhausted to cry. Too manic to pretend. I wish I knew myself better beyond the plastic shadow which mimiced my words and
+I felt weary as I left the lobby of the therapist's den. Supple to the elastic gestures of my tired mind. Blinded by a combination of fog and sun, refracting from a street sign from down the road. Caught in the shimmer of a Bedouin breeze, leaving me cold and unsure of how to best proceed with life. Consommé like a thick gravy of tartare mutton, maroon across the eyelids upon a tribal face paint of pantomime idealisation. As the haught clamateur heaved from my lungs, resulting 
+
+ in a lapse of hard judgement, and onto a plate of sick. Designed to arouse the elderly into a covert sipple of dread. 
+
+. Sully in the taint of these wretched hands, pulling my strings and caressing me with a demented kindness. Carelessly tilting me towards its touch of vice and candour. It was a loneliness reimagined for a smarter generation, delicate in its  in it's tinted  of cheerful carousel. Gathered in a grand court of caliph and vizier. Crowning hopelessness as its young new leader to guide and extrapolate, in this celebration of formal resignation. And yet life more often than not, felt more like a chore to be flung around, rather than a purpose to be held. Too exhausted to cry. Too manic to pretend. I wish I knew myself better beyond the plastic shadow which mimiced my words and
 
 ## Scene 2 END
 
