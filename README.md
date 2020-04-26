@@ -6,38 +6,38 @@ The intention of the novel is to take you through a provocative theme-park of cy
 
 ### Plot Overview
 
-### Chapter 01 - life.
+### Chapter 01 - life. (DONE)
 
 - Character meets with The Editor to discuss his manuscript. The Editor is clueless.
 - They go out to lunch in Chinatown. Character describes Chinatown and Restaurant.
 - Character gets fed up with Editor. Leaves for work.
 
-### Chapter 02 - work.
+### Chapter 02 - work. (DONE)
 
 - Character arrives at work. Bumps into his love interest, Milo.
 - Character describes Milo and workplace.
 - Milo proposes a date. Character accepts hesitantly.
 
-### Chapter 03 - family.
+### Chapter 03 - family. (DONE)
 
 - Character heads to meet his mother for dinner.
 - Character describes the affluent Chinese suburb, his porn addiction and his mother.
 - Character realises she's toxic and decides to disown her. Character leaves abruptly.
 
-### Chapter 04 - apartment.
+### Chapter 04 - apartment. (DONE)
 
 - Character wakes up the next day in a depression.
 - Character describes his feelings. Decides to get high.
 - Character bumps into his neighbour. They chat. They both are fond of each other.
 - Character leaves for his date with Milo.
 
-### Chapter 05 - date.
+### Chapter 05 - date. (DONE)
 
 - Character arrives at Milo's house. Describes neighbourhood and Milo's house.
 - They leave for the city. They end up at a pub. They kiss.
 - Milo chokes. Breaks up with Character.
 
-### Chapter 06 - therapy.
+### Chapter 06 - therapy. (DONE)
 
 - Character attends therapy the next day. Describes clinic lobby.
 - Character meets with therapist. They get nowhere.
