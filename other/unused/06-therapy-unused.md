@@ -197,3 +197,5 @@ Oh, and gold-plated Jewish morgues.
 . This kind of blinding mania, which welcomes only a dutch few. 
 
 An orange agent places a twirly sticker on the jut of your shoulder. Congratulating you for your success. Cackling thunderous under the charity which you sought in its demand, precipitating the sadness from your reason.
+
+Surely, in raptum we trust. You silly woman.
