@@ -38,3 +38,7 @@ It's shangle of monetary rape.
   that I knew the name of the gun
 
 Their joy radiated from their hearts, sending out signals to the cosmos.
+
+and other lactose-intolerant odities
+
+ A plastic edge with a plantain for violence. I clawed my way through the interior of the store, 
