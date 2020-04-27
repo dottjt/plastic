@@ -182,7 +182,7 @@ Especially when applied to the depths of your heart.
 
  Fabled heroin masqueraded as a cheap 50 cent lice, tasty when chewed.
 
- lathers his tongue in a motion of self-loathing, and he encourages an agonising torment of indecision, abysmally profound in its making.
+ lathers his tongue in a motion of self-loathing, and he encourages an agonising torment of indecision, 
 
 
  Perhaps your brain craves more than just a crimson hue, much to its afford of tart n' squander.
