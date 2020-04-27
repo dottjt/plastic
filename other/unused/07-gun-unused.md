@@ -36,3 +36,5 @@ It's shangle of monetary rape.
  penchant for khaki cheer and universal healthcare.
 
   that I knew the name of the gun
+
+Their joy radiated from their hearts, sending out signals to the cosmos.
