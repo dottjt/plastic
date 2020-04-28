@@ -41,4 +41,9 @@ Their joy radiated from their hearts, sending out signals to the cosmos.
 
 and other lactose-intolerant odities
 
- A plastic edge with a plantain for violence. I clawed my way through the interior of the store, 
+ A plastic edge with a plantain for violence. I clawed my way through the interior of the store,
+
+
+Yes, much did my stomach churn at the thought.
+
+intuition for 2nd place
