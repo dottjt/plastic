@@ -47,3 +47,7 @@ and other lactose-intolerant odities
 Yes, much did my stomach churn at the thought.
 
 intuition for 2nd place
+
+My curiosity calls. 
+
+, to be permanently transfixed onto a tombstone made from soot n' bone
