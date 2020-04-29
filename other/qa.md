@@ -110,3 +110,6 @@ Maybe the next book could be about my friendship with Amelia. In a way, there ar
 
 You know actually, if I had to write another book it would make sense to write it from Milo's perspective. Because when you think about it, I only really have one story to tell. One character. But to develop it from a female's perspective (well, my perspective of a female) then that would work quite well, I think.
 
+
+
+On the one hand, this book is perfect for those with a vivid imagination, because it really does take you to a very broken place. By the same token, the book is also awful in that 

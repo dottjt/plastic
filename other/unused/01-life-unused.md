@@ -90,7 +90,7 @@ muttered the editor mid prawn-cracker, as he threw his menu onto the table besid
 
 "That sounds a lot like fantasy to me. You know I don't do fantasy, right? I'm personally all about the human story. Can you come back to me with that?"
 
-If only I had a gun and an incessant desire to kill Italians, then we could end this scene in a wok full of limbs and cheap hair gel. At this point I was equally as hungry as I was keen to have him tied to a bench and water tortured, although realising my cake had already been spat on, trampled and fucked on, it was clear I'd already delegated my mind to the misery module located conveniently via in a PCI slot in my skull. A dozy appetite suppressant, now programmed to endure whatever existing attrition was being held against my soul.
+If only I had a gun and an incessant desire to kill Italians, then we could end this scene in a wok full of limbs and cheap hair gel. At this point I was equally as hungry as I was keen to have him tied to a bench and water tortured, although realising my cake had already been spat on, trampled and fucked, it was clear I'd already delegated my mind to the misery module located conveniently via in a PCI slot in my skull. A dozy appetite suppressant, now programmed to endure whatever existing attrition was being held against my soul.
 
 Surely it was abnormal to confuse verbal harassment with the extravagant excellence of five-star customer service, as an ode to the millions of telemarkers makin' dime sellin' faulty car insurance to reckless youth with a mandatory requirement for debt spending.
 

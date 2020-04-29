@@ -53,3 +53,14 @@ My curiosity calls.
 , to be permanently transfixed onto a tombstone made from soot n' bone
 
 Do I even drink coffee? Well, I do now. Rubbish.
+
+Possibly funding her online boyfriend, a lonely sherpa in the alps whom she pays by the hour. 
+
+
+The croon was neigh. And
+
+
+
+ of coffee in the back of my tongue. That fucker was a cancer waitin' to happen, whether I liked it or not
+
+  if I'd continued the spontaneity. I mean, you could really taste the wet in this cup.
