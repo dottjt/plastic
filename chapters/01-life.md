@@ -86,7 +86,7 @@ The booth itself comfortably sat three, a necessary addition to accommodate for 
 
 "Although I must say, most of it really made no sense to me at all. Putty intentions? What the fuck even is that? Is it some kind of weird sexual thing you people are into, because you know I don't do that freaky shit."
 
-"I mean, I gue...", the bastard cut me off. I wasn't sure how much more of his insufferable horseshit I could continue to endure, but my heart was wearing thin in this comical foundry of fist-meets-tongue.
+"I mean, I gue...", the bastard cut me off. I wasn't sure how much more of his insufferable horseshit I could continue to endure, but my heart was wearing thin in this ludicrous takeover of fist-meets-tongue.
 
 ### The editor orders Chinese food
 
