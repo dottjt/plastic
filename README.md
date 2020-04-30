@@ -1,8 +1,8 @@
 # How to kill a Chinaman
 
-How to kill a Chinaman is my first novel. It's a first-person narrative of an unidentified character with severe mental health issues. 
+How to kill a Chinaman is my first novel. It's a first-person narrative of an unidentified character with severe mental health issues.
 
-The intention of the novel is to take you through a provocative theme-park of cynicism, violence and mania. I suppose you could describe it as a delicious free-for-all against the senses. My writing style aims to be highly textual. I want you to really taste what this character is going through. Initially it was inspired by William S. Burroughs' novel, Naked Lunch. 
+The intention of the novel is to take you through a provocative theme-park of cynicism, violence and mania. I suppose you could describe it as a delicious free-for-all against the senses. My writing style aims to be highly textual. I want you to really taste what this character is going through. Initially it was inspired by William S. Burroughs' novel, Naked Lunch.
 
 ### Plot Overview
 
@@ -53,19 +53,19 @@ The intention of the novel is to take you through a provocative theme-park of cy
 
 - It's the character's birthday. He's lonely. Contemplates suicide.
 - Friend arrives. They chat and discuss life.
-- They head out to a mexican restaurant. 
+- They head out to a mexican restaurant.
 
 ### Chapter 09 - bubble.
 
 - The character heads into work. Describes how the stock market has crashed.
 - The character delivers a monologue about work. The character meets with his boss. He's fired.
-- The character leaves for home. 
+- The character leaves for home.
 
 ### Chapter 10 - death.
 
 - The character depressed to a point of delusion. He simply does not care.
 - He decides to take acid and meet up with a dodgy friend.
-- He completely freaks out.    
+- He completely freaks out.
 
 ### Chapter 11 - dream.
 
@@ -74,7 +74,7 @@ The intention of the novel is to take you through a provocative theme-park of cy
 
 ### Chapter 12 - recovery.
 
-- The character wakes up in a hospital ward. 
+- The character wakes up in a hospital ward.
 - He returns home and sulks.
 
 
@@ -123,3 +123,5 @@ Please check the `other` folder for relevant documentation on the novel.
 http://www.hemingwayapp.com/
 https://languagetoolplus.com/
 https://languagetool.org/
+
+https://diessi.ca/blog/writing-mode-in-vs-code/
