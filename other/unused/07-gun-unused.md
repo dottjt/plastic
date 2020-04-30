@@ -66,3 +66,7 @@ The croon was neigh. And
   if I'd continued the spontaneity. I mean, you could really taste the wet in this cup.
 
   humility / indifference / cluelessness / perversity / tawdriness
+
+cause even the duct tape don't fucken' care.
+
+illecebrous
