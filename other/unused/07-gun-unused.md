@@ -69,4 +69,6 @@ The croon was neigh. And
 
 cause even the duct tape don't fucken' care.
 
-illecebrous
+
+
+desperation even a palette of canned cellulose couldn't replicate.
