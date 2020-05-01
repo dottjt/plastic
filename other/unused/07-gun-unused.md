@@ -72,3 +72,5 @@ cause even the duct tape don't fucken' care.
 
 
 desperation even a palette of canned cellulose couldn't replicate.
+
+On the lookout for dye-stained boys, t
