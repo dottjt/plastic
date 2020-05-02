@@ -74,3 +74,8 @@ cause even the duct tape don't fucken' care.
 desperation even a palette of canned cellulose couldn't replicate.
 
 On the lookout for dye-stained boys, t
+
+ As she wrote about our exchange on her clandestine blog, as she gave me head in the disabled toilets of a suburban mall. I suppose I simply didn't have the energy these days. No one wants to be raped by a flaccid cock. Not even the Jews.
+
+
+quibble arms
