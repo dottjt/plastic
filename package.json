@@ -1,7 +1,7 @@
 {
   "name": "plastic",
   "version": "1.0.0",
-  "description": "How to kill a Chinaman is my first novel. It is a collection of stories (based on themed chapters) about a particular character. Each story represents a different situation/phase in this person's life.",
+  "description": "How to Kill a Chinaman is my first novel.",
   "main": "index.js",
   "scripts": {
     "generate-chapters-without-annotations": "node ./util/generateChaptersWithoutAnnotation.js",

@@ -1,6 +1,6 @@
-# How to kill a Chinaman
+# How to Kill a Chinaman
 
-How to kill a Chinaman is my first novel. 
+How to Kill a Chinaman is my first novel. 
 
 It's a first-person narrative of an unidentified character with severe mental health issues. The intention of the novel is to take you through a provocative theme-park of cynicism, violence and mania. I suppose you could describe it as a delicious free-for-all against the senses. 
 
