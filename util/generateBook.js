@@ -1,19 +1,18 @@
 const fse = require('fs-extra');
 
 const {
-  generatePage,
+  generateBookString,
   // stringFromArray,
 } = require('./util');
 
-const generateBook = async () => {
+const generateBookFile = async () => {
 
   const [
     chapters,
   ] = await Promise.all([
     // CHAPTERS
-    generatePage('./chapters'),
+    generateBookString('./chapters'),
   ]);
-
 
   // const website_content_array = [
   //   // CHAPTERS
@@ -24,4 +23,4 @@ const generateBook = async () => {
   fse.outputFileSync(`ebook/book.md`, chapters.string);
 };
 
-generateBook();
+generateBookFile();

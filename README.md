@@ -2,9 +2,19 @@
 
 How to kill a Chinaman is my first novel. It's a first-person narrative of an unidentified character with severe mental health issues.
 
-The intention of the novel is to take you through a provocative theme-park of cynicism, violence and mania. I suppose you could describe it as a delicious free-for-all against the senses. My writing style aims to be highly textual. I want you to really taste what this character is going through. Initially it was inspired by William S. Burroughs' novel, Naked Lunch.
+The intention of the novel is to take you through a provocative theme-park of cynicism, violence and mania. I suppose you could describe it as a delicious free-for-all against the senses. Initially it was inspired by William S. Burroughs' novel, Naked Lunch.
 
-### Plot Overview
+## Repository
+
+- `chapters` - All the novel's chapters.
+- `chapters-without-annotations` - All the novel's chapters without headings or annotations.
+- `ebook` - Relevant eBook generation files, including generation directory.
+- `medium-export` - Export of all my Medium posts. Initially, for inspiration.
+- `other` - Unused chapter excerpts + a heap of notes on the novel.    
+- `scripts` - Bash scripts to push to Github + create word count.
+- `util` - Node.js scripts to compile the book and relevant files. 
+
+## Plot Overview
 
 ### Chapter 01 - life. (DONE)
 
@@ -118,10 +128,9 @@ The intention of the novel is to take you through a provocative theme-park of cy
 
 Please check the `other` folder for relevant documentation on the novel.
 
-# Potential tools to use
+## Potentially Useful Links
 
-http://www.hemingwayapp.com/
-https://languagetoolplus.com/
-https://languagetool.org/
-
-https://diessi.ca/blog/writing-mode-in-vs-code/
+- http://www.hemingwayapp.com/
+- https://languagetoolplus.com/
+- https://languagetool.org/
+- https://diessi.ca/blog/writing-mode-in-vs-code/
