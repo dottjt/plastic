@@ -76,19 +76,15 @@ Glancing my way through the overpriced stalls of the upper stratosphere, my eyes
 ### Notices Gun Store
 
 Soon the girl loses my attention. Perhaps due to the wank I'd had approximately one hour earlier in the illicit bathroom stall of the contaminated suburban mall, as I tactically pressed my penis against the screen of my phone. A picture of my ex. Apathetic in the guilt which dripped from my pores in an unconcerning slop of muffled impotence. Instead, a Remington Model 870 pump-action shotgun catches my eye in the window of the artillery emporium. Certainly, recognising the model of which made me feel snappy n' smart as a consumer, even though the model was clearly printed on the window in a decorative chalk marker. Prior to which, I had no clue what I was actually looking at. My gaze evolves.
--->
 
 ### Describe Feeling For Gun
 
-It seemed like the kind of gun that wanted to be held. Endured. Pointed at the forehead of another living being, in gratitude of my eroded patience. Troubled by the intense leverage being held in my hands, as I delivered the sound of a buckshot into the concern of its worried eyes. A feeling only permitted during the sustained bloodshed of an international war, or even the occassional honky of a Federal shootout. Of course, truth was that I actually knew nothing about guns. I mean, what purpose could one have with a firearm? An ordinance of solipsistic delight, potentially serving as a rite of passage for the consent of my insecurity. Governance to my objective as a male. Pleading to resurrect a feeling inside me which I never even knew existed. Irreversible in its punch. A symbol of status. The ultimate dare against my largely unarmed forebear. I was intrigued. Surrounded by memories of an ol' Western set in the middle of the Great Nevada Desert. Scout upon the rolling hills of Route 405, fit for a stranger with a glock n' a gall for danger. An attractive thematic construct for the doubt to tremble; the perfect companion to my submissive wean. I wanted a gun, and I didn't know why. 
+It seemed like the kind of gun that wanted to be held. Endured. Pointed at the forehead of another living being, in gratitude of my eroded patience. Troubled by the intense leverage being held in my hands, as I delivered the sound of a buckshot into the concern of its worried eyes. A feeling only permitted during the sustained bloodshed of an international war, or even the occassional honky of a Federal shootout. Of course, truth was that I actually knew nothing about guns. I mean, what purpose could one have with a firearm? An ordinance of solipsistic delight, potentially serving as a rite of passage for the consent of my insecurity. Governance to my objective as a male. Pleading to resurrect a feeling inside me which I never even knew existed. Irreversible in its punch. A symbol of status. The ultimate dare against my largely unarmed forebear. I was intrigued. Surrounded by memories of an ol' Western in the middle of the Nevada Desert. Scout upon the rolling hills of Route 405, fit for a stranger with a glock n' a gall for danger. An attractive thematic construct for the doubt to tremble; the perfect companion to my submissive wean. I was sure of it. I wanted a gun, and I didn't know why. 
+-->
 
+### Enters Gun Shop
 
-
- I made my way to the store entrance, hinge upon the plast of mandate sexualisation coursing through my imagination.
-
-### Inside Gun Shop
-
-The chime of the shopkeeper's bell rattles in my ears, persisting for hours upon the metallic refraction of its passionless retreat. Boring its detriment into my skull. Reminding me that all my meaning and friendship in life had truly died.
+The chime of the shopkeeper's bell rattles in my ears, persisting for hours upon the metallic refraction of its passionless retreat. Teasing me with death. 
 
 Standing behind the counter was one of those brattish military types. Hair like a gay leopard, prowling over the shining attention-seeking objects obscuring her view. Her preference for men was obvious. Old n' rusty. Strewn in swathed snus. A paid tit-job n' a star-bangled tattoo accross her shaved asshole, as an oldie from down the road gobs into her douche and rides her into the trailer. Shoving his tongue deep n' wide as the thought of glory captures her mind. The natural talents of her mind. I imagine she was probably raped by a vertical segment of wildlife at a very young age. An ideological anarchist for the fans. An ideal career path for a former Hooter's model, knowledgable only in the arts of drugs n' marital assault.
 

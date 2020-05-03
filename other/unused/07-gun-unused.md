@@ -84,3 +84,5 @@ cautious in the intense amount of leverage abiding in your fortitude
 
 
 the blemished
+
+I made my way to the store entrance, hinge upon the mandate plast of shrewd sexualisation, coursing through my spirit. I enter. 

@@ -136,3 +136,5 @@ Please check the `other` folder for relevant documentation on the novel.
 - https://languagetoolplus.com/
 - https://languagetool.org/
 - https://diessi.ca/blog/writing-mode-in-vs-code/
+
+- https://jerichowriters.com/manuscript-presentation/ (I didn't mind the manuscript book styling)
