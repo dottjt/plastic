@@ -1,10 +1,12 @@
 # How to kill a Chinaman
 
-How to kill a Chinaman is my first novel. It's a first-person narrative of an unidentified character with severe mental health issues.
+How to kill a Chinaman is my first novel. 
 
-The intention of the novel is to take you through a provocative theme-park of cynicism, violence and mania. I suppose you could describe it as a delicious free-for-all against the senses. Initially it was inspired by William S. Burroughs' novel, Naked Lunch.
+It's a first-person narrative of an unidentified character with severe mental health issues. The intention of the novel is to take you through a provocative theme-park of cynicism, violence and mania. I suppose you could describe it as a delicious free-for-all against the senses. 
 
-## Repository
+Initially it was inspired by William S. Burroughs' novel, Naked Lunch.
+
+## Repository Overview
 
 - `chapters` - All the novel's chapters.
 - `chapters-without-annotations` - All the novel's chapters without headings or annotations.
