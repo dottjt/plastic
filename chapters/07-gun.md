@@ -79,40 +79,41 @@ Soon the girl loses my attention. Perhaps due to the wank I'd had approximately 
 
 ### Describe Feeling For Gun
 
-It seemed like the kind of gun that wanted to be held. Endured. Pointed at the forehead of another living being, in gratitude of my eroded patience. Troubled by the intense leverage being held in my hands, as I delivered the sound of a buckshot into the concern of its worried eyes. A feeling only permitted during the sustained bloodshed of an international war, or even the occassional honky of a Federal shootout. Of course, truth was that I actually knew nothing about guns. I mean, what purpose could one have with a firearm? An ordinance of solipsistic delight, potentially serving as a rite of passage for the consent of my insecurity. Governance to my objective as a male. Pleading to resurrect a feeling inside me which I never even knew existed. Irreversible in its punch. A symbol of status. The ultimate dare against my largely unarmed forebear. I was intrigued. Surrounded by memories of an ol' Western in the middle of the Nevada Desert. Scout upon the rolling hills of Route 405, fit for a stranger with a glock n' a gall for danger. An attractive thematic construct for the doubt to tremble; the perfect companion to my submissive wean. I was sure of it. I wanted a gun, and I didn't know why. 
--->
+It seemed like the kind of gun that wanted to be held. Endured. Pointed at the forehead of another living being, in gratitude of my eroded patience. Troubled by the intense leverage being held in my hands, as I delivered the sound of a buckshot into the concern of its worried eyes. A feeling only permitted during the sustained bloodshed of an international war, or even the occassional honky of a Federal shootout. Of course, truth was that I actually knew nothing about guns. I mean, what purpose could one have with a firearm? An ordinance of solipsistic delight, potentially serving as a rite of passage for the consent of my insecurity. Governance to my objective as a male. Pleading to resurrect a feeling inside me which I never even knew existed. Irreversible in its punch. A symbol of status. The ultimate dare against my largely unarmed forebear. I was intrigued. Surrounded by memories of an ol' Western in the middle of the Nevada Desert. Scout upon the rolling hills of Route 405, fit for a stranger with a glock n' a gall for danger. An attractive thematic construct for the doubt to tremble; the perfect companion to my submissive wean. I was sure of it. I wanted a gun, and I didn't know why.
+
+## Scene 2 END
+
+####
+
+## Scene 3 START
 
 ### Enters Gun Shop
 
-The chime of the shopkeeper's bell rattles in my ears, persisting for hours upon the metallic refraction of its passionless retreat. Teasing me with death. 
+The chime of the shopkeeper's bell teases me; metallic in its passionless retreat. The rattle of my ear. Relentless in its prose. I falter at the clue. Although weary of my diction, I can feel that I'm being stared at through the numerical lens of the CCTV. My throat harbours a warbled paste. Perhaps it sees something that I cannot. Dior.
+-->
 
-Standing behind the counter was one of those brattish military types. Hair like a gay leopard, prowling over the shining attention-seeking objects obscuring her view. Her preference for men was obvious. Old n' rusty. Strewn in swathed snus. A paid tit-job n' a star-bangled tattoo accross her shaved asshole, as an oldie from down the road gobs into her douche and rides her into the trailer. Shoving his tongue deep n' wide as the thought of glory captures her mind. The natural talents of her mind. I imagine she was probably raped by a vertical segment of wildlife at a very young age. An ideological anarchist for the fans. An ideal career path for a former Hooter's model, knowledgable only in the arts of drugs n' marital assault.
+### Describes Dyke
 
-"What can I do you for?", she lends, sly in the knock of her movement, as she leans in on the glass cabinet. Intent on eating me alive. She holds a knife, although I'm too preoccupied with her cleavage to notice the urgency of the situation.
+The illegible harangue of a bleated dyke. Her voice stands behind the counter with the tart of a brattish thumb, stuck down her pants amongst the cheerful spock of lint kept drawn to her cellotape thighs. Husk with the corpulence of a smoker's cough. She spots me in plain view. Flicking her alopecia to the side of her skull. Gay like a leopard with the prowl of a Yuletide deer. Her preference for men was clear. Old n' rusty. Strewn from the stout of a heptane snus. My mouth turns black at the thought. Cashed in a dandruff frost which both withstood n' repelled, the dyke was a paid tit-job n' a star-bangled tattoo, sloan across the chasm of her shaved asshole, as an oldie gobs into the tuff of her douche. Riding her cunt into the thick of the trailer, to be seared like the corpse of a burnt steak. A victim of childhood. Raped by the vertical segment of troubled wildlife, she was an ideological anarchist for the fans. Knowledgable only in the art of drugs n' martial assault. She was just the person I was looking for.
+
+### Dyke Assists Character
+
+"What can I do you for?", she lends, as she leans into cabinet. Chock full of grenades, weapons n' firearms. Sly in the knock of her movement, as if ready to snap at your throat at even the slightest comment of her physique. Intent on eating me alive, well she'd even begun deciding her first bite. The resulting expression ended up being more fear than smile, although I hope she got the picture.
+
+"I guess I'm looking to buy gun," I reply. Unsure if it were okay even to express the intent of buying a firearm, that thing used to kill people. She seemed unsettled.
+
+"Well, what do you need it for?", she responds.
+
+"Well I mean, I guess I saw the shotgun in the window and I thought it looked pretty cool, and I was wondering..." Her eyes glowed. A smile appears. She knows she has me in the bag.
+
+"I think I know what you want. Just give me a second to find it."
+
+## The Revolver
 
 
-The pink ponytails were cute.
 
 
-You gun-totting fuck.
 
-
-Now call me a soldier and hand me my award. My facial hair grazed against the undiluted air of the supermarket shelves. Disconfigured n' zany like a perfect princess. The wearer of this crown. My tongue grabs taste of my mouth. Glandular landform, my heinous. The saliva is not pretty.
-
-
-I don't quite catch the reference.
-
-
-### Shopkeeper
-
-
-"I'm looking to purchase I gun."
-
-"Obviously. What do you need it for?"
-
-I hesitated slightly. I think she noticed.
-
-"What looks cooler?"
 
 I liked the idea of a revolver.
 
@@ -122,9 +123,19 @@ S&W Model 29 in .44 magnum
 
 .38 caliber Smith & Wesson Model 10
 
-## Scene 2 END
 
-####
+
+
+You gun-totting fuck.
+
+
+The pink highlights sure were cute.
+
+
+Now call me a soldier and hand me my award. My facial hair grazed against the undiluted air of the supermarket shelves. Disconfigured n' zany like a perfect princess. The wearer of this crown. My tongue grabs taste of my mouth. Glandular landform, my heinous. The saliva is not pretty. I don't quite catch the reference.
+
+
+
 
 ## Scene 3 END
 

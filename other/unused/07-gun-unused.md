@@ -85,4 +85,9 @@ cautious in the intense amount of leverage abiding in your fortitude
 
 the blemished
 
-I made my way to the store entrance, hinge upon the mandate plast of shrewd sexualisation, coursing through my spirit. I enter. 
+I made my way to the store entrance, hinge upon the mandate plast of shrewd sexualisation, coursing through my spirit. I enter.
+
+ the shining attention-seeking objects obscuring her view.
+
+
+She holds a knife, although I'm too preoccupied with her cleavage to notice the urgency of the situation.

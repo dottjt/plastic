@@ -14,15 +14,19 @@ Welcome to life. A rancid fascination of all things particular. An overwhelming 
 
 "Truly fantastic", the editor announces from across the room as he swivels his chair towards my general direction. Hesitant in a gleam of cheap cologne and uncompromising flattery, mouth struck brazen in a dyslexic haze of powdered aspartame and lopsided cheese squares. Only crumbs were left of the star-mangled biscuits, presumably store-bought for our excited listeners at home. He was the mindless operator who would introduce himself as my only lifeline into the world of publishing, and I was the pathetic liar who intended to milk his acquaintance for all it was worth.
 
+### Editor Bluffs
+
 "I really, really liked what you did there. I thought it was simply fantastic! The imagery. The sex appeal. I could definitely fuck that, if you know what I mean." Dawdled frantic onto a notepad fit suitably for a 90s' Nickelodeon pre-teen, it was clear he had no idea what he was talking about.
 
-### Confused + Describes Editor
+### Confusion
 
 Hell, I wasn't even quite sure what he meant. Was it a generous expression of misplaced animosity? Was I being negged? Was it the beginning of what was to become a laborious online prank, where I, the unwitting idiot, were to be exposed as some part-time celebrity on a popular Japanese game show? Perhaps it was the result of a fatherless upbringing, rushed illiterate through a delinquent craze of conservative vice-chancellery and ethnic malfeasance; deep from within the backwaters of a clandestine women's society. Keen on beating the fluff out of potato to prove its self-worth in the inter-continental submission of 3rd world delight. Sure, I'd probably fuck it too. Me and my words, dressed in mortal calamity. Blind in an unfortunate sexual encounter involving my last moments in an exploding orgasm n' a terribly shy lackey with a syllable for a grin.
 
+### Describes Editor
+
 I suppose it was the level of respect I garnered as an unknown assailant, possibly attached to his meaningless gestures delivered haphazardly like the illegitimate leader of an unknown guerrilla war. Che Guevara au lite, the raved lunatic of a ritual patriarchal circle-jerk, head o' the New an' Improved Mickey Mouse Club, accent dripped-thick in the ancient tar of a dead Italian laid-limp over his heartless sleeves and into the repeating glares of purgatory. A cursory sanctuary for two-time real estate agents and doofus car salesmen to worship thy enumeration of thee poor. He was a man reassured by the might and glory of a three-hour Tony Robbins lecture once witnessed in full three-minute summary, cantankerously basked in a level of self-gratification not last seen since the Holy Roman Empire.
 
-### Character Describes Himself
+### Describes Character
 
 Then across the border, sitting awkwardly by the wayside behind a facade of U.N. sponsored barbed-wire, enclosed within the prevailing attitudes showering its echoing dialogue of vindictive tempest and sparkling doubt, was me. An unruly clash against the unsettling intentions revealing themselves in the faint colonies of pop-sweat rippling through the arcade of my skin. I couldn't have been more uncomfortable, nor under-represented in this fraudulent battering of intellectual deceit. But I assured myself that everything would be okay as long as I continued to embrace the sodomy, in full. Thankfully, Aristotle was blasphemous.
 
