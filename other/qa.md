@@ -112,4 +112,9 @@ You know actually, if I had to write another book it would make sense to write i
 
 
 
-On the one hand, this book is perfect for those with a vivid imagination, because it really does take you to a very broken place. By the same token, the book is also awful in that 
+On the one hand, this book is perfect for those with a vivid imagination, because it really does take you to a very broken place. By the same token, the book is also awful in that
+
+Book idea. Book is called Mother and Son, and it explores the tension between a mother and his son. Visually I want it to be like a mosaic of colour. Basic themes with abstract outcomes. Bordering surreal. It's like watching an organism grow. The son is simply an idea, that grows in awareness and questions the premise of the relationship.
+
+"I am son. The son of mother. The mother of son. Apparently she is standing there in front of me. Eyes like a vibrant monsoon. Washing me away from my senses. I am not familiar with her touch. It is like frozen ice, although I'm"
+
