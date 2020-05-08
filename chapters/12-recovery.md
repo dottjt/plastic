@@ -10,7 +10,7 @@ day: "Wednesday."
 
 Green Juicebox Hippo. Animated with suspicion. Arm's grasp. I'm alive. My vision from the previous night hadn't quite returned, supplemented in
 
-I hope
+I hope. she
 
 Emptiness.
 

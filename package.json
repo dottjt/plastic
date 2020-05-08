@@ -31,8 +31,8 @@
   },
   "husky": {
     "hooks": {
-      "pre-commit": "npm run generate-chapters-without-annotations && npm run compile-md",
-      "pre-push": "git add . && git commit -m 'automated chapter-without-annotations-update'"
+      "pre-commit": "npm run generate-chapters-without-annotations && git add . && npm run compile-md",
+      "pre-push": "npm run commit-chapters-without-annotations"
     }
   }
 }

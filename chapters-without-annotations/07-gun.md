@@ -66,7 +66,7 @@ The revolver feels heavy in my hands. Tactically so. I'd pistol whip the bitch i
 
 "What are you fuckin' nuts? This is a mall you tool. If you want to shoot the gun you'll have to take it to a shooting range. I can give you the address." She grabs a notepad.
 
-"It's fine. I'll take it." I didn't care. The revolver made me feel powerful and that's all that really mattered to me in this moment. If I couldn't fondle her now, I sure as hell could with a gun n' a faulty handle. I sign the forms. I pay with my credit card. I'm a loser. The pink highlights sure were cute though. Now call me a soldier n' hand me my award. I had officially become a man.
+"It's fine. I'll take it." I didn't care. The revolver made me feel powerful and that's all that really mattered to me in this moment. Knowing that it's all I really had. A feeling of permanence. A feeling. If I couldn't fondle her now, I sure as hell could with a gun n' a faulty handle. I sign the forms. I pay with my credit card. I'm a loser. The pink highlights sure were cute though. Now call me a soldier n' hand me my award. I had officially become a man.
 
-You know, it would have been nice to have my gun holstered inside the mall. Like some kind of cop. Instead, I had my groceries in hand like a single-income mother with a penchant for refinanced cigarettes. I was broke with a
+You know, it would have been nice to have my gun holstered inside the mall. Like some kind of cop. Instead, I had my groceries in hand like a single-income mother with a penchant for refinanced cigarettes. I was broke and I was beginning to show it. 
 
