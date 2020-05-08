@@ -55,7 +55,7 @@ The novel has largely been inspired by the events of my own life, as well as the
 - Character meets with therapist. They get nowhere.
 - Character provides an introspective monologue, mimicking his idea of therapy.
 
-### Chapter 07 - gun.
+### Chapter 07 - gun. (DONE)
 
 - Character heads out to do his weekly grocery shop. Describes mall.
 - Notices a gun shop. Heads inside.
@@ -75,9 +75,9 @@ The novel has largely been inspired by the events of my own life, as well as the
 
 ### Chapter 10 - death.
 
-- The character depressed to a point of delusion. He simply does not care.
+- The character is depressed to a point of delusion. He simply does not care.
 - He decides to take acid and meet up with a dodgy friend.
-- He completely freaks out.
+- He has a huge freak out, ends up hospitalised.
 
 ### Chapter 11 - dream.
 
@@ -91,6 +91,9 @@ The novel has largely been inspired by the events of my own life, as well as the
 
 
 ## Plot Ideas
+
+### amelia. 
+- This would be interesting, at some point the character meets up with amelia. (This would be late book.) then this way it could tie up with the next novel. 
 
 ### house.
 

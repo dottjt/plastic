@@ -13,12 +13,7 @@ A week of life passes by. The rain runs thin. My hair mauves dry. The work dulls
 ### Pondering Birthday
  -->
 
-I often wondered what a birthday was, aside from an excuse to feel lonely about one's existence. Statutory in its permission to feel. Like a cookie stolen from childhood by the teetering hands of a rabid adult. Ripped from your soul n' dipped in the pity of its macabre jealousy. Megalomaniac in its savage. As you sit there in the magical parking lot of an untenable KFC, choking on a bucket of potato n' gravy found next to a pigeon's corpse.
-
-
-fished from an able-bodied corpse. Then and only then might I've had the chance to forge some kind of future in heaven, away from the mess that was solemn n' dare.
-
-For ol' times sake, buck-aroo.
+I often wondered what a birthday was, aside from an excuse to feel lonely about one's existence. Statutory in its permission to congeal, like a cookie stolen from childhood by the teetering hands of a rabid adult. Ripped from your soul n' dipped in the pity of its macabre jealousy. Megalomaniac in its savage. Crave is its transpire. As you sit there in the unmaintained parking lot of an untenable KFC, face like a fat cunt, chokin' on a bucket o' chicken you found next to the decomposing corpse of a pigeon's corroding interior. Dipped in a potato n' gravy so thick, that it emulsifies your organs into a disintegrating stew. Ripe for the swollen lips of a hardened porn-addict, with a wet sock for a mother n' a tampon for a bandaid. For ol' times sake, buck-aroo. 
 
 ### Mother Texts
 
