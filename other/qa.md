@@ -118,3 +118,11 @@ Book idea. Book is called Mother and Son, and it explores the tension between a 
 
 "I am son. The son of mother. The mother of son. Apparently she is standing there in front of me. Eyes like a vibrant monsoon. Washing me away from my senses. I am not familiar with her touch. It is like frozen ice, although I'm"
 
+
+
+
+The Tales of Amelia Snow - It's a coming of age story about a girl with autism. She begins knowing nothing about the world, and slowly develops and learns to adapt to it. I want maybe the 1st half to explore her childhood. Then it develops into her later years.
+
+A stattered light emerges from the roof into the attic. It bleeds into skin. Refracting like resin onto the pale tones of my . I am only five, but
+
+People were like shadows to me. I never quite understood what they were, nor what pe
