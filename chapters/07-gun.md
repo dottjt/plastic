@@ -94,42 +94,35 @@ The chime of the shopkeeper's bell teases me; metallic in its passionless retrea
 ### Describes Dyke
 
 The illegible harangue of a bleated dyke. Her voice stands tall behind the range of the glass display, tart with the brawl of a brattish thumb. Now stuck down her pants amongst a cheerful spock of lint kept drawn to the glick of her cellotape thighs. Husk with the corpulence cough of a smoker's perspicacity. A lung protrudes from her dipled ribcage. Her eyes ensue. She spots me in plain view, flicking her alopecia to the side. Allowing her hair to flutter spate like a leopard with the prowl of a Yuletide deer. Her preference for men was clear. Old n' rusty; strewn from the stout of a heptane snus. My mouth turns black at the thought. The dyke was a paid tit-job n' a star-bangled tattoo, sloan across the chasm of her shaved asshole, as an oldie gobs into the tuff of her douche. Riding her cunt into the thick of the trailer, to be seared like the corpse of a burnt steak. A victim of childhood. Raped by some vertical segment of troubled wildlife; cashed in a dandruff frost which both withstood n' repelled. She was an ideological anarchist for the fans, knowledgable only in the art of drugs n' marital assault. Exactly the kind of person to knew their fair share about guns.
--->
 
 ### Dyke Assists Character
 
-"What can I do you for?", she lends with a puerile smirk. Forearms on the cabinet of doom; chock full o' grenades, weapons n' firearms. Sly in the knock of her chest, as if ready to snap at even the slightest comment of her physique. Intent on
+"What can I do you for?", she lends with a puerile smirk. Forearms on the cabinet of doom chock full o' grenades, weapons n' firearms. Sly in the knock of her chest, as if ready to snap at even the slightest comment of her physique. The resulting expression on my face was physiologically sterile. Clean as puke.
 
-
-eating me alive, well she'd even begun deciding her first bite. The resulting expression ended up being more fear than smile, although I hope she got the picture.
-
-"I guess I'm looking to buy gun," I reply. Unsure if it were okay even to express the intent of buying a firearm, that thing used to kill people. She seemed unsettled.
+"I guess I'm looking to buy gun," I replied, unsure if it were okay to express such an intent.
 
 "Well, what do you need it for?", she responds.
 
-"Well I mean, I guess I saw the shotgun in the window and I thought it looked pretty cool, and I was wondering..." Her eyes glowed. A smile appears. She knows she has me in the bag.
+"Well I mean, I saw the shotgun in the window and I thought it looked pretty cool, and..." I could see her eyes hover with a languid deceit. Sure of its creation. Poised to deliver.
 
-"I think I know what you want. Just give me a second to find it."
+"I think I know what you want." The dyke takes two steps to the right, before placing her hand inside one of the glass displays. Pulling out what appear to be a revolver. A large revolver. It rattles deep into my soul.
 
 ## The Revolver
 
+"Smith & Wesson Model 10. .38 caliber round. Let me know how it feels." She places the gun on top of the cabinet display. I place the gun in the grip of my right hand. I point it at her head.
 
+"Oh please, do you really think I'd give an amateur a loaded gun? Now put it down before I snap your neck."
+-->
+The revolver feels heavy in my hands. Tactically so. Hell, I'd pistol whip the bitch if I weren't so depressed, but instead I decided to contain my resolve within the peelin' anxiety sqwatchin' mango all over my face. I hestitate fondly.
 
+"I think I like it," I remarked. I didn't like it as much as Milo, although at least the revolver made me feel remarkably powerful. I wanted to shoot it.
 
+"Would I be able to shoot it, if that's okay?"
 
+"What are you fuckin' nuts? This is a mall you tool. If you want to shoot the gun, you'll have to take it to a shooting range. I can give you the address."
 
-I liked the idea of a revolver.
+"It's fine. I'll take it." I didn't care. 
 
-It feels heavy in my hand.
-
-S&W Model 29 in .44 magnum
-
-.38 caliber Smith & Wesson Model 10
-
-
-
-
-You gun-totting fuck.
 
 
 The pink highlights sure were cute.

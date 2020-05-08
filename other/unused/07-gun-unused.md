@@ -91,3 +91,6 @@ I made my way to the store entrance, hinge upon the mandate plast of shrewd sexu
 
 
 She holds a knife, although I'm too preoccupied with her cleavage to notice the urgency of the situation.
+
+
+S&W Model 29 in .44 magnum
