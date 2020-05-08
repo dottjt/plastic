@@ -8,7 +8,7 @@ day: "Friday."
 
 ### Work Introduction
 
-In work we trust. A plutocratic orgy of totalitarian devastation. This week's solution to the rampant "black" problem. Mornin' coffee. Mornin' wank. Mornin' grain. Margarine's tainted folly of hardened bliss, as you attempt to pry the vogue from your eyes with the synopsis of a pompadour pickaxe. Glowin' Rhodesia. Miniature heartache. And soon, the diabolical mud will seep from your gums n' fizzle into the heart of your Special-K. Programming Lucifer's plea into an undying commitment of useful, well-behaved utility. Twizzle n' rawr. Sizzle n' twee. Achromatic in a calico beak of thy crackle intervention. Shuckle up, bucko. It's time to cradle the flair.
+In work we trust. A plutocratic orgy of totalitarian devastation. This week's solution to the rampant "black" problem. Mornin' coffee. Mornin' grain. Mornin' wank. Margarine's tainted folly of hardened bliss, as you attempt to pry the vogue from your eyes with a pompadour pickaxe. Glowin' Rhodesia. Miniature dialysis. Diabolical is the mud which seeps from your gums n' fizzles into the heart of your Special-K. Programming Lucifer's distressing plea into an undying commitment of useful, well-behaved utility. Twizzle n' rawr. Sizzle n' tiss. Achromatic is the calico beak of thy crackle intervention. Shuckle up, bucko. It's time to cradle your flair.
 
 ### Touch Upon Editor Meeting
 
