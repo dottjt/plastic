@@ -4,6 +4,8 @@ How to Kill a Chinaman is my first novel.
 
 It presents in first-person the thoughts and narratives of an unidentified character with severe mental health issues. The intention of the novel is to take you through a provocative theme-park of cynicism, violence and mania. I suppose you could describe it as a delicious free-for-all, taut against the distressed texture of the senses. 
 
+I don't think it will get published due to the graphic nature of the novel, although it is an absolute imperative piece of work that I must create. And I will still pursue an agent regardless. 
+
 The novel has largely been inspired by the events of my own life, as well as the writing styles of William S. Burroughs' novel, Naked Lunch.
 
 ## Repository Overview
