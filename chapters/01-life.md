@@ -12,19 +12,17 @@ Welcome to life. A rancid fascination of all things particular. An overwhelming 
 
 ### Editor Introduction
 
-"Truly fantastic", the editor announces from across the room, as he swivels his chair towards my general direction. Hesitant in a gleam of cheap cologne and uncompromising flattery. Mouth struck brazen in a dyslexic haze of powdered aspartame and lopsided cheese squares. Chewin' on a chunkie. Glorious. The mouth baubles. Hidden amongst a pile of Mediterranean gut, only crumbs were left of the star-mangled biscuits, presumably store-bought for our excited listeners at home. He was the mindless operator who would introduce himself as my only lifeline into the world of publishing, and I was the pathetic liar who intended to milk his acquaintance for all it was worth. The rent was strong in this one.
+"Truly fantastic", the editor announces from across the room, as he swivels his chair towards my general direction. Hesitant in a gleam of cheap cologne and uncompromising flattery. Chewin' on the corpse of a chunkie; mouth struck brazen in a dyslexic haze of powdered aspartame and lopsided cheese squares. The mouth baubles. Glorious. Admirably only crumbs were left of the star-mangled biscuits, presumably store-bought for our excited listeners at home. He was the mindless operator who would introduce himself as my only lifeline into the world of publishing, and I was the pathetic liar who intended to milk his acquaintance for all it was worth. The rent was strong in this one.
 
 ### Editor Bluffs
 
 "I really, really liked what you did there. I thought it was simply fantastic! The imagery. The sex appeal. I could definitely fuck that, if you know what I mean."
 
-Dawdled frantic onto a notepad fit suitably for a 90s' Nickelodeon pre-teen, it was clear he had no idea what his was talking about. Hell, I wasn't even sure if he relised I was sitting here. Was it a generous expression of misplaced animosity? Was it a artless attempt at statutory rape? Was it the beginning of what was to become a laborious online prank, where I, the unwitting idiot, were to be exposed as some part-time celebrity on a popular Japanese game show? My fingers tingled with a flavourful joust.
+Dawdled frantic onto a notepad fit suitably for a 90s' Nickelodeon pre-teen, it was clear he had no idea what his was talking about. Hell, I wasn't even sure if he was human. Was it a generous expression of misplaced animosity? Was it an uncultivated attempt at statutory rape? Was it the beginning of what was to become a laborious online prank, where I, the unwitting idiot, were to be exposed as some part-time celebrity on a popular Japanese game show?
 
-### Describes Editor
+Perhaps it was the result of a fatherless upbringing, rushed illiterate through a delinquent craze of conservative vice-chancellery n' ethnic malfeasance; deep from within the backwaters of a clandestine women's society. Keen on beating the fluff out of potato to prove its self-worth in the inter-continental submission of 3rd world delight. Sure. I'd probably fuck it too. Me and my words, dressed in mortal calamity. Blind in an unfortunate sexual encounter involving my last moments in an exploding orgasm n' a terribly shy lackey with a syllable for a grin. How superfluous.
 
-Perhaps it was the result of a fatherless upbringing, rushed illiterate through a delinquent craze of conservative vice-chancellery and ethnic malfeasance; deep from within the backwaters of a clandestine women's society. Keen on beating the fluff out of potato to prove its self-worth in the inter-continental submission of 3rd world delight. Sure, I'd probably fuck it too. Me and my words, dressed in mortal calamity. Blind in an unfortunate sexual encounter involving my last moments in an exploding orgasm n' a terribly shy lackey with a syllable for a grin.
-
-I suppose it was the level of respect I garnered as an unknown assailant, possibly attached to his meaningless gestures delivered haphazardly like the illegitimate leader of an unknown guerrilla war. Che Guevara au lite, the raved lunatic of a ritual patriarchal circle-jerk, head o' the New an' Improved Mickey Mouse Club, accent dripped-thick in the ancient tar of a dead Italian laid-limp over his heartless sleeves and into the repeating glares of purgatory. A cursory sanctuary for two-time real estate agents and doofus car salesmen to worship thy enumeration of thee poor. He was a man reassured by the might and glory of a three-hour Tony Robbins lecture once witnessed in full three-minute summary, cantankerously basked in a level of self-gratification not last seen since the Holy Roman Empire.
+Although I suppose it was the level of respect I garnered as an unknown assailant, possibly attached to his meaningless gestures delivered haphazardly like the illegitimate leader of an unknown guerrilla war. Che Guevara au lite, the raved lunatic of a ritual patriarchal circle-jerk, head o' the New an' Improved Mickey Mouse Club, accent dripped-thick in the ancient tar of a dead Italian laid-limp over his heartless sleeves and into the repeating glares of purgatory. A cursory sanctuary for two-time real estate agents and doofus car salesmen to worship thy enumeration of thee poor. He was a man reassured by the might and glory of a three-hour Tony Robbins lecture once witnessed in full three-minute summary, cantankerously basked in a level of self-gratification not last seen since the Holy Roman Empire.
 
 ### Describes Character
 
@@ -32,7 +30,7 @@ Then across the border, sitting awkwardly by the wayside behind a facade of U.N.
 
 "You know, have you ever considered writing this, uh, material into a book? I think it would make for fascinating reading."
 
-"Well yeah, that's basically why I'm here. To get my book published," sat an audaciously sad man preoccupied firmly in this chair, helplessly situated in an uncaught mire of time, conveniently puzzled at the present-day theatrics of this man's somewhat infectious outreach.
+"Well yeah, that's basically why I'm here. To get my book published," sat an audaciously sad man preoccupied firmly in this chair, helplessly situated in an uncaught mire of time, conveniently puzzled at the present-day theatrics of this man's somewhat infectious outreach. 
 
 ### Character Bored
 

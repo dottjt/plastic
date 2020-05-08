@@ -96,3 +96,5 @@ Surely it was abnormal to confuse verbal harassment with the extravagant excelle
 
 
 would unanimously end in a public cheer of despondence, gurgled in a  of mass-hysteria of archival gromair.
+
+My fingers tingled with a flavourful joust.

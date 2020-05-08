@@ -98,7 +98,10 @@ The illegible harangue of a bleated dyke. Her voice stands tall behind the range
 
 ### Dyke Assists Character
 
-"What can I do you for?", she lends, as she leans into cabinet. Chock full of grenades, weapons n' firearms. Sly in the knock of her movement, as if ready to snap at your throat at even the slightest comment of her physique. Intent on eating me alive, well she'd even begun deciding her first bite. The resulting expression ended up being more fear than smile, although I hope she got the picture.
+"What can I do you for?", she lends with a puerile smirk. Forearms on the cabinet of doom; chock full o' grenades, weapons n' firearms. Sly in the knock of her chest, as if ready to snap at even the slightest comment of her physique. Intent on
+
+
+eating me alive, well she'd even begun deciding her first bite. The resulting expression ended up being more fear than smile, although I hope she got the picture.
 
 "I guess I'm looking to buy gun," I reply. Unsure if it were okay even to express the intent of buying a firearm, that thing used to kill people. She seemed unsettled.
 

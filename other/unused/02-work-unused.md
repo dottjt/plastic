@@ -211,3 +211,8 @@ Mesmerisingly subterranean, tonight's arrangement had just occurred to me. Fuck.
 
 
 Hopefully tonight's arrangement would be
+
+
+Glowin' Rhodesia.
+
+Kindly miniature.
