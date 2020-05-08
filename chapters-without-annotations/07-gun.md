@@ -4,7 +4,7 @@
 
 You stare at your wallet. Your wallet stares back. There's flashes of money but it's terribly lack. So you give it your lust. A sign for your love. An abundance of lithe and a home in your crust. For the loyalty of heart. For your new best friend. For a shuckle of mildew. In a chive of pretend. Yet your offering is paltry. Without charm. Without pride. As it lingers for a cure. A kick in its stride. So you worship these notes. The validation of their crisp. Upon a smooth lilac surface. Your suffer for a kiss. As you embrace its harsh judgement. Striking pickle n' fear. So as to be a better person. The one you call dear. It creeds. You blare. Our ceremony in dissociation. Amongst a decoration of colour and quantifiable misassociation. Fickle n' gold. The mystique of a millionaire. At a fraction of the lie, so your reality must bear. So now in your wallet. You notice nothing but jewel. Your wallet is lordship. The priest of your cruel. Tickle me lucky. Tickle me vain. The disdain of your linger. The savage of your pain. Curiously plith. Pity in its crumb. A venture of foam upon a lilith of numb. Your heart is devoid of culture.
 
-The weekly shop. Danger's Harper Quinn. I walk past a packet of tampons. The beauty aisle. A menstrual sensation enthralled in the candid exasperation of a desperate lowlife. Murky is its sign of affection. Remnant of nostalgia's golden trickle upon which dazzles a premium-grade dust, reminding you of just how clutch you truly are. I'd chew one of em' right now if they didn't remind me so much of Milo. Her erratic touch. The boiled ingenuity of a misanthropic mind, now washed against the afflictive sleaze of a mindless triviality. I suppose I wanted to hold her. Embrace her. Call her nice things. Perhaps more than she herself wanted to be held or spoken to. In an ode to my own quixotic desires, now working against me in a defective ward of malevolent circumstance. Hospitalised. Inanity. Desecrate upon the basis of our one true love, as if to lock her away inside a blighted cage of impractical pursuits. Never to be realised again in this demolition of modernity. Stupid sop.
+The weekly shop. Danger's Harper Quinn. I walk past a packet of tampons. The beauty aisle. A menstrual sensation enthralled in the candid exasperation of a desperate lowlife. Murky is its affection. Remnant of nostalgia's golden trickle upon which dazzles a premium-grade dust, reminding you of just how clutch you truly are. I'd chew one of em' right now if they didn't remind me so much of Milo. Her erratic touch. The boiled ingenuity of a misanthropic mind, now washed against the afflictive sleaze of a mindless triviality. I suppose I wanted to hold her. Embrace her. Call her nice things. Perhaps more than she herself wanted to be held or spoken to. In an ode to my own quixotic desires, now working against me in a defective ward of malevolent circumstance. Hospitalised. Inanity. Desecrate upon the basis of our one true love, as if to lock her away inside a blighted cage of impractical pursuits. Never to be realised again in this demolition of modernity. Stupid sop.
 
 I think I should get chips. Should I get chips? I mean, have chips ever done me any harm? At least as far as I'm aware, chips have been a fantastic contribution towards National GDP. Well, except for fat people. And I mean, who wants to fuck a fat person? At least in buying this packet of chips, what I'm effectively doing is denying some huffer out there the opportunity to partake in the culnary equivalent of S&M. "Allow me to assist, fat whore." As I push aside some walking tub of lard who's become manic at the thought of using my precious potato as a fleshlight. Aaaaaaand, I no longer felt like eating chips anymore. Silly me.
 
@@ -28,7 +28,7 @@ I grab an item from my shopping cart and I place it onto the conveyor belt below
 
 In noodles we trust.
 
-Bright lights n' dazzlin' permutations. I was neither here, nor there; lost inside the slipstream of a fernlike observation. Slurpin' what appeared to be a 30 cent cup o' Calder Joe's. The inferior granulose of a flocculent bean, flung callous against the cold chill of a resplendent respirator. Grindin'. Scramblin'. Tweakin' be thy grains. I could almost feel the numb of the coffee in the back of my tongue, like a cancer waitin' to happen in the tars of Muldoon. Crickety croak. My neck picks up. A regatta. Behind me. My silhouette follows. Captured in amongst my thoughts, a forgotten memory appears. Ah, ha! I place my hand in my left pocket, searching for a joint I rolled earlier in thez noon. It was like tryin' a find a needle in a gaystack. The homophobia really ROCKS it, ya know. I mean, maybe I'd receive one of them free NASCAR-inspired blow-jobs if I continued to pursue the intolerance. Gee. You know. You can really taste the wet in this cup. Golly. Where was Muldoon? Oh. Cunt. Fuck off Calder Joe. I'm sick of your disorganised sediment. The cup hits the bin, drizzling its fuck all over the floor. Gee. Sounds like a mall problem to me, as I scutter away in permanence. Fleet from the scene.
+Bright lights n' dazzlin' permutations. I was neither here, nor there. Lost inside the slipstream of a fernlike observation. Slurpin' what appeared to be a 30 cent cup o' Calder Joe's. The inferior granulose of a flocculent bean, flung callous against the cold chill of a resplendent respirator. Grindin'. Scramblin'. Tweakin' be thy grains. I could almost feel the numb of the coffee in the back of my tongue, like a cancer waitin' to happen in the tars of Muldoon. Crickety croak. My neck picks up. A regatta. Behind me. My silhouette follows. Captured in amongst my thoughts, a forgotten memory appears. Ah, ha! I place my hand in my left pocket, searching for a joint I rolled earlier in thez noon. It was like tryin' a find a needle in a gaystack. The homophobia really ROCKS it, ya know. I mean, maybe I'd receive one of them free NASCAR-inspired blow-jobs if I continued to pursue the intolerance. Gee. You know. You can really taste the wet in this cup. Golly. Where was Muldoon? Oh. Cunt. Fuck off Calder Joe. I'm sick of your disorganised sediment. The cup hits the bin, drizzling its fuck all over the floor. Gee. Sounds like a mall problem to me, as I scutter away in permanence. Fleet from the scene.
 
 I hate the bean, and the bean hates me. Distract me, rabbit. A child runs towards his mother, exasperating his lungs to the repetitive tune of a radio jingle. Narcissistic cunt. Full of useless joy n' serene pronouncement. I despise. Taking a bite into his Jackie Bar, the young wizard looks directly into my eyes. Coy with shyness. The tension rises. I'd snap off his frail legs if I were man enough; using em' as chopsticks to parade out the fuckin' revolution until the reds rolled home. But he seemed nice enough. Kind. Fuck it, I'm going in. Watch out, folks. This crummy Asian valet has a degree, and he's not afraid to use it. The child is promptly brisked away by his concerning mother. Well, I suppose there was always next time. The mind lingers. I stare down into the spangle of my shoes, now covered in the laceless folly of a literary binge. There's leather to describe, as well as provisions of dirt to exacerbate n' pilfer. An easy target for grades four to five. The distract is strong. Clueless. I can feel it wriggle inside my heart, beating to the unhinge of my rapidly evolving thoughts. The eyes turn red. The pester of the occult. My heart beats louder. Textile in its expeditious fear. Shriek! Then in a sudden jolt of awareness, my head finds itself abrupt towards the ceiling of the grand auditorium. Overwhelmed by the vestige of its frightening embolden; the applaud of it's Proud Capitalism™. I had seized.
 
@@ -38,43 +38,35 @@ Glancing my way through the overpriced stalls of the upper stratosphere, my eyes
 
 Soon the girl loses my attention. Perhaps due to the wank I'd had approximately one hour earlier in the illicit bathroom stall of the contaminated suburban mall, as I tactically pressed my penis against the screen of my phone. A picture of my ex. Apathetic in the guilt which dripped from my pores in an unconcerning slop of muffled impotence. Instead, a Remington Model 870 pump-action shotgun catches my eye in the window of the artillery emporium. Certainly, recognising the model of which made me feel snappy n' smart as a consumer, even though the model was clearly printed on the window in a decorative chalk marker. Prior to which, I had no clue what I was actually looking at. My gaze evolves.
 
-It seemed like the kind of gun that wanted to be held. Endured. Pointed at the forehead of another living being, in gratitude of my eroded patience. Troubled by the intense leverage being held in my hands, as I delivered the sound of a buckshot into the concern of its worried eyes. A feeling only permitted during the sustained bloodshed of an international war, or even the occassional honky of a Federal shootout. Of course, truth was that I actually knew nothing about guns. I mean, what purpose could one have with a firearm? An ordinance of solipsistic delight, potentially serving as a rite of passage for the consent of my insecurity. Governance to my objective as a male. Pleading to resurrect a feeling inside me which I never even knew existed. Irreversible in its punch. A symbol of status. The ultimate dare against my largely unarmed forebear. I was intrigued. Surrounded by memories of an ol' Western in the middle of the Nevada Desert. Scout upon the rolling hills of Route 405, fit for a stranger with a glock n' a gall for danger. An attractive thematic construct for the doubt to tremble; the perfect companion to my submissive wean. I was sure of it. I wanted a gun, and I didn't know why. 
+It seemed like the kind of gun that wanted to be held. Endured. Pointed at the forehead of another living being, in gratitude of my eroded patience. Troubled by the intense leverage being held in my hands, as I delivered the sound of a buckshot into the concern of its worried eyes. A feeling only permitted during the sustained bloodshed of an international war, or even the occassional honky of a Federal shootout. Of course, truth was that I actually knew nothing about guns. I mean, what purpose could one have with a firearm? An ordinance of solipsistic delight, potentially serving as a rite of passage for the consent of my insecurity. Governance to my objective as a male. Pleading to resurrect a feeling inside me which I never even knew existed. Irreversible in its punch. A symbol of status. The ultimate dare against my largely unarmed forebear. I was intrigued. Surrounded by memories of an ol' Western in the middle of the Nevada Desert. Scout upon the rolling hills of Route 405, fit for a stranger with a glock n' a gall for danger. An attractive thematic construct for the doubt to tremble; the perfect companion to my submissive wean. I was sure of it. I wanted a gun, and I didn't know why.
+
+The chime of the shopkeeper's bell teases me; metallic in its passionless retreat. The rattle of my ear. Relentless in its prose. I falter at the clue. Although weary of my diction, I can feel that I'm being stared at through the numerical lens of the CCTV. My throat harbours a warbled paste. Perhaps it sees something that I cannot. Dior.
+
+The illegible harangue of a bleated dyke. Her voice stands tall behind the range of the glass display, tart with the brawl of a brattish thumb. Now stuck down her pants amongst a cheerful spock of lint kept drawn to the glick of her cellotape thighs. Husk with the corpulence cough of a smoker's perspicacity. A lung protrudes from her dipled ribcage. Her eyes ensue. She spots me in plain view, flicking her alopecia to the side. Allowing her hair to flutter spate like a leopard with the prowl of a Yuletide deer. Her preference for men was clear. Old n' rusty; strewn from the stout of a heptane snus. My mouth turns black at the thought. The dyke was a paid tit-job n' a star-bangled tattoo, sloan across the chasm of her shaved asshole, as an oldie gobs into the tuff of her douche. Riding her cunt into the thick of the trailer, to be seared like the corpse of a burnt steak. A victim of childhood. Raped by some vertical segment of troubled wildlife; cashed in a dandruff frost which both withstood n' repelled. She was an ideological anarchist for the fans, knowledgable only in the art of drugs n' marital assault. Exactly the kind of person to knew their fair share about guns.
+
+"What can I do you for?", she lends with a puerile smirk. Forearms on the cabinet of doom chock full o' grenades, weapons n' firearms. Sly in the knock of her chest, as if ready to snap at even the slightest comment of her physique. The resulting expression on my face was physiologically sterile. Clean as puke.
+
+"I guess I'm looking to buy gun," I replied, unsure if it were okay to express such an intent.
+
+"Well, what do you need it for?", she responds.
+
+"Well I mean, I saw the shotgun in the window and I thought it looked pretty cool, and..." I could see her eyes hover with a languid deceit. Sure of its creation. Poised to deliver.
+
+"I think I know what you want." The dyke takes two steps to the right, before placing her hand inside one of the glass displays. Pulling out what appear to be a revolver. A large revolver. It rattles deep into my soul.
+
+"Smith & Wesson Model 10. .38 caliber round. Let me know how it feels." She places the gun on top of the cabinet display. I place the gun in the grip of my right hand. I point it at her head.
+
+"Oh please, do you really think I'd give an amateur a loaded gun? Now put it down before I snap your neck."
 -->
+The revolver feels heavy in my hands. Tactically so. I'd pistol whip the bitch if I weren't so depressed. Instead, I decide to contain my resolve within the peelin' anxiety squelchin' mango all over my petty face. I hestitate fondly.
 
-The chime of the shopkeeper's bell rattles in my ears, persisting for hours upon the metallic refraction of its passionless retreat. Teasing me with death. 
+"I think I like it," I remark. I wanted to shoot it.
 
-Standing behind the counter was one of those brattish military types. Hair like a gay leopard, prowling over the shining attention-seeking objects obscuring her view. Her preference for men was obvious. Old n' rusty. Strewn in swathed snus. A paid tit-job n' a star-bangled tattoo accross her shaved asshole, as an oldie from down the road gobs into her douche and rides her into the trailer. Shoving his tongue deep n' wide as the thought of glory captures her mind. The natural talents of her mind. I imagine she was probably raped by a vertical segment of wildlife at a very young age. An ideological anarchist for the fans. An ideal career path for a former Hooter's model, knowledgable only in the arts of drugs n' marital assault.
+"Would I be able to shoot it, if that's okay?"
 
-"What can I do you for?", she lends, sly in the knock of her movement, as she leans in on the glass cabinet. Intent on eating me alive. She holds a knife, although I'm too preoccupied with her cleavage to notice the urgency of the situation.
+"What are you fuckin' nuts? This is a mall you tool. If you want to shoot the gun you'll have to take it to a shooting range. I can give you the address." She grabs a notepad.
 
-The pink ponytails were cute.
+"It's fine. I'll take it." I didn't care. The revolver made me feel powerful and that's all that really mattered to me in this moment. If I couldn't fondle her now, I sure as hell could with a gun n' a faulty handle. I sign the forms. I pay with my credit card. I'm a loser. The pink highlights sure were cute though. Now call me a soldier n' hand me my award. I had officially become a man.
 
-You gun-totting fuck.
+You know, it would have been nice to have my gun holstered inside the mall. Like some kind of cop. Instead, I had my groceries in hand like a single-income mother with a penchant for refinanced cigarettes. I was broke with a
 
-Now call me a soldier and hand me my award. My facial hair grazed against the undiluted air of the supermarket shelves. Disconfigured n' zany like a perfect princess. The wearer of this crown. My tongue grabs taste of my mouth. Glandular landform, my heinous. The saliva is not pretty.
-
-I don't quite catch the reference.
-
-"I'm looking to purchase I gun."
-
-"Obviously. What do you need it for?"
-
-I hesitated slightly. I think she noticed.
-
-"What looks cooler?"
-
-I liked the idea of a revolver.
-
-It feels heavy in my hand.
-
-S&W Model 29 in .44 magnum
-
-.38 caliber Smith & Wesson Model 10
-
-###
-
-It would have been cool to have holstered my gun inside the mall.
-
- groceries in hand like a single-income mother with a penchant for refinanced cigarettes,
-
- n' a gun in my pocket, and I was set to roll.

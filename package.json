@@ -32,7 +32,7 @@
   "husky": {
     "hooks": {
       "pre-commit": "npm run generate-chapters-without-annotations && npm run compile-md",
-      "// pre-push": "//"
+      "pre-push": "git add . && git commit -m 'automated chapter-without-annotations-update'"
     }
   }
 }
