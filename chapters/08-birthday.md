@@ -3,7 +3,7 @@ title: "birthday."
 description: "A short chapter with an attempted suicide, "
 day: "Saturday."
 ---
-<!--
+
 ## Scene 1 START
 
 ### Birthday Monologue
@@ -13,7 +13,6 @@ A week of life passes by. The rain runs thin. My hair mauves dry. The work is du
 I often wondered what a birthday was, beyond a statutory permission to feel. To feel lonely about one's existence. Like a cookie stolen from childhood. Teetering amongst a hound of rabid adults. To be ripped from your soul, dipped in pity and crumbled upon the palm of one's own hands. For ol' times sake, buck-aroo. If only to prove that you were the child of some megalomaniac debacle with a binge for Chinese counter-terrorism. Sad carpark regrets in the parking lot of a faux pas KFC. If only I'd choked on the potato n' gravy that day. Then and only then might I've had the chance to forge some kind of future in heaven, away from the mess that was solemn n' dare.
 
 It's 10:35am. I receive a text from my mother. That bitch. The feeling is immense. That fucking bitch. A trove of anger overcomes me. Aggravating my emotions to swirl in tandem around the big ball of fire calculating thought into a bucket of crimson anarchy. A twitch of self-harm emerges. Grabbing me by the throat in a violent slam of mottled indigo, now caught in a whirlwind of fervent aggression. Rage. Predominantly I felt rage from the indignation which burst from my infuriation with the Führer itself. The kind of anger which inevitably evolves into a catastrophic cuss of doth and cower. I block her number. It's just how I cope.
- -->
 
 ### Attempted Suicide
 

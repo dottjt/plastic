@@ -26,6 +26,7 @@ The party of drones.
 
 Soiling my mood in gloom.
 
+My facial hair grazed against the undiluted air of the supermarket shelves. Disconfigured n' zany like a perfect princess. The wearer of this crown. My tongue grabs taste of my mouth. Glandular landform, my heinous. The saliva is not pretty. I don't quite catch the reference.
 
 Even if you'd provided me with a bucket of sand to lay my ruined cock in peace
 
