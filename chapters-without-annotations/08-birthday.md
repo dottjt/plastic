@@ -1,7 +1,7 @@
 # birthday.
 <!--
 
-A week of life passes by. The rain runs thin. My hair mauves dry. The work dulls. Today is my birthday. The loneliest day of the year. Crust upon the gallows, I seized to clamour out of my mother's heinous vagina, intent on working a dead end job cold-calling the elderly for the debt in their graves. It was an empty echo-chamber of must-haves and has-beens; slurry in a deceit of exacerbated euphony. Grace upon the impression of a fuck-off grin. Mute is thy safeword. Desperate is thy plea.
+A week of life passes by. The rain runs thin. My hair mauves dry. The work dulls. Today is my birthday. The loneliest day of the year. Crust upon the gallows, I clamour out of the seize of my mother's heinous vagina. Intent on working a dead end job cold-calling the elderly for a future claim of debt upon their graves. It was an empty echo-chamber of must-haves and has-beens; slurry in a deceit of exacerbated euphony. Grace upon the impression of a fuck-off grin. Mute is thy safeword. Desperate is thy plea.
 
  -->
 
