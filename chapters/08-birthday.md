@@ -17,7 +17,7 @@ I often wondered what a birthday was, aside from an excuse to feel lonely about 
 
 ### Mother Texts
 
-It's 10:35am. I receive a text from my mother. That bitch. The feeling is immense. That fucking bitch. A trove of anger overcomes me. Aggravating my emotions to swirl in tandem around the big ball of fire calculating thought into a bucket of crimson anarchy. A twitch of self-harm emerges. Grabbing me by the throat in a violent slam of mottled indigo, now caught in a whirlwind of fervent aggression. Rage. Predominantly I felt rage from the indignation which burst from my infuriation with the Führer itself. The kind of anger which inevitably evolves into a catastrophic cuss of doth and cower. I block her number. It's just how I cope.
+I grouch out of bed. It's 10:35am. I receive a text from my mother. That bitch. The feeling is immense. That fucking bitch. A trove of anger overcomes me. Aggravating my emotions to swirl in tandem around the big ball of fire calculating thought into a bucket of crimson anarchy. A twitch of self-harm emerges. Grabbing me by the throat in a violent slam of mottled indigo, now caught in a whirlwind of fervent aggression. Rage. Predominantly I felt rage from the indignation which burst from my infuriation with the Führer itself. The kind of anger which inevitably evolves into a catastrophic cuss of doth and cower. I block her number. It's just how I cope.
 
 ### Feeling Suicidial
 
