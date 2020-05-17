@@ -1,14 +1,14 @@
-# How to Kill a Chinaman
+# How to kill a Chinaman
 
-How to Kill a Chinaman is my first novel. 
+How to kill a Chinaman is my first novel.
 
-It presents in first-person the thoughts and narratives of an unidentified character with severe mental health issues. The intention of the novel is to take you through a provocative theme-park of cynicism, violence and mania. I suppose you could describe it as a delicious free-for-all, taut against the distressed texture of the senses. 
+It presents in first-person the thoughts and narratives of an unidentified character with severe mental health issues.
 
-I wouldn't describe this novel as a memoir, nor an autobiography. It's driven by a strong eclectic narrative and intends to take the reader through a journey. 
-
-I don't think it will get published due to the graphic nature of the novel, although it is an absolute imperative piece of work that I must create. I will still pursue an agent regardless. 
+The intention of the novel is to take you through a provocative theme-park of cynicism, violence and mania. I suppose you could describe it as a delicious free-for-all.
 
 The novel has largely been inspired by the events of my own life, as well as the writing styles of William S. Burroughs' novel, Naked Lunch.
+
+I imagine the manuscript will be finished sometime in 2021.
 
 ## Repository Overview
 
@@ -16,9 +16,9 @@ The novel has largely been inspired by the events of my own life, as well as the
 - `chapters-without-annotations` - All the novel's chapters without headings or annotations.
 - `ebook` - Relevant eBook generation files, including generation directory.
 - `medium-export` - Export of all my Medium posts. Initially, for inspiration.
-- `other` - Unused chapter excerpts + a heap of notes on the novel.    
+- `other` - Unused chapter excerpts + a heap of notes on the novel.
 - `scripts` - Bash scripts to push to Github + create word count.
-- `util` - Node.js scripts to compile the book and relevant files. 
+- `util` - Node.js scripts to compile the book and relevant files.
 
 ## Plot Overview
 
@@ -96,8 +96,8 @@ The novel has largely been inspired by the events of my own life, as well as the
 
 ## Plot Ideas
 
-### amelia. 
-- This would be interesting, at some point the character meets up with amelia. (This would be late book.) then this way it could tie up with the next novel. 
+### amelia.
+- This would be interesting, at some point the character meets up with amelia. (This would be late book.) then this way it could tie up with the next novel.
 
 ### house.
 
