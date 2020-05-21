@@ -6,7 +6,6 @@ day: "Sunday."
 
 ## Scene 1 START - gun.
 
-<!--
 ### Wallet Monologue.
 
 You stare at your wallet. Your wallet stares back. There's flashes of money but it's terribly lack. So you give it your lust. A sign for your love. An abundance of lithe and a home in your crust. For the loyalty of heart. For your new best friend. For a shuckle of mildew. In a chive of pretend. Yet your offering is paltry. Without charm. Without pride. As it lingers for a cure. A kick in its stride. So you worship these notes. The validation of their crisp. Upon a smooth lilac surface. Your suffer for a kiss. As you embrace its harsh judgement. Striking pickle n' fear. So as to be a better person. The one you call dear. It creeds. You blare. Our ceremony in dissociation. Amongst a decoration of colour and quantifiable misassociation. Fickle n' gold. The mystique of a millionaire. At a fraction of the lie, so your reality must bear. So now in your wallet. You notice nothing but jewel. Your wallet is lordship. The priest of your cruel. Tickle me lucky. Tickle me vain. The disdain of your linger. The savage of your pain. Curiously plith. Pity in its crumb. A venture of foam upon a lilith of numb. Your heart is devoid of culture.
@@ -109,20 +108,16 @@ The illegible harangue of a bleated dyke. Her voice stands tall behind the range
 
 ## The Revolver
 
-"Smith & Wesson Model 10. .38 caliber round. Let me know how it feels." She places the gun on top of the cabinet display. I place the gun in the grip of my right hand. I point it at her head.
-
-"Oh please, do you really think I'd give an amateur a loaded gun? Now put it down before I snap your neck."
--->
-The revolver feels heavy in my hands. Tactically so. I'd pistol whip the bitch if I weren't so depressed. Instead, I decide to contain my resolve within the peelin' anxiety squelchin' mango all over my petty face. I hestitate fondly.
+"Smith & Wesson Model 10. .38 caliber round. Let me know how it feels." She places the gun on top of the cabinet display. It scintillates like a sheet of raw ice, cracking under the pressure of its own weight. Beauty in its groove. Delicate in its desire. The gun grips my nifty hand with the feeling of a rockstar. I liked it. I suppose if I weren't such a straight-shooter, I'd be pointing the sucka at her head without even a voice of hesttation, but I simply knew that wasn't me. She'd gut me within a heartbeat. Not with that kind of visceral lesbian strength. Laissez faire was an amateur. I could feel my neck snap. It was the weight of the revolver. Heavy as gun could be. Tactically so. Damn. I'd probably pistol whip the bitch if I weren't so depressed. Yes. I can feel it in my resolve. Squelchin' peelin' mango chevalier, drippin' glib from the cheek of my face. I hestitate fondly with the trigger in my mind. The growl draws near. 
 
 "I think I like it," I remark. I wanted to shoot it.
 
-"Would I be able to shoot it, if that's okay?"
+"Would I be able to shoot it?"
 
-"What are you fuckin' nuts? This is a mall you tool. If you want to shoot the gun you'll have to take it to a shooting range. I can give you the address." She grabs a notepad.
+"What are you fuckin' nuts? This is a mall, you tool. If you want to shoot it you'll have to take it to a shooting range. I'll write the address. Fuckin' idiot." She grabs a notepad.
 
-"It's fine. I'll take it." I didn't care. The revolver made me feel powerful and that's all that really mattered to me in this moment. Knowing that it's all I really had. A feeling of permanence. A feeling. If I couldn't fondle her now, I sure as hell could with a gun n' a faulty handle. I sign the forms. I pay with my credit card. I'm a loser. The pink highlights sure were cute though. Now call me a soldier n' hand me my award. I had officially become a man.
+"It's fine. I'll take it." I didn't really care what the gun sounded like, let alone whether it even shot at all. It was the simple act of not caring at all which made me feel powerful. God fearing, even. And I knew deep down inside that it was a feeling I simply could not live without. Neat in its moan. Exploratory in a feeling which both rose and exhalted nations within the flickering torment of its fugative evanescence. Knowing that I could be king at any moment within the cough of a trigger. The gun had to be mine. I sign the forms. I swipe my card. It bounces. I'm a loser. Her pink highlights sure were cute though, as I handed over a bunch of cash I knew I couldn't afford. Well, at least I felt plenty. Her lips weep with a tepid glow. Regal in its cynaide. It could have sworn it was high school all over again. The rampage had just begun. Fuck you mall cop. 
 
-You know, it would have been nice to have my gun holstered inside the mall. Like some kind of cop. Instead, I had my groceries in hand like a single-income mother with a penchant for refinanced cigarettes. I was broke and I was beginning to show it. 
+Groceries in hand like a single-income mother with a penchant for refinanced cigarettes, my wallet was broke and I was beginning to show it. A permanent sigh draws from my lungs, as the sadness rolled from my thoughts and into a linguine of tampered outcomes. Revolver, oh pretty revolver. Please shall you reveal my fate. 
 
 ## Scene 3 END
