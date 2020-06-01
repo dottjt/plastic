@@ -1,5 +1,9 @@
 How to Kill a Chinaman
 
+# Summary
+
+When I think about it, the central theme of this book is about coping. The entire narrative centers around the main character and their ability to cope. That's his style. That's his story. 
+
 # Time and place.
 
 The story starts on a Friday.

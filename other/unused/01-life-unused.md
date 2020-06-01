@@ -1,8 +1,12 @@
 # life-01.md
 
+The mouth baubles with a sickening delight, left by the crumbs of the star-mangled biscuits laid waist to his sweater. 
+
 until his Sicilian nipples ran raw.
 
 you could sense his mind falter at the pseudo-salad slosh of defective commentary his mouth felt compelled to reveal.
+
+Most assuredly, the rent was strong in this one, and so too was the fallacy in mine.
 
 "Truly fantastic", the editor announces from across the room as he swivels his chair towards my general direction. Hesitant in a gleam of cheap cologne and uncompromising flattery, you could sense his mind falter at the pseudo-salad slosh of defective commentary his mouth felt compelled to reveal. Struck brazen in a dyslexic haze of powdered aspartame and lopsided cheese squares, only crumbs were left of the star-mangled biscuits. Presumably store-bought for our excited listeners at home. Dwadling frantic on a notepad fit suitably for a 90s' Nickelodeon pre-teen, he was the mindless operator who would introduce himself as my only lifeline into the world of publishing, and I was the pathetic liar who intended to milk his acquaintance for all it was worth.
 
@@ -24,6 +28,7 @@ The one to concoct this evening's pseudo-salad of pain.
 
 faltering into a gargantuam puddle of chromatic green,
 
+ at a crack-clinic shootout 
 
  even more so than my initial struggle to weasel myself into the world of publishing.
 
@@ -35,6 +40,11 @@ Catching him off guard, now that I was fully disinterested in anything he had to
 At one point, I was convinced he was trying to sell me a phone plan, subtle in the dubious hints of unintelligible sign language his fingers deliberated in submissive resolution. Outweighing all logical possibility,
 
 Only to be complemented by the corduous stench which leaked from the mangled pipes from within the ceiling above. A welcome blessing to the establishment of fine-dine publishing, thankfully contained within the four walls of this room.
+
+
+136 Brightridge Avenue
+
+Following what seemed like an eternity with the world's worst therapist, it was nice to once again
 
 <!-- The curse and downfall of a 70s' decor filled to the brim with unwashed tupperware and plastic varnish, tainted by a sickly yellow synthesis oozing itself from the congregation of fake Tulips situated to the north of the perimeter, coalescing in satanic droves into the decrepit atmosphere of the dimly lit room. All while providing just enough grim to keep the magic of creativity from harming the integrity of publishing itself. -->
 

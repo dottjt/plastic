@@ -7,12 +7,12 @@ day: "Saturday."
 ## Scene 1 START
 
 ### Birthday Monologue
-
-A week of life passes by. The rain runs thin. My hair mauves dry. The work dulls. Today is my birthday. The loneliest day of the year. Crust upon the gallows, I clamour out of the seize of my mother's heinous vagina. Intent on working a dead end job cold-calling the elderly for a future claim of debt upon their graves. It was an empty echo-chamber of must-haves and has-beens; slurry in a deceit of exacerbated euphony. Grace upon the impression of a fuck-off grin. Mute is thy safeword. Desperate is thy plea.
-
+<!-- 
+A week of life passes by. The rain runs thin. My hair mauves dry. The work dulls. Today is my birthday. The loneliest day of the year. Crust upon the gallows of my clamour, as the excess droops n' slaws from the seize of my mother's vagina. Heinous as a moulded cheese. Intent on burying the elderly in a cacophony of debt n' aimless cold-calling. For the next 24 hours I was destined to be an empty echo chamber of must-haves and has-beens; slurry in a deceit of exacerbated usury. Grace upon the impression of a fuck-off grin. Mute is thy safeword. Desperate is thy plea.
+ -->
 ### Pondering Birthday
 
-I often wondered what a birthday was, aside from an excuse to feel lonely about one's existence. Statutory in its permission to congeal, like a cookie stolen from childhood by the teetering hands of a rabid adult. Ripped from your soul n' dipped in the pity of its macabre jealousy. Megalomaniac in its savage. Crave is its transpire. As you sit there in the unmaintained parking lot of an untenable KFC, face like a fat cunt, chokin' on a bucket o' chicken you found next to the decomposing corpse of a pigeon's corroding interior. Dipped in a potato n' gravy so thick, that it emulsifies your organs into a disintegrating stew. Ripe for the swollen lips of a hardened porn-addict, with a wet sock for a mother n' a tampon for a bandaid. For ol' times sake, buck-aroo. 
+I often wondered what a birthday was, beyond an excuse to feel lonely about one's existence. Statutory in its permission to congeal, like a cookie stolen from childhood by the teetering hands of a rabid adult. Ripped from your soul n' dipped in the pity of its macabre jealousy. Megalomaniac in its savage. Crave is its transpire. As you sit there in the unmaintained parking lot of an untenable KFC, face like a fat cunt, chokin' on a bucket o' chicken you found next to the decomposing corpse of a pigeon's corroding interior. Dipped in a potato n' gravy so thick, that it emulsifies your organs into a disintegrating stew. Ripe for the swollen lips of a hardened porn-addict, with a wet sock for a mother n' a tampon for a bandaid. For ol' times sake, buck-aroo. 
 
 ### Mother Texts
 
