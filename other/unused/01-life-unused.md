@@ -1,7 +1,12 @@
 # life-01.md
 
+Was it the beginning of what was to become a laborious online prank, where I, the unwitting idiot, were to be exposed as some part-time celebrity on a popular Japanese game show? I suppose only time would tell.
+
 My lips lick mine.
 
+I was ready to go postal on this one, even if it meant sacrificing my own life. Rent be thy neighbour.
+
+It was clear the rent was strong in this one.
 
 by the taint of the
 
