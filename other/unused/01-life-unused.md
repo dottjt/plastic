@@ -1,6 +1,13 @@
 # life-01.md
 
-The mouth baubles with a sickening delight, left by the crumbs of the star-mangled biscuits laid waist to his sweater. 
+My lips lick mine.
+
+
+by the taint of the
+
+The mouth baubles with a sickening delight, left by the crumbs of the star-mangled biscuits laid waist to his sweater.
+
+Rent be thy neighbour.
 
 until his Sicilian nipples ran raw.
 
@@ -28,7 +35,7 @@ The one to concoct this evening's pseudo-salad of pain.
 
 faltering into a gargantuam puddle of chromatic green,
 
- at a crack-clinic shootout 
+ at a crack-clinic shootout
 
  even more so than my initial struggle to weasel myself into the world of publishing.
 
@@ -108,3 +115,8 @@ Surely it was abnormal to confuse verbal harassment with the extravagant excelle
 would unanimously end in a public cheer of despondence, gurgled in a  of mass-hysteria of archival gromair.
 
 My fingers tingled with a flavourful joust.
+
+
+
+as his quaint mouth baubles with a sickening delight.
+Perverse in his relative carbonation. My eyes gather lambaste upon the hints of anticipation pronouncing creed from the crest of his tongue. ,

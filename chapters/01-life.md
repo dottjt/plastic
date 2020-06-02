@@ -12,7 +12,7 @@ Welcome to life. A rancid fascination of all things particular. An overwhelming 
 
 ### Editor Introduction
 
-"Truly fantastic", announces the editor from across the room, as he swivels his chair towards my general direction. Hesitant in a gleam of cheap cologne and uncompromising flattery. Chewin' on the shake of an unpaved chunkie. Mouth struck brazen in a dyslexic haze of powdered aspartame and lopsided cheese squares. My eyes gather quaint upon the anticipation of his tongue, as his mouth baubles with a sickening delight. Left taint by the crumbs of the star-mangled biscuits laid waste to his sweater. Inconspicuously store-bought, we presume, for our excited listeners at home. For he was the mindless operator who would introduce himself as my only lifeline into the world of publishing, and I was the pathetic liar who intended to milk his acquaintance for all it was worth. Rent be thy neighbour. 
+"Truly fantastic", announces the editor from across the room, as he swivels his chair towards my general direction. Hesitant in a gleam of cheap cologne and uncompromising flattery; chewin' on the shake of an unpaved chunkie. Mouth struck brazen in a dyslexic haze of powdered aspartame and lopsided cheese squares. A maltodextrin nightmare left taint by the star-mangled biscuits laid waste to his sweater in a delegation of crumb n' matter. Inconspicuously store-bought, we presume, for our excited listeners at home. For he was the mindless operator who would introduce himself as my only lifeline into the world of publishing, and I was the pathetic liar who intended to milk his acquaintance for all it was worth. Sordid. I continue practicing my pen tricks with the half-chewed ballpoint pen he lent me earlier, as his mouth continued to bauble with a sickening delight. It was clear the rent was strong in this one.
 
 ### Editor Bluffs
 
@@ -30,7 +30,7 @@ Then across the border, sitting awkwardly by the wayside behind a facade of U.N.
 
 "You know, have you ever considered writing this, uh, material into a book? I think it would make for fascinating reading."
 
-"Well yeah, that's basically why I'm here. To get my book published," sat an audaciously sad man preoccupied firmly in this very chair. Helplessly situated in an uncaught mire of time, conveniently puzzled at the present-day theatrics of this man's somewhat infectious outreach. 
+"Well yeah, that's basically why I'm here. To get my book published," sat an audaciously sad man preoccupied firmly in this very chair. Helplessly situated in an uncaught mire of time, conveniently puzzled at the present-day theatrics of this man's somewhat infectious outreach.
 
 ### Character Bored
 
@@ -62,16 +62,16 @@ Colourful neon displays and piccadilly lights shroud the backdraw of its twisted
 
 Flocking to the streets. Vermintide folly. Naked children carelessly prance to a Communist funeral melody. Privates tucked deep inside their little foreskin gashes, ripe for the meat cleavers of Chinatown to apprehend. Thankfully the Chinese butcher is a simple rice-loving man with a delicate wife-beating texture. Often wearing nothing but a kitchen apron and a silver-chain necklace, traditionally awarded during the semi-finals of a fierce Mahjong beatdown. Cigarette in mouth. Ready to beat the grease off his forsaken cock.
 
-Further down the duration of the road, emanating through a thick haze of prudent SARS lies a badly cut-up swine. Fit with a heinous cough and a mouth-full of regurgitated maggots, gathering in rows of the hundreds. Squirming and tossing amongst the unspeakable overtones of a young man knocked fresh from his bike by a speeding lagoon. Encircled pretty. His pretty brain now a battered mess of week-old congee, haplessly conspiring to a point of chronic anemia. As his splayed cortex streamed down into the sewers of the hotpot kitchen below, ready to serve this week's special to the crowd of a many few. Then suddenly, a signal was fraught. 
+Further down the duration of the road, emanating through a thick haze of prudent SARS lies a badly cut-up swine. Fit with a heinous cough and a mouth-full of regurgitated maggots, gathering in rows of the hundreds. Squirming and tossing amongst the unspeakable overtones of a young man knocked fresh from his bike by a speeding lagoon. Encircled pretty. His pretty brain now a battered mess of week-old congee, haplessly conspiring to a point of chronic anemia. As his splayed cortex streamed down into the sewers of the hotpot kitchen below, ready to serve this week's special to the crowd of a many few. Then suddenly, a signal was fraught.
 
-the air was lost. Our time had come. 
+the air was lost. Our time had come.
 
-The deafening tintinnabulation of the bells above began their 
+The deafening tintinnabulation of the bells above began their
 
 
- displayed no fear, as they roared incessantly through the haze of the 
+ displayed no fear, as they roared incessantly through the haze of the
 
-bells above the haze began 
+bells above the haze began
 The ravage of Chinatown had commenced. Men and women alike, beating each other senseless over the cured asshole of a tenderised Peking duck, considered by many to bring good-luck and fortune. An old aunt in vile brown florals violently rubs her clitoris with a pair of coarse chopsticks, before shoving them into her nephew's ear, to be chewed and suckled while he sat in meditative silence and completed his math homework. No one was safe. No one was spared. The hunger was real and the people had spoken. Thankfully, we were only moments away from our destination, as our our view widened into a precarious shade of white, and our sense of place vanished into a cold dark room of orbital apprehension.
 
 ### Restaurant Arrival
