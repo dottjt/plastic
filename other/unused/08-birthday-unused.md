@@ -6,6 +6,7 @@ drowning in a desperate plea for lace n' affection.
 
 I wish I had a car. But instead, I had a date.
 
+ Mute is thy safeword. Desperate is thy plea.
 
 
 I often wondered what a birthday message actual is, aside from a fine-grained permission to feel.

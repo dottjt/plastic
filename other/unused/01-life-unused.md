@@ -2,6 +2,7 @@
 
 Sordidly numb. I continue to practice my pen tricks with the charm of half-chewed biro he'd decidedly offered earlier as an amiable gift for my presence. Botch n' bauble. A midway rotation around the index of my finger. It drops to the floor, as he proceeds to lick his next words with a sickening kvetch. Someone please shoot me.
 
+He licks his lips with a sickening kvetch. 
 
 Was it the beginning of what was to become a laborious online prank, where I, the unwitting idiot, were to be exposed as some part-time celebrity on a popular Japanese game show? I suppose only time would tell.
 
