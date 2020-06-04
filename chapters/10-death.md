@@ -8,15 +8,17 @@ day: "Wednesday."
 
 ### Help Monologue
 
-Hi. Have we met before? I know we probably haven't met before, but it's really nice to meet you. I like your hair. I think it's pretty. The way it flows. I definitely think we're going to get along. I'm probably sounding cheesy, but I feel that you're not quite like the others. You have a really beautiful smile and I really like the way your eyes blink. I think it's classy. Oh, and I promise not to sexualise you. As of this very moment, I've decided to take the time to write to you. To admire you. To bring you to life. Really, I spend most of my free time writing, and it's something I really enjoy doing. Hopefully enough to inspire others to write, although I'm not sure if that's such a good idea. You might even call me a writer, not that I do it for a living. It's just something that helps me feel a little more ...connected with myself.
+Hi. Have we met before? Probably not. It's nice to meet you. Yes, you. Oh, and I like your hair! I think it's really pretty. Seriously. You look gorgeous. Not quite Brad Pitt gorgeous, but it'll do. Sorry if that came across as sounding really cheesy. We're still cool, right? Cool. Oh, and thank you! That's really kind of you. I think you're cool too.
 
-You're reading this message today because I'm in dire need of help. I'm not okay. I don't quite know exactly why, only that I'm struggling to truly feel who I am. I used to be okay at feeling. It was something I did without too much thought, but today I find myself in disrepair. Unable to feel in any capacity at all. I wish things were different, but I'm unable to
-
-Which means I created you. I created you, because I have great taste in words. Isn't that right? Yeah, I think so too. Words are fun because they help me understand the world a little bit better. Words are friends, because they . Don't you love how the curves around the . I love the way you hold me.
+I suppose you're reading this message today because I need help. You see, I'm not okay. Which is weird when you think about, because what does that even mean? I mean, I'm still like living n' shit. But it just sucks. Everything. Just. Sucks. Everything is a thousand times harder than it should be, and that's just thinking about it. Fuck. I don't think I've even left left this room for the past two days. Why am I so fucked? Why can't I just be fucking normal? Would it be so hard just to unfuck myself for the next 10 minutes, so I can go grab a fucking packet of noodles and eat something. I put the pen down. It just wasn't working.
 
 ### Describe Morning
 
-I didn't really feel much that morning. Neither did I have the desire to feel, nor did I have the energy to understand what feelings were even for. No job. 4 weeks behind in rent. But at least I still had drugs. Drugs n' coffee. Coffee n' beans. I didn't like the beans so much, but the coffee made up for it.
+I didn't really feel much that morning. Nor did I have the desire to feel at all, let alone the energy to even understand what feelings were for. Unemployment was a drag. Rent I was at least four weeks overdue. You know, that thing which seemingly required constant attention, lest I disintegrate into a powder cheddar.
+
+
+
+But at least I still had drugs. Drugs n' coffee. Coffee n' beans. I didn't like the beans so much, but the coffee made up for it.
 
 
 But hey, it was a Saturday morning, the lungs were still breathing and I didn't quite have the courage to pull the trigger,  which essentially meant only one thing. It was time to tab.
