@@ -5,44 +5,42 @@ day: "Wednesday."
 ---
 
 ## Scene 1 START
-
+<!--
 ### Help Monologue
 
-Hi. Have we met before? Probably not. It's nice to meet you. Yes, you. Oh, and I like your hair! I think it's really pretty. Seriously. You look gorgeous. Not quite Brad Pitt gorgeous, but it'll do. Sorry if that came across as sounding really cheesy. We're still cool, right? Cool. Oh, and thank you! That's really kind of you. I think you're cool too.
+Hi. Have we met before? Probably not. Although it's really nice to meet you! Oh, and I really like your hair! I think it's a-b-s-o-l-u-t-e-l-y fantastic! Seriously. You look stunning. Gorgeous. Not quite Brad Pitt gorgeous, but if that ain't pre-cum, then I don't know what is. Sorry if that came across as being a bit, uh, strong. We're still cool, right? Buddy. Buddy-o. Oh, and thank you! You're super kind, and I think you're cool too. We should be suede pals. Sticky fodder. Beatnik puppies. The kind of soup that warms you up n' keeps you placid. Content. I think we're going to get along just fine. Just. Fine.
 
-I suppose you're reading this message today because I need help. You see, I'm not okay. Which is weird when you think about, because what does that even mean? I mean, I'm still like living n' shit. But it just sucks. Everything. Just. Sucks. Everything is a thousand times harder than it should be, and that's just thinking about it. Fuck. I don't think I've even left left this room for the past two days. Why am I so fucked? Why can't I just be fucking normal? Would it be so hard just to unfuck myself for the next 10 minutes, so I can go grab a fucking packet of noodles and eat something. I put the pen down. It just wasn't working.
-
+I suppose you're reading this message today because I need help. You see, I'm not okay. Which is weird. Because I'm not dying or anything. I can still string these jolly ol' words together n' make a complete fool of myself on the internet. But that's not the point. The point is that everything sucks. It just sucks. Hell, even thinking about it just sucks. It's like everything is just a thousand times harder than it should be, and I couldn't possibly understand why. Fuck. Why am I so fucked? Why can't I just be fucking normal!? Would it be so hard just to unfuck myself for the next 10 minutes, so I can grab something to eat and just shut the fuck up!? I withdrew myself from my keyboard. Clearly it wasn't working.
+ -->
 ### Describe Morning
 
-I didn't really feel much that morning. Nor did I have the desire to feel at all, let alone the energy to even understand what feelings were for. Unemployment was a drag. Rent I was at least four weeks overdue. You know, that thing which seemingly required constant attention, lest I disintegrate into a powder cheddar.
+I didn't really feel much that morning, nor did I have the energy to understand what feelings I required to proceed. At the very least I knew I was sad. Alone. Unemployment was proving to be a drag, and my rent was considerably overdue. You know, that thing which demands the world from you your soul, lest you disintegrate into the torpid fine-dining equivalent of a powdered cheddar. But hey. It was a Saturday morning. My lungs were still functioning, and there was hope that they would continue to function until at least lunch. Where I would enjoy a fictional sourdough, relish with the cherry chutney of a vineyard Château. In reality, I planned to get obscenely high. For Saturday was tab day; my favourite day of the week. Although recently both Monday and Tuesday, and Wednesday, and Friday had also become tab day. So really, was it even tab day at all?
 
+### Describe Tab Usage
 
+I couldn't remember when I first started taking tabs, but I suppose it was no different to when I started masturbating or hating my mother. All I knew is that they had become a regular fact of life; a cherish without the joy. I personally like to think of them as synonymous equalisers. A bit like washing lettice with a salad spinner. Clean n' squeaky.
 
-But at least I still had drugs. Drugs n' coffee. Coffee n' beans. I didn't like the beans so much, but the coffee made up for it.
-
-
-But hey, it was a Saturday morning, the lungs were still breathing and I didn't quite have the courage to pull the trigger,  which essentially meant only one thing. It was time to tab.
-
-### The Tab.
-
-I couldn't remember when I first started taking tabs, but teenage me was always keen to try new things. Subtle ways to break the thin vein of tension which arose from thy evil, thy mother and thy sin. Tot n' trot. Thankfully adult me was even more than keen to spend his adult credits pursuing such desires, uncouth in the odities of human existence.
-
-Take your ego for a spin through a
-
-It was a bit like putting your brain through a lettuce spinner, it would help
-
-Like most uncouth, tabs had become a regular fact of life. Ego refreshers. They helped break down absolutely everything you knew about yourself into useless piles of silt. Just fine enough that you couldn't quite hold it within your hands, but solid enough that you could see it with your own eyes. The key was to take em' once every two weeks, otherwise you'd end up messing with your tolerance. With something like LSD you could probably get away with takin' em' once every week, although LSD was nowhere near as strong as the research chemicals I was digesting. They were significantly cheaper, nearly 10 times as strong and they packed a punch which left you completely incapacitated in the most euphoric of ways. They were a variant of nBome. 25i-nBome. The strongest and most visual of the nBome compounds. Certainly if I had my own way, I'd be completely transfixed in a permanent state of constant morphing and transfixing. I loved the morphing. It was arguably the best feeling in the world, well-beyond the euphoria of porn. Porn while on tabs? I honestly couldn't possibly describe anything more euphoric in the whole entire world. I always described tabs as a kind of psychopathic candy land where you die and become god. An opportunity to explore how gullible you truly were.
-
-Recently I've just been chaining them.
 
 LSD was a Psychopath's playground.
+
+
+I held the ten-rack in my hands.
+
+
+
+
+Certainly if I had my own way, I'd be completely transfixed in a permanent state of constant morphing and transfixing. I loved the morphing. It was arguably the best feeling in the world, well-beyond the euphoria of porn. Porn while on tabs? I honestly couldn't possibly describe anything more euphoric in the whole entire world. I always described tabs as a kind of psychopathic candy land where you die and become god. An opportunity to explore how gullible you truly were.
+
+
 
 
 The only thing I didn't like about the tabs was the vasoconstriction. It felt as if your veins were being suffocated from the outside-in.
 
 The key with takin' tabs is to keep them away from light. It was also important to smoke weed beforehand, as it synergised with the psychadelic properties of hte tabs.
 
-Thankfully the tabs were nothing like the seeds. You'd have to perform an alcohol extraction on them. I personally used methylated spirits, which more-or-less was pure ethanol, minus some compounds which were placed inside it to make you want to purge yourself. Some methylated spirits actually contain compounds which make you go blind. Thankfully I called the manufacturer and they confirmed that it was fully safe. They must have known that I was up to something.
+
+
+
 
 ### Describe The Wait
 
