@@ -14,34 +14,42 @@ A week of life passes by. The rain runs thin. My hair mauves dry. The work dulls
 
 "Welcome to life," I murmur. Arms dangled by the sides. Mouth obtuse from the chaotic glamour of a frozen apple pie. Bosom with a sulphurous cream laid thick across its stomry edge. Motionless in the static frowning of my displaced face; splay against the interference of the living room TV. Enthusaism set aside. Baked as a banana. Compelled to spit n' choke with my own two hands, the remaining joy of life from thy resevoir of me. I turn off the set in a shambolic boredom, ready to lower my expectations to an unequivocal zero. I suppose it was the best I could do with what little faith I had left in myself. The squander was real. Fucking real.
 
-Amongst the sedentary sprinkle of the fine winter gloss, pretty in its edifying temperament, was me. Utterly dejected with a resolve of couch. Caught in a volatile discord of teetering instability, as I questioned the very purpose of my existence on this day. Was a birthday merely an excuse to feel lonely about one's own circumstance? Statutory in its permission to congeal; to be ripped from your soul n' dipped in the pity of its own macabre jealousy. Megalomaniac in its savage. Cunt. Torn. Impassioned. As you sit there in the untenable parking lot of an unmaintained KFC. Face like a fat cunt. Chokin' on a bucket o' chicken you found next to the decomposing corpse of a pigeon's desiccating exterior. Spliced in a potato n' gravy so gruesome, and so thick. That its presence alone is enough to emulsify your organs into a disheartening stew of spalled highlight. Ripe for the swollen lips of an frenzied porn-addict, featuring a wet sock for a mother n' a discarded tampon for a lover. You know, for ol' times sake. Buck-aroo.
-
--->
+Amongst the sedentary sprinkle of the fine winter gloss, pretty in its edifying temperament, was me. Utterly dejected with a resolve of couch. Caught in a volatile discord of teetering instability, as I questioned the very purpose of my existence on this day. Was a birthday merely an excuse to feel lonely about one's own circumstance? Statutory in its permission to congeal; to be ripped from your soul n' dipped in the pity of its own macabre jealousy. Megalomaniac in its savage. Cunt. Torn. Impassioned. As you sit there in the untenable parking lot of an unmaintained KFC. Face like a fat cunt. Chokin' on a bucket o' chicken you found next to the decomposing corpse of a desiccating pigeon. Spliced in a potato n' gravy so gruesome, and so thick. That its presence alone is enough to emulsify your organs into a disheartening stew of spalled highlight. Ripe for the swollen lips of an frenzied porn-addict, featuring a wet sock for a mother n' a discarded tampon for a lover. You know, for ol' times sake. Buck-aroo.
 
 ### Mother Texts
 
-I grouch from my position. It's 10:35am. A text from my mother. Feelings of hatred overcome me. Immense in their swallow. That bitch. That fucking bitch. The anger troves in and around me, aggravating my emotions into an overdrive of biting violence. 
+I grouch from my position. It's 10:35am. A text from my mother. Anger. Feelings of respite. They overcome me. Immense in their swallow. That bitch. That fucking bitch. The wrath troves in and around me, aggravating my emotions into an overdrive of biting violence; ensnare against the violent swirl of sweat fell tandem across the hostility of my crimson anarchy. A twitch of self-harm emerges. Resentment. Mottled indigo. I crush my own skull. A fervent aggression circulates within me. Rage. I felt rage. Whirlwind and burst from within the indignation which teased me. Infurating me to a point of voiceless screaming. A catastrophic cuss of doth and cower. My heart weakens. My reaction seeks revulsion. I proceed to block her number. Fuck her. It's the least she deserved.
 
- to swirl in tandem around the big ball of fire calculating thought into a bucket of crimson anarchy. A twitch of self-harm emerges. Grabbing me by the throat in a violent slam of mottled indigo, now caught in a whirlwind of fervent aggression. Rage. Predominantly I felt rage from the indignation which burst from my infuriation with the Führer itself. The kind of anger which inevitably evolves into a catastrophic cuss of doth and cower. I block her number. It's just how I cope.
+### Sadness Grows
 
-### Feeling Suicidial
+It's now 10:45am. I don't feel so lucky. Maybe birthdays weren't meant to feel lucky. Maybe they had more to do with glitter and cellophane, than any kind of self-care or routine. My hands turn a frantic cold. With it, an unmatched sense of sadness my fingers had come to parade. Slow and delicate like their fathers. Searching for any semblance of joy which may make itself noticed. Enveloping my body in a web of decaying atrophy. Teaching me silence. Guiding me towards the poorest. I suppose these words were the only thing keeping me from vomitting all over my chest, and excreting the anesthetic holding my misery together. It was time for a bite.
 
-It's now 10:45am. I'm not feeling so lucky. My life has been paired with an unmatched sense of sadness, as it grows organically out of my lungs and into the outer-reaches of the world. Search for any semblance of joy. Enveloping my body in a web of decaying atrophy. Teaching me silence. Guiding me towards poorest undersurface of a
-
- These words are the only thing keeping me from vomitting all over the linen.
-
-The time is 11:00am. I don't quite know what to make of the saturated bowl of strewn wheat in front of me. The tasteless slop congealed muck at the bottom of the food pyramid. I can feel the echo in my heart. The yearning which whispers your name
-
-
-Maybe I was feeling lucky this morning.
+The time is 11:00am. I don't quite know what to make of the saturated bowl of strewn wheat, chaff inside the interior of a wooden catalogue collection. The tasteless slop of a mid-life muck; the food pyramid equivalent of a pitiful mess. The yearn. It defeans in its silent whispers, chasming the cheer you so desperately want to hear. Maybe that was luck. Maybe I was lucky.
 
 ### Attempts Suicide
 
-Saturday morning. Sunday autopsy. Duck-taped to the underside of my desk, I vainly attempt to rip the pistol from the fragmented clumps of dust underlying the trigger, pointing the barrel of the gun at my head. I can feel it sneeze. Manic in its worry. I cry. I whimper. I breathe. I scream. I sustain it. I scream so loud I can feel my throat polymerise blood into tracks of . Ears turning a bright purple. My finger slips, and I am interrupted. "Shut the fuck up!" my neighbour shouts from across the hall, furious at the relative loss of peace my existence has caused to their regular programming. I put the gun down and continue to stare at the wall in front of me, splintered in the flakes of white gloss peeling in the isolated sections of my unjustified desire to live. The doorbell rings. It's my friend. It's my birthday. I just want to die.
+The time is 11:01am. Duct-taped to the underside of my desk is the revolver I purchased last Sunday while scouring for pleasing children at the mall. I'm not sure why I used duct-tape, but it was the kind of visceral which felt complete in this house of proportionate nonsense. I attempt to rip the revolver from the fragmented clumps of dust which had gathered from the absence of my life. Now trailing for a reason to subsist. I place my finger on the trigger of the gun. Barrel pointed at my head. I can feel it sneeze. I breathe. I suppose I wanted to feel like a man in these last few frames before my brain becomes a conflated withdrawal of sentiment. I think of Milo. The love I cannot feel. Sunday autopsy. I whimper. I cry. I scream. It sustains. It reverberates. I scream so loud that I can feel my throat polymerise into clotted blood. My ears turn a bright purple. I'm confident. I can do it. I believe it. I am ready. I stop the screaming and the silence begins.
+
+I pull the trigger. The revolver releases a sudden click of death. I subside, and put the gun down. Continuing to stare at the walls in front of me; splintering at the flakes of white teal, peeling in isolation from the rest of my world. The relief is overwhelming, although expected. I call it gun therapy. I come from work. I point the gun at my head. I scream as loud as I can. I pretend to kill myself. And thus I am free for another day. To pretend as little or as much as I want, until I am reborn a fool into the next day. It's cute, and it proves that I'm marriage material.
+
+The time is now 12:00am. I have fallen asleep for at least 20 minutes. The doorbell rings. It interrupts my beauty sleep. I'm afraid society will judge me. I'm just kidding, of course. It's my friend. It's my birthday. It's my time to animate. It's my time to die.
+-->
+
+## Scene 1 END
+
+####
+
+## Scene 2 START
 
 ### Introduce Friend
 
-"Show us some cleavage, honey," boasts the man at the door, holding a half opened-can of Guinness n' poorly wrapped . A suitable greeting for this 27 year old writer, dressed in yesterday's t-shirt. A stain on this earth to be admonished in ever diminishing quantities, sunken without Christ. His coarse facial hair brushes against my cheek as he dives in for a hug.
+"Show us some cleave, honey," boasts the questionable man at the door. Holding a half-opened can of Guinness. Poorly wrapped inside what looked like the remenants of
+
+
+ Reeking of cheap beer.
+
+
+  . A suitable greeting for this 27 year old writer, dressed in yesterday's t-shirt. A stain on this earth to be admonished in ever diminishing quantities, sunken without Christ. His coarse facial hair brushes against my cheek as he dives in for a hug.
 
 
 The doorbell rings again. It's Milo. Queen Bee. I race to the door in a rush of excitement, bumping my knee on a bookshelf full of Victorian classics. Surely it made girls wet.
@@ -52,11 +60,11 @@ The boob and the sex-queen sat together on the couch opposing, trying to figure 
 
 
 
-## Scene 1 END
+## Scene 2 END
 
 ####
 
-## Scene 2 START
+## Scene 3 START
 
 ### Describe Taxi Ride
 
@@ -85,16 +93,5 @@ The enchilada. An inoffensive mound of maize-infused goop, seared in a second-ha
 Hid behind my over-sized sombrero, the streaming lights of the 8pm disco-ball.
 Its
 
-## Scene 2 END
-
-####
-
-## Scene 3 START
-
-
-
-I sat back at my desk.
-
-Ah, fuck therapy.
 
 ## Scene 3 END
