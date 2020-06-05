@@ -53,13 +53,13 @@ I wasn't quite sure what I to think of my friend. A living, breathing exhibit of
 
 "Can you please not drink my milk," I respond.
 
-"Yeah, but you know it helps me deal with my hangovers, and I couldn't possibly tell you how bad my head is doing right now." The man settles for soy. Hell, I didn't even realise I had soy. Since when did I drink soy? He grabs himself a used cup from within the sink. I wasn't quite sure how he was still alive.
+"Yeah, but you know it's the ultimate hangover cure, and I've got an absolute killer hangover right now." The man settles for soy. Hell, I didn't even realise I had soy in the fridge. Since when did I drink soy? He grabs a used cup from the sink, pouring the viscous concotion of canola-like substance into the clumpy plop of the lasanga-stained cup. He throws me an emotive smile as a splatter of soy brushes his face. I wasn't quite sure how this man was still alive.
 
-For at least the next 40 minutes we sat there on the couch making each other laugh. He drank soy under an alcoholic anthem of make-believe sobriety, and I validated his self-worth with . It was a worthy distraction from .
+For the next 40 minutes we sat on the couch and made each other laugh. He drank soy under an alcoholic anthem of a make-believe sobriety, and I validated his self-worth with . It was a worthy distraction from .
 
 "Oh, and as it's your special day, I've got my favourite man a little something."
 
-He places a hand into his satchel. A crushed cupcake appears . The icing was a hard as dried camel's blood. I didn't feel safe. 
+He places a hand into his satchel. A crushed cupcake appears . The icing was a hard as dried camel's blood. I didn't feel safe.
 
 
 
