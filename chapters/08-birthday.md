@@ -43,13 +43,29 @@ The time is now 12:00am. I have fallen asleep for at least 20 minutes. The doorb
 
 ### Introduce Friend
 
-"Show us some cleave, honey," boasts the questionable man at the door. Holding a half-opened can of Guinness. Poorly wrapped inside what looked like the remenants of
+"Show us some cleave, honey," boasts the questionable man at the door. Gauding a half-opened can of Guinness, ripple bibacious along the cusp of drivel stained-deep upon his ruffled sweater. Teeth like a discoloured jigsaw, soilure in the pettily wrapped tea towel hung coon from his neck at all times. A suitable greeting for this 27 year old writer; a stain on this earth to be admonished in ever diminishing quantities. Sunken on these shores without even a hint of Christ to spill n' plunder. The burly outpost of a human dives in towards my stiff bedazzlement for a hug, as he brushes his coarse beard against the tuft of my cheek. The stench of imported beer from his chin was unbearable.
+
+"Alright, alright. Just get inside before my neighbours think I've hired a male prostitute." Only I laugh at the remark.
+
+I wasn't quite sure what I to think of my friend. A living, breathing exhibit of impulsive extroversion, caked to the brim with enough coffee and Red Bull to fund an entire military campaign. He was living proof that you could in fact polish a turd and get away with anything. He proceeded to rummage through my fridge in the search for milk. I really wish he wouldn't.
+
+"Hey, have you got any milk?"
+
+"Can you please not drink my milk," I respond.
+
+"Yeah, but you know it helps me deal with my hangovers, and I couldn't possibly tell you how bad my head is doing right now." The man settles for soy. Hell, I didn't even realise I had soy. Since when did I drink soy? He grabs himself a used cup from within the sink. I wasn't quite sure how he was still alive.
+
+For at least the next 40 minutes we sat there on the couch making each other laugh. He drank soy under an alcoholic anthem of make-believe sobriety, and I validated his self-worth with . It was a worthy distraction from .
+
+"Oh, and as it's your special day, I've got my favourite man a little something."
+
+He places a hand into his satchel. A crushed cupcake appears . The icing was a hard as dried camel's blood. I didn't feel safe. 
 
 
- Reeking of cheap beer.
+
+Larry was an
 
 
-  . A suitable greeting for this 27 year old writer, dressed in yesterday's t-shirt. A stain on this earth to be admonished in ever diminishing quantities, sunken without Christ. His coarse facial hair brushes against my cheek as he dives in for a hug.
 
 
 The doorbell rings again. It's Milo. Queen Bee. I race to the door in a rush of excitement, bumping my knee on a bookshelf full of Victorian classics. Surely it made girls wet.

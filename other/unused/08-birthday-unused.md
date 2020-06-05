@@ -18,3 +18,5 @@ I often wondered what a birthday message actual is, aside from a fine-grained pe
 you hadn't yet been raped and tortured by some Taliban rookie in a silk robe, hungry to supply the American's with an ever-growing quantity of pure Afghani Opium. His glutinous fingers, a constant threat for your safety. You fear the black tar.
 
 as I wear the hearty embrace of a . Grace upon the impression of my chinny chin chin. Muted in its love n' attention.
+
+I wasn't quite sure how he was still alive.
