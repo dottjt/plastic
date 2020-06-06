@@ -53,7 +53,10 @@ I wasn't quite sure what I to think of my friend. A living, breathing exhibit of
 
 "Can you please not drink my milk," I respond.
 
-"Yeah, but you know it's the ultimate hangover cure, and I've got an absolute killer hangover right now." The man settles for soy. Hell, I didn't even realise I had soy in the fridge. Since when did I drink soy? He grabs a used cup from the sink, pouring the viscous concotion of canola-like substance into the clumpy plop of the lasanga-stained cup. He throws me an emotive smile as a splatter of soy brushes his face. I wasn't quite sure how this man was still alive.
+"Yeah, but you know it's the ultimate hangover cure, and I've got an absolute killer hangover right now." The man settles for soy. Hell, I didn't even realise I had soy in the fridge. Since when did I drink soy? He grabs a used cup from the sink. Pouring the viscous concotion of canola-like substance into the clumpy plop of the lasanga-stained cup. He throws me an emotive smile my way, as a splatter of soy brushes the outer molecular his face. I wasn't quite sure how this man was still alive.
+
+contortion
+
 
 For the next 40 minutes we sat on the couch and made each other laugh. He drank soy under an alcoholic anthem of a make-believe sobriety, and I validated his self-worth with . It was a worthy distraction from .
 
