@@ -20,11 +20,13 @@ Welcome to life. A rancid fascination of all things particular. An overwhelming 
 
 Dawdled frantic onto a notepad fit suitably for a 90s' Nickelodeon pre-teen, it was clear he had no idea what his was talking about. Hell, I wasn't even sure if he knew what time of day it was. Perhaps his response was a generous expression of misplaced animosity. An uncultivated attempt at statutory rape? Perhaps it was the beginning of what was to become a laborious online prank, where I, the unwitting idiot, were to be exposed as some part-time celebrity on a popular Japanese game show. I simply could not tell.
 
+### Describe Editor
+
 Perhaps it was in part the result of a fatherless upbringing, rushed illiterate through a delinquent craze of conservative vice-chancellery and ethnic malfeasance. Deep from within the backwaters of a clandestine women's society; keen on beating the fluff out of potato to prove its self-worth in the inter-continental submission of a 3rd world delight. Sure. I'd probably fuck it too. Me and my words. Dressed in mortal calamity. Blind in an unfortunate sexual encounter involving my last moments in an exploding orgasm, and a terribly shy lackey with a syllable for a grin. How superfluous, I thought to myself. My face drops to the floor. The conversation continues.
 
 I suppose it was the level of respect I garnered as an unknown assailant. Possibly attached to his meaningless gestures delivered haphazardly like the illegitimate leader of an unknown guerrilla war. Che Guevara au lite. The raved lunatic of a ritual patriarchal circle-jerk. Head o' the New an' Improved Mickey Mouse Club. Accent dripped-thick in the ancient tar of a dead Italian laid-limp over his heartless sleeves and into the repeating glares of purgatory. A cursory sanctuary for two-time real estate agents and doofus car salesmen, as they gather n' worship thy enumeration of thee poor. Ultimately the editor was a man reassured by the might n' glory of a three-hour Tony Robbins' lecture once witnessed in full three-minute summary. Cantankerously basked in a level of self-gratification not last seen since the Holy Roman Empire.
 
-### Describes Character
+### Describe Character
 
 Then across the border, sitting awkwardly by the wayside behind a facade of U.N. sponsored barbed-wire. Enclosed within the prevailing attitudes showering its echoing dialogue of vindictive tempest and sparkling doubt, was me. An unruly clash against the unsettling intentions revealing themselves in the faint colonies of pop-sweat rippling through the arcade of my skin. Revolting. Glorious. I couldn't have been more uncomfortable, nor under-represented in this fraudulent battering of intellectual deceit. But I assured myself that everything would be okay as long as I continued to embrace the sodomy, in full. Thankfully, Aristotle was blasphemous.
 
@@ -32,11 +34,15 @@ Then across the border, sitting awkwardly by the wayside behind a facade of U.N.
 
 "Well yeah, that's basically why I'm here. To get my book published," sat an audaciously sad man preoccupied firmly in this very chair. Helplessly situated in an uncaught mire of time. Conveniently puzzled at the present-day theatrics of this man's somewhat infectious outreach.
 
-### Character Bored
+### Character Discontent
 
 Then soon, an entire lifetime of small talk and faux pleasantries would transpire in my head. Capturing me in arrival at Dante's fuck-pen of ill-conceived trickery. Curtailous damnation. The disease was near. And in the wisp that followed from the uncomplicated sylph of his dry words, bore the demons of rheumy. Pinning me down upon the pewter of the handwood floors below. Nailing my jaw into the rhymes of oblivion. Tick. Tick. Tack. It was obvious in this moment that our dialog was mute and that our misaligned rivalry was nothing more than sour n' dew. He wanted to see himself in everything, and I simply wanted to be acknowledged, loved and possibly adjourned like a house cat on trial. Possibly for dragging a dead mutilated creature into the living room during a heated quarter-final of Friday Night Football.
 
+### Character Describes Editor
+
 I decided to reach for the mug o' water conveniently placed next to the picture of a scantily-dressed child in tight cheerleader's seduce. Presumably reared to have the words "Daddy's girl" tattooed on her forehead before being fucked in front of a live camera-crew and eager internet audience of millions. Just as the Yakuza would preach. And as the lukewarm liquid of the polystyrene cup trickled down my throat, even my basic bodily functions could sense the paltry catalogue of this poor man's courageous attempt at azure. Now developing itself into the middle-aged caricature of a homeless veteran deep-throating his prized roadkill for the thrill of the violence. His deadbeat practice. The refulgence of his bane. That filament of gore which doth shone bright upon the piercing tenement of his frail unenthusiastic heart. Undoubtedly I sat there wondering who this man even was, as I forced myself to exhale deep into my lungs before bringing my smile into a full, unmatched forte. The tallow was wild tonight.
+
+### Editor hungry
 
 "It's fast approaching twelve and I'd absolutely kill for a bite. You like Chinese? You're Chinese, right? I mean, you just have that slight gook look to you. No offense, cutter." Sure. Absolutely nothing offensive about wish-washing the unadulterated scum out of my life, you pantomime sack of shit. I've scraped less-abrasive gunk from the self-mutilated pussy of a dead-hooker's final stand, than I've spent today, hearing you mutter the two-ounce garbage tract of poorly-spoken English you claim is wholly integral to the left side of your brain.
 
@@ -62,25 +68,17 @@ Colourful neon displays and piccadilly lights shroud the backdraw of its twisted
 
 Flocking to the streets. Vermintide folly. Naked children carelessly prance to a Communist funeral melody. Privates tucked deep inside their little foreskin gashes, ripe for the meat cleavers of Chinatown to apprehend. Thankfully the Chinese butcher is a simple rice-loving man with a delicate wife-beating texture. Often wearing nothing but a kitchen apron and a silver-chain necklace, traditionally awarded during the semi-finals of a fierce Mahjong beatdown. Cigarette in mouth. Ready to beat the grease off his forsaken cock.
 
-Further down the duration of the road, emanating through a thick haze of prudent SARS lies a badly cut-up swine. Fit with a heinous cough and a mouth-full of regurgitated maggots, gathering in rows of the hundreds. Squirming and tossing amongst the unspeakable overtones of a young man knocked fresh from his bike by a speeding lagoon. Encircled pretty. His pretty brain now a battered mess of week-old congee, haplessly conspiring to a point of chronic anemia. As his splayed cortex streamed down into the sewers of the hotpot kitchen below, ready to serve this week's special to the crowd of a many few. Then suddenly, a signal was fraught.
+Further down the duration of the road, emanating through a thick haze of prudent SARS lies a badly cut-up swine. Fit with a heinous cough and a mouth-full of regurgitated maggots, gathering in rows of the hundreds. Squirming and tossing amongst the unspeakable overtones of a young man knocked fresh from his bike by a speeding lagoon. Encircled pretty. His pretty brain now a battered mess of week-old congee, haplessly conspiring to a point of chronic anemia. As his splayed cortex streamed down into the sewers of the hotpot kitchen below, ready to serve this week's special to the crowd of a many few. Then suddenly, the deafening tintinnabulation of the bells above began their roar as the people below weakened to their hunger. Our time was nigh.
 
-the air was lost. Our time had come.
-
-The deafening tintinnabulation of the bells above began their
-
-
- displayed no fear, as they roared incessantly through the haze of the
-
-bells above the haze began
-The ravage of Chinatown had commenced. Men and women alike, beating each other senseless over the cured asshole of a tenderised Peking duck, considered by many to bring good-luck and fortune. An old aunt in vile brown florals violently rubs her clitoris with a pair of coarse chopsticks, before shoving them into her nephew's ear, to be chewed and suckled while he sat in meditative silence and completed his math homework. No one was safe. No one was spared. The hunger was real and the people had spoken. Thankfully, we were only moments away from our destination, as our our view widened into a precarious shade of white, and our sense of place vanished into a cold dark room of orbital apprehension.
+The ravage of Chinatown had commenced, as men and women alike, beat each other senseless over the cured remains of a tenderised Peking duck's asshole. Considered by many to bring luck and good fortune, as an old aunt in vile brown florals violently rubs her clitoris with a pair of coarse chopsticks. Readily her gaze before shoving the freshily prepared utensils into the cavern of her nephew's ear, which was to be chewed and suckled in meditative silence, while he sat there being devoured as he completed his fourth grade assignment. No one was safe. No one was spared. The hunger was real and the people had spoken. Thankfully, we were only moments away from our destination, as the chaos quietened and our our view widened into a precarious shade of white. Vanish into a cold dark room of orbital apprehension, privy to our newfound sense of place.
 
 ### Restaurant Arrival
 
-"I too wanted to become a writer once," the editor blurted, as if making some kind of ultimate sacrifice against his own will.
+"I wanted to become a writer too once," the editor blurted, as if making some kind of ultimate sacrifice against his own will.
 
-"But I figured the money was better on the other side of the fence. You know? And man, I honestly couldn't think of anything worse than writing."
+"But I figured the money was better on the other side of the fence, if you know what I mean. And man, I honestly couldn't think of anything worse than writing a novel. Talk about being bored shitless."
 
-Although certain in what I heard, I wasn't quite sure how to respond, let alone comprehend what little meaning was left in his words, as I pushed through the plastic-bead opening designed to keep white-face out.
+Although certain in what I heard, I wasn't quite sure how to respond. Let alone comprehend what little meaning was left in his words, as I pushed through the plastic-beads of the restaurant, designed to keep white-face like editor out.
 
 ### The Ming Description
 

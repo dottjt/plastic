@@ -1,6 +1,8 @@
 # diary.
 
-01/06/2020 - Well, well. This is the first time I've written this book in close to an entire month. I've been busy doing nothing but working on the podcast, well as my personal website. The good news however that this is all done, and I'm ready to write the book. The excellent news is that my writing ability, as well as my motivation, is as good as ever. And in fact, not writing for a while has provided incredible perspective in terms of being able to colourfully refactor the story at large. 
+07/06/2020 - I've been writing fairly consistently lately, which has been awesome. I have a clear idea of how to progress the story at least until the death chapter. Milo returns in the birthday chapter, then maybe I can have a restaurant chapter in the end. I think that would be pretty awesome. Oh, and Maria joins in at the end of Chapter 8. That would be pretty swell as well!
+
+01/06/2020 - Well, well. This is the first time I've written this book in close to an entire month. I've been busy doing nothing but working on the podcast, well as my personal website. The good news however that this is all done, and I'm ready to write the book. The excellent news is that my writing ability, as well as my motivation, is as good as ever. And in fact, not writing for a while has provided incredible perspective in terms of being able to colourfully refactor the story at large.
 
 17/05/2020 - I haven't been writing the novel for the past week. Rather I have been building my new personal website, as well as getting everything ready for The Writer's Daily, my new podcast. So I built the recording studio, as well as working on designing logos etc. Good news is that I have a cover for how to kill a chinaman now as well, which is pretty awesome. Thankfully the website is nearly done, just have a little bit to go today, and then we're all good to go and ready to write the novel again :)
 

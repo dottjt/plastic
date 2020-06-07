@@ -67,9 +67,10 @@ I imagine the manuscript will be finished sometime in 2021.
 
 ### Chapter 08 - birthday.
 
-- It's the character's birthday. He's lonely. Contemplates suicide.
+- It's the character's birthday. He's lonely. Participates in "Gun Therapy"
 - Friend arrives. They chat and discuss life.
-- They head out to a mexican restaurant.
+- Milo appears out of the blue. He invites her in.
+- They take an uber and head out to a mexican restaurant.
 
 ### Chapter 09 - bubble.
 

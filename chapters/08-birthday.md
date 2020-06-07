@@ -33,7 +33,7 @@ The time is 11:01am. Duct-taped to the underside of my desk is the revolver I pu
 I pull the trigger. The revolver releases a sudden click of death. I subside, and put the gun down. Continuing to stare at the walls in front of me; splintering at the flakes of white teal, peeling in isolation from the rest of my world. The relief is overwhelming, although expected. I call it gun therapy. I come from work. I point the gun at my head. I scream as loud as I can. I pretend to kill myself. And thus I am free for another day. To pretend as little or as much as I want, until I am reborn a fool into the next day. It's cute, and it proves that I'm marriage material.
 
 The time is now 12:00am. I have fallen asleep for at least 20 minutes. The doorbell rings. It interrupts my beauty sleep. I'm afraid society will judge me. I'm just kidding, of course. It's my friend. It's my birthday. It's my time to animate. It's my time to die.
--->
+
 
 ## Scene 1 END
 
@@ -43,31 +43,44 @@ The time is now 12:00am. I have fallen asleep for at least 20 minutes. The doorb
 
 ### Introduce Friend
 
-"Show us some cleave, honey," boasts the burly man at the door. Gauding a half-opened can of Guinness, ripple bibacious along the cusp of drivel stained-deep upon the ruffle of his chestnut sweater. Teeth like a discoloured jigsaw; soilure in the pettily wrapped tea-towel hung coon from the brace of his neck. A suitable greeting for this 27 year old writer, a stain upon this earth to be admonished in ever diminishing quantities. Sunk deep on these shores, without even a hint of Christ to splunder, the questionable outpost collapses from his knees like the gloom of a lamented Jersey deluge. As he dives in towards my stiff embezzlement for what seems like an momentous hug. The weight of his chest, now digging deep through the barricade of my arms, contrast against his coarse beard scruff running taut against my cheek with the unhinge of a drunken tiger. Stench upon the imported persuasion of a Norwegian beer. Hoping I would survive the next 24 hours without a hemorrhage or a cardiac response to call home, although even I felt that was too late.
+"Show us some cleave, honey," boasts the burly man at the door. Gauding a half-opened can of Guinness ripple bibacious along a cusp of drivel, stained-deep from within the ruffle of his chestnut sweater. Teeth like a discoloured jigsaw; soilure in the pettily wrapped tea-towel hung coon from the brace of his pastel neck. Ready to start the party; a suitable greeting for this now 27 year old writer, a stain upon this earth to be admonished in ever diminishing quantities. Sunk deep on these shores, without even a hint of Christ to splunder. I thought highly of none. Collapsing on his knees like the gloom of a lamented Jersey deluge, the questionable outpost dives in towards my stiff embezzlement for what seems like an momentous hug. As the weight of his chest digs deep through the barricade of my arms, contrast against the coarse scruff of his beard running taut against my cheek with the unhinge of a drunken tiger. Stench upon the imported persuasion of an ordinary Norwegian beer, as I stood there hoping to survive the next 24 hours without suffering a hemorrhage or a cardiac response. Although even I felt it was too late to survive.
 
-"Alright, alright. Just get inside before my neighbours think I've hired a male prostitute." Only I laugh at the remark, although on some level I knew he found it funny too.
+"Alright, alright. Just get inside before my neighbours think I've hired a male prostitute." Only I laugh at the remark. Although we both knew I'd hit gold.
 
-I wasn't quite sure what I to think of my friend. A living, breathing exhibit of impulsive extroversion, caked to the brim with enough coffee and powdered ginseng to fund an entire military campaign into the Andes. He was living proof that you could in fact polish a turd, and get away with absolutely anything. I kept a keen eye on him as he proceeded to rummage through my fridge, displacing what little pride I had left amongst the containers of takeout which had once embraced my stomach. I think he was searching for milk. I really wish he wouldn't.
+### Friend Seeks Milk
 
-"Hey, have you got any milk?"
+I wasn't quite sure what I to think of my friend as he lumbered his way into my kitchen. A living, breathing exhibit of impulsive extroversion, caked to the brim with enough coffee and powdered ginseng to fund an entire military campaign into the Andes. He was living proof that you could in fact polish a turd, and get away with absolutely anything. I kept a keen eye on him as he proceeded to rummage through my fridge, displacing what little pride I had left amongst the containers of takeout and unmet dairy which had once embraced my stomach. I think he was searching for milk. I really wish he wouldn't.
+
+"Hey, have you got milk?"
 
 "Can you please not drink my milk," I respond.
 
-"Yeah, but I'm currently riding a killer hangover, and you know how much it helps when I'm churning." For whatever reason, he was convinced that milk was the ultimate hangover cure. Akin to blowing adonis himself, although it made no sense in my mind. Eventually, the man settles for soy. His discovery puzzles me greatly. Since when did I drink soy? I don't drink soy. The man grabs a used cup from the sink, pouring the viscous concotion of canola-like substance into the clumpy plop of lasanga-stained brilliance upon a cup I hadn't touched in over a week. He throws me an emotive smile, as a murky splatter of soy brushes the outer molecular his face. I wasn't quite sure how this man was still alive.
+"Yeah, but I'm currently riding a killer hangover, and you know how much it helps when my stomach is churning." For whatever reason, my friend was convinced that milk was the ultimate hangover cure, akin to blowing Adonis himself. Although it certainly made no sense in my mind. Eventually, the man settled for soy which puzzled me greatly. Since when did I ever drink soy? The work of an imposter. And without the precious delay of thought, the man decides to grab a used cup from within the sink. Pouring the viscous concotion of canola-like substance into the clumpy plop of a lasanga-stained cup, which in retrospect, hadn't been touched for weeks. As the murky splatter of soy abruptly varnishes the outer molecular of his face, cutting briefly into the decomposition of his own high standards for waste. He throws me an emotive smile. I continue to glare.
 
-contortion
+### Chat With Friend
+
+For the next 40 minutes we both sat there on the couch, making each other laugh. He drank soy under an alcoholic anthem of a make-believe sobriety, and I validated his self-worth with the equivalent cheer of a dying house cat. At the very least it was a worthy distraction from the banality of life; the friction of my own existence.
+
+"Oh, and don't think I'd get a little something for my favourite man!" I guess I was about to be raped. This is what rapists say before they rape someone, right?
+-->
+
+### Friend Cup Cake
+
+He places his hand into his brown leather satchel, now crumpled to a point of non-trivial athritis. The grin on his face intensifies with the giddy laughter of a manic 12 year old and in its place, appears what seems to be an extensively mangled cupcake. Conveniently wrapped with a cling film so thin that the food dye had leeched into the plastic as if it were still fashionable to sniff lead paint. He hands me the cupcake with the motion of a wounded giant, as he describes in excruciating detail the amount of effort placed both into the purchasing and transport of my gift. I smile vainly. Upon closer examination I wasn't even quite sure if it were a cupcake at all. It was more like a poorly conceived thought, glazed in the Satanic oven of an offshore abattoir. Icing as hard as dried clay. Texture like camel's blood. Encased within the piffle centre of a soggy nightmare. My teeth turned to dust. My lungs did not feel safe.
+
+### 
+
+Entertaining the idea of suicide for a second time today, my door bell rings again. Perhaps it was the police, coming to detain me for having poor taste in friends. Perhaps it was an angry neighbour, intent on pointing out my ethnicity to the disdain. I approach the door. It's Milo.
 
 
-For the next 40 minutes we sat on the couch and made each other laugh. He drank soy under an alcoholic anthem of a make-believe sobriety, and I validated his self-worth with . It was a worthy distraction from .
 
-"Oh, and as it's your special day, I've got my favourite man a little something."
-
-He places a hand into his satchel. A crushed cupcake appears . The icing was a hard as dried camel's blood. I didn't feel safe.
+My doorbell rings again.
 
 
 
 Larry was an
 
+Milo appears again at his
 
 
 
@@ -114,3 +127,7 @@ Its
 
 
 ## Scene 3 END
+
+<!-- NOTE: Maybe Milo meets Maria. -->
+
+<!-- NOTE: I'm guessing this chapter isn't them going to the restaurant, that can be the chapter after this. Instead, this chapter is about them hanging out at the appartment and with the friend. It really depends how long I can draw it out, but it seems to make sense. -->
