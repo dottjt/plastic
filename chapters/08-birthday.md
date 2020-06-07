@@ -34,7 +34,6 @@ I pull the trigger. The revolver releases a sudden click of death. I subside, an
 
 The time is now 12:00am. I have fallen asleep for at least 20 minutes. The doorbell rings. It interrupts my beauty sleep. I'm afraid society will judge me. I'm just kidding, of course. It's my friend. It's my birthday. It's my time to animate. It's my time to die.
 
-
 ## Scene 1 END
 
 ####
@@ -62,39 +61,33 @@ I wasn't quite sure what I to think of my friend as he lumbered his way into my 
 For the next 40 minutes we both sat there on the couch, making each other laugh. He drank soy under an alcoholic anthem of a make-believe sobriety, and I validated his self-worth with the equivalent cheer of a dying house cat. At the very least it was a worthy distraction from the banality of life; the friction of my own existence.
 
 "Oh, and don't think I'd get a little something for my favourite man!" I guess I was about to be raped. This is what rapists say before they rape someone, right?
--->
 
 ### Friend Cup Cake
 
-He places his hand into his brown leather satchel, now crumpled to a point of non-trivial athritis. The grin on his face intensifies with the giddy laughter of a manic 12 year old and in its place, appears what seems to be an extensively mangled cupcake. Conveniently wrapped with a cling film so thin that the food dye had leeched into the plastic as if it were still fashionable to sniff lead paint. He hands me the cupcake with the motion of a wounded giant, as he describes in excruciating detail the amount of effort placed both into the purchasing and transport of my gift. I smile vainly. Upon closer examination I wasn't even quite sure if it were a cupcake at all. It was more like a poorly conceived thought, glazed in the Satanic oven of an offshore abattoir. Icing as hard as dried clay. Texture like camel's blood. Encased within the piffle centre of a soggy nightmare. My teeth turned to dust. My lungs did not feel safe.
+He places his hand into a brown leather satchel, now crumpled to a point of non-trivial athritis. Giddy with the laughter of a manic 12 year old. And with my expectations set firmly low, he takes out what appears to be an extensively mangled cupcake.
+
+"Tada! It even "
+
+The cling wrap surrounding the cupcake was so thin that the food dye had leeched into the plastic as if it were still fashionable to sniff lead paint. Flourished with pride, he hands over the cupcake with the poise of a wounded giant. Ready to describe in excruciating detail the amount of effort spent both into the purchasing and transport of my gift. I smile vainly. He only notices the smile. And upon closer examination, I wasn't even quite sure if the object currently being held in my hand was even a cupcake at all. Visually it described a poorly conceived thought. Glazed inside the Satanic womb of an offshore demon, with the resolve to announce the inedible within the confines of man's mouth. Icing as hard as dried clay; flush with the pigment of a poor man's toe. It was a soggy nightmare, encased within the piffle centre of a Wallmart clearance aisle. Begging to decompose. I decide to risk a bite in an act of dole sincerity. My teeth proceed to disperse into a mesh dust. Reconstitute me baby. Feed my sin.
 
 ### The Door Bell Rings
 
-Entertaining the idea of suicide for a second time today, my door bell rings again. Perhaps it was the police, coming to detain me for having poor taste in friends. Perhaps it was an angry neighbour, intent on pointing out my ethnicity to the disdain. I approach the door. It's Milo.
+And before I'm able to entertain the idea of culinary suicide for a second time, my door bell rings again. Confused by the melodic chime, I didn't quite know who it could be. Perhaps it was the police, coming to detain me for having poor taste in friends. An angry neighbour intent on pointing out my ethnicity to the disdain of the other diehard racists from within the building. I approach the door. It's Milo.
 
 "Hi."
 
-I didn't know how to respond. It was a sense of disbelief which had rapidly spiraled into an ungovernable anxiety, split amongst the disfigured emotions I'd only just come to forget. She reaches for my hand with the grace of a spider. It stings with empathy. The kind which shakes.
+I didn't know how to respond. As I stood there in a grave of my own silence, paralysed by a sense of disbelief which had now rapidly spiraled into an ungovernable anxiety. Split amongst the disconfigured emotions I'd been relaying for days, as a signal for psychological help. I wanted to run, but I didn't know how. Then her touch. I can feel her hand holding mine. Sharing our warmth together in the vast coldness of this world. She looks sad and afraid. What was happening to me? Had I just died?
 
-"I'm sorry for just showing up here out of the blue, but I couldn't stop thinking about you. And I knew it was your birthday today, so I got you this." She hands me over a decorated box. Inside was a birthday card, which read in beautiful fashion, "I'm sorry for being such a bitch. Love Milo. xoxo." And above the text, attached delicately with a single strand of tape, was a sheet of acid with our names printed in cursive for the whole world to see.
+"I'm sorry for just showing up here out of the blue, but I couldn't stop thinking about you. And I knew it was your birthday today, so I got you this." She hands over a decorated box, characterised by its stark purple bow. My favourite colour. Inside was a birthday card which read in rabble fashion, "I'm sorry for being such a bitch. Love Milo. xoxo." And above the text, attached delicately with a single strand of tape was a sheet of acid with our names printed in cursive for the whole world to see.
 
-"I thought we could take it together. Just you and me. Drugs and sex. Will you please be with me?" I stood there confused. Excited. Broken. My friend was concerned.
+"I thought we could take it together. Just you and me. Will you please be with me?" I stood there confused. Excited. Broken. My friend decides to interject.
 
-"What are you doing, ya fuckin' nipper?" I felt embarassed.
+"What are you doing, ya fuckin' nipper!? My pussy's getting wet thinking about you." I felt embarassed.
 
-"It's okay, I'll just be a second." I closed the apartment door to be outside with Milo. She continued to hold my hand. Her presence felt sincere. We looked each other in the eyes and although it was difficult to forget, for this one moment I was willing to turn back and let go.
+"It's okay, I'll just be a second." I close the apartment door. We both stand outside. She leans in for a kiss. I accept it. We hold each other intensely. It was exactly what I always wanted, and yet it felt gross. Inhumane. Incestuous, almost. It's like I wanted her closer and closer to me, and yet no matter how close she ever was. It felt as if she were a million miles away inside my head, like staring at photograph from the past. We continued to look each other in the eyes, mesmerised by each other's presence. And although it was difficult to forget, I was more than happy to let go and feel again.
 
-She leaned in for a kiss.
-
-I grab her. She grabs me. I interupt.
-
-"I really should get back inside," I say.
-
-"Would you like to meet my friend?" She pauses with a look of approval, happy to know that I didn't
-
-
-At first I wasn't quite sure how they were going to get along.
-
+"Would you like to come inside?" She pauses with a look of approval, happy to know that she didn't have to walk home alone. Ideally we'd just head back to the couch and cuddle until the universe had disintegrated into a unequivocal mesh of sex and puppy love, but that clearly wasn't going to happen today. Not to mention, our original plan of heading out for dinner tonight, solely to celebrate my friend's drinking habit. I lead her into the living room.
+-->
 
 ## Scene 2 END
 
@@ -102,7 +95,24 @@ At first I wasn't quite sure how they were going to get along.
 
 ## Scene 3 START
 
-"So, do you like milk?" My friend was hardly a genius when it came to small talk, but at least it made me seem less weird.
+Introducing her as my friend from work, I wasn't quite sure how the two would get alone.
+
+"So, do you like milk?" My friend was hardly a genius when it came to small talk. In fact, he was hardly a genius at all, but at the very least it made me seem less weird.
+
+"Absolutely. I'm a huge proponent of the dairy industry." I don't think he understood the underlying sarcasm of her words, as he withdrew into his shell with the stunted tenacity of a senile clam. Milo claimed victory as a top.
+
+" are we having for dinner?"
+
+
+
+"We have to get going, we're heading to dinner.
+
+
+As we left the apartment I noticed another tenant leave. It was Maria.
+
+
+"Hey would you like to come?
+
 
 
 
@@ -113,3 +123,7 @@ At first I wasn't quite sure how they were going to get along.
 <!-- NOTE: Maybe Milo meets Maria. -->
 
 <!-- NOTE: I'm guessing this chapter isn't them going to the restaurant, that can be the chapter after this. Instead, this chapter is about them hanging out at the appartment and with the friend. It really depends how long I can draw it out, but it seems to make sense. -->
+
+
+
+<!-- NOTE: I think part of this chapter is him returning back to the dream. Although Milo is a person, milo is a dream. -->
