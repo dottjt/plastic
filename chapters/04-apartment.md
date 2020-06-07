@@ -107,6 +107,6 @@ We began chatting about our lives. The nuances. The struggles. Those stupid neig
 
 "Yes. I would love that." She was an overwhelming sense of warmth and connection, which transcended well-beyond her intelligence and sublime attraction. Of course, what had most likely happened was that I'd probably gotten way too attached, way too early, and I was consciously willing to completely overlook the fact that her apartment was completely inundated with enough luddite porn to fuel an old steamboat. She walked me out to the front door, waving me goodbye with a smitten smile on her face.
 
-Maria was her name.
+Victoria was her name.
 
 ## Scene 3 END

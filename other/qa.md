@@ -2,7 +2,7 @@ How to Kill a Chinaman
 
 # Summary
 
-When I think about it, the central theme of this book is about coping. The entire narrative centers around the main character and their ability to cope. That's his style. That's his story. 
+When I think about it, the central theme of this book is about coping. The entire narrative centers around the main character and their ability to cope. That's his style. That's his story.
 
 # Time and place.
 
@@ -109,7 +109,7 @@ Truth is, the novel doesn't need to make sense. It just needs to read well. It n
 
 Macabre
 
-You know, in a way it's like all my novels are part of the same universe. Just different perspectives at different times. 
+You know, in a way it's like all my novels are part of the same universe. Just different perspectives at different times.
 
 
 Maybe the next book could be about my friendship with Amelia. In a way, there are elements of Amelia within Milo. I suppose there's elements of every girl I've ever dated within Milo, which isn't really saying much.
@@ -129,8 +129,20 @@ Book idea. Book is called Mother and Son, and it explores the tension between a 
 
 The Tales of Amelia Snow - It's a coming of age story about a girl with autism. She begins knowing nothing about the world, and slowly develops and learns to adapt to it. I want maybe the 1st half to explore her childhood. Then it develops into her later years.
 
-A stattered light emerges from the roof into the attic. It bleeds into my skin. Refracting like resin onto the pale tones of my . I am only five, but I remember it clearly. 
+A stattered light emerges from the roof into the attic. It bleeds into my skin. Refracting like resin onto the pale tones of my . I am only five, but I remember it clearly.
 
 People were like shadows to me. I never quite understood what they were, nor what pe
 
 I like these themes.
+
+
+Mia
+Marion
+Miaja // finnish
+Matilda
+
+Victoria
+Veronica
+Velda
+Viera
+

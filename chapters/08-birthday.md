@@ -26,11 +26,13 @@ It's now 10:45am. I don't feel so lucky. Maybe birthdays weren't meant to feel l
 
 The time is 11:00am. I don't quite know what to make of the saturated bowl of strewn wheat, chaff inside the interior of a wooden catalogue collection. The tasteless slop of a mid-life muck; the food pyramid equivalent of a pitiful mess. The yearn. It defeans in its silent whispers, chasming the cheer you so desperately want to hear. Maybe that was luck. Maybe I was lucky.
 
-### Attempts Suicide
+### Gun Therapy
 
 The time is 11:01am. Duct-taped to the underside of my desk is the revolver I purchased last Sunday while scouring for pleasing children at the mall. I'm not sure why I used duct-tape, but it was the kind of visceral which felt complete in this house of proportionate nonsense. I attempt to rip the revolver from the fragmented clumps of dust which had gathered from the absence of my life. Now trailing for a reason to subsist. I place my finger on the trigger of the gun. Barrel pointed at my head. I can feel it sneeze. I breathe. I suppose I wanted to feel like a man in these last few frames before my brain becomes a conflated withdrawal of sentiment. I think of Milo. The love I cannot feel. Sunday autopsy. I whimper. I cry. I scream. It sustains. It reverberates. I scream so loud that I can feel my throat polymerise into clotted blood. My ears turn a bright purple. I'm confident. I can do it. I believe it. I am ready. I stop the screaming and the silence begins.
 
-I pull the trigger. The revolver releases a sudden click of death. I subside, and put the gun down. Continuing to stare at the walls in front of me; splintering at the flakes of white teal, peeling in isolation from the rest of my world. The relief is overwhelming, although expected. I call it gun therapy. I come from work. I point the gun at my head. I scream as loud as I can. I pretend to kill myself. And thus I am free for another day. To pretend as little or as much as I want, until I am reborn a fool into the next day. It's cute, and it proves that I'm marriage material.
+I pull the trigger. The revolver releases a sudden click of death. I subside. The revolver is placed down as I continue to stare at the wall in front of me; splintering at the flakes of white teal, peeling in isolation from the rest of my world. The relief is overwhelming, although expected. I call it gun therapy. I come from work. I point the gun at my head. I scream as loud as I can. I pretend to kill myself. And thus I am free for another day. To pretend as little or as much as I want, until I am reborn a fool into the next day. It's cute, and it proves that I'm marriage material.
+
+### Friend Arrives
 
 The time is now 12:00am. I have fallen asleep for at least 20 minutes. The doorbell rings. It interrupts my beauty sleep. I'm afraid society will judge me. I'm just kidding, of course. It's my friend. It's my birthday. It's my time to animate. It's my time to die.
 
@@ -62,11 +64,11 @@ For the next 40 minutes we both sat there on the couch, making each other laugh.
 
 "Oh, and don't think I'd get a little something for my favourite man!" I guess I was about to be raped. This is what rapists say before they rape someone, right?
 
-### Friend Cup Cake
+### Friend Has Gift
 
 He places his hand into a brown leather satchel, now crumpled to a point of non-trivial athritis. Giddy with the laughter of a manic 12 year old. And with my expectations set firmly low, he takes out what appears to be an extensively mangled cupcake.
 
-"Tada! It even "
+"Tada! It's a cupcake!"
 
 The cling wrap surrounding the cupcake was so thin that the food dye had leeched into the plastic as if it were still fashionable to sniff lead paint. Flourished with pride, he hands over the cupcake with the poise of a wounded giant. Ready to describe in excruciating detail the amount of effort spent both into the purchasing and transport of my gift. I smile vainly. He only notices the smile. And upon closer examination, I wasn't even quite sure if the object currently being held in my hand was even a cupcake at all. Visually it described a poorly conceived thought. Glazed inside the Satanic womb of an offshore demon, with the resolve to announce the inedible within the confines of man's mouth. Icing as hard as dried clay; flush with the pigment of a poor man's toe. It was a soggy nightmare, encased within the piffle centre of a Wallmart clearance aisle. Begging to decompose. I decide to risk a bite in an act of dole sincerity. My teeth proceed to disperse into a mesh dust. Reconstitute me baby. Feed my sin.
 
@@ -74,9 +76,13 @@ The cling wrap surrounding the cupcake was so thin that the food dye had leeched
 
 And before I'm able to entertain the idea of culinary suicide for a second time, my door bell rings again. Confused by the melodic chime, I didn't quite know who it could be. Perhaps it was the police, coming to detain me for having poor taste in friends. An angry neighbour intent on pointing out my ethnicity to the disdain of the other diehard racists from within the building. I approach the door. It's Milo.
 
+### Milo Appears
+
 "Hi."
 
-I didn't know how to respond. As I stood there in a grave of my own silence, paralysed by a sense of disbelief which had now rapidly spiraled into an ungovernable anxiety. Split amongst the disconfigured emotions I'd been relaying for days, as a signal for psychological help. I wanted to run, but I didn't know how. Then her touch. I can feel her hand holding mine. Sharing our warmth together in the vast coldness of this world. She looks sad and afraid. What was happening to me? Had I just died?
+I didn't know how to respond. As I stood there in a grave of my own silence, paralysed by a sense of disbelief which had now rapidly spiraled into an ungovernable anxiety. Split amongst the disconfigured emotions I'd been signaling for days, as a signal for psychological help. I wanted to run, but I didn't know how. Then her touch. I can feel her hand holding mine. Sharing our warmth together in the vast coldness of this world. She looks sad and afraid. What was happening to me? Had I just died?
+
+### Milo Acid Gift
 
 "I'm sorry for just showing up here out of the blue, but I couldn't stop thinking about you. And I knew it was your birthday today, so I got you this." She hands over a decorated box, characterised by its stark purple bow. My favourite colour. Inside was a birthday card which read in rabble fashion, "I'm sorry for being such a bitch. Love Milo. xoxo." And above the text, attached delicately with a single strand of tape was a sheet of acid with our names printed in cursive for the whole world to see.
 
@@ -84,7 +90,11 @@ I didn't know how to respond. As I stood there in a grave of my own silence, par
 
 "What are you doing, ya fuckin' nipper!? My pussy's getting wet thinking about you." I felt embarassed.
 
+### Character Forgives Milo
+
 "It's okay, I'll just be a second." I close the apartment door. We both stand outside. She leans in for a kiss. I accept it. We hold each other intensely. It was exactly what I always wanted, and yet it felt gross. Inhumane. Incestuous, almost. It's like I wanted her closer and closer to me, and yet no matter how close she ever was. It felt as if she were a million miles away inside my head, like staring at photograph from the past. We continued to look each other in the eyes, mesmerised by each other's presence. And although it was difficult to forget, I was more than happy to let go and feel again.
+
+### Character Invites Milo Inside
 
 "Would you like to come inside?" She pauses with a look of approval, happy to know that she didn't have to walk home alone. Ideally we'd just head back to the couch and cuddle until the universe had disintegrated into a unequivocal mesh of sex and puppy love, but that clearly wasn't going to happen today. Not to mention, our original plan of heading out for dinner tonight, solely to celebrate my friend's drinking habit. I lead her into the living room.
 -->
@@ -95,17 +105,27 @@ I didn't know how to respond. As I stood there in a grave of my own silence, par
 
 ## Scene 3 START
 
-Introducing her as my friend from work, I wasn't quite sure how the two would get alone.
+### Friend Attempts Smalltalk
 
-"So, do you like milk?" My friend was hardly a genius when it came to small talk. In fact, he was hardly a genius at all, but at the very least it made me seem less weird.
+"So, do you like milk?" My friend was hardly a genius when it came to small talk. In fact, he was hardly a genius at all, but at the very least it made me seem less weird. Which was more than any friend could ask for.
 
-"Absolutely. I'm a huge proponent of the dairy industry." I don't think he understood the underlying sarcasm of her words, as he withdrew into his shell with the stunted tenacity of a senile clam. Milo claimed victory as a top.
+"Absolutely. I'm a huge proponent of the dairy industry." I don't think he comprehended the underlying sarcasm of her words, as he sat there grinning profusely at her gothic reformation dress. Shoulders like gargoyles, as he withdrew into his shell with the stunted tenacity of a senile clam. Milo claimed victory as top. And as the awkwardness continued, so did the travel of time. It was late afternoon and the soy had run dry.
 
-" are we having for dinner?"
+### Discuss Dinner
+
+"Say, what are we having for dinner? I'm absolutely starving."
+
+I was craving Mexican. Lust within the substantial warmth of a sepia-inspired banquet of slopping meats and
+
+"I think we have to get going." Everyone gathers there things, ready to leave the apartment.
+
+The dreary cloudiness of the weekend had consumed us all. The dew on the windows had
+
+As we collectively walked towards the elevator, I noticed a tennant approaching from behind.
+
+a tennent appeared from behind.  It was Mia
 
 
-
-"We have to get going, we're heading to dinner.
 
 
 As we left the apartment I noticed another tenant leave. It was Maria.
