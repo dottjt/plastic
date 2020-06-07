@@ -68,28 +68,32 @@ For the next 40 minutes we both sat there on the couch, making each other laugh.
 
 He places his hand into his brown leather satchel, now crumpled to a point of non-trivial athritis. The grin on his face intensifies with the giddy laughter of a manic 12 year old and in its place, appears what seems to be an extensively mangled cupcake. Conveniently wrapped with a cling film so thin that the food dye had leeched into the plastic as if it were still fashionable to sniff lead paint. He hands me the cupcake with the motion of a wounded giant, as he describes in excruciating detail the amount of effort placed both into the purchasing and transport of my gift. I smile vainly. Upon closer examination I wasn't even quite sure if it were a cupcake at all. It was more like a poorly conceived thought, glazed in the Satanic oven of an offshore abattoir. Icing as hard as dried clay. Texture like camel's blood. Encased within the piffle centre of a soggy nightmare. My teeth turned to dust. My lungs did not feel safe.
 
-### 
+### The Door Bell Rings
 
 Entertaining the idea of suicide for a second time today, my door bell rings again. Perhaps it was the police, coming to detain me for having poor taste in friends. Perhaps it was an angry neighbour, intent on pointing out my ethnicity to the disdain. I approach the door. It's Milo.
 
+"Hi."
+
+I didn't know how to respond. It was a sense of disbelief which had rapidly spiraled into an ungovernable anxiety, split amongst the disfigured emotions I'd only just come to forget. She reaches for my hand with the grace of a spider. It stings with empathy. The kind which shakes.
+
+"I'm sorry for just showing up here out of the blue, but I couldn't stop thinking about you. And I knew it was your birthday today, so I got you this." She hands me over a decorated box. Inside was a birthday card, which read in beautiful fashion, "I'm sorry for being such a bitch. Love Milo. xoxo." And above the text, attached delicately with a single strand of tape, was a sheet of acid with our names printed in cursive for the whole world to see.
+
+"I thought we could take it together. Just you and me. Drugs and sex. Will you please be with me?" I stood there confused. Excited. Broken. My friend was concerned.
+
+"What are you doing, ya fuckin' nipper?" I felt embarassed.
+
+"It's okay, I'll just be a second." I closed the apartment door to be outside with Milo. She continued to hold my hand. Her presence felt sincere. We looked each other in the eyes and although it was difficult to forget, for this one moment I was willing to turn back and let go.
+
+She leaned in for a kiss.
+
+I grab her. She grabs me. I interupt.
+
+"I really should get back inside," I say.
+
+"Would you like to meet my friend?" She pauses with a look of approval, happy to know that I didn't
 
 
-My doorbell rings again.
-
-
-
-Larry was an
-
-Milo appears again at his
-
-
-
-The doorbell rings again. It's Milo. Queen Bee. I race to the door in a rush of excitement, bumping my knee on a bookshelf full of Victorian classics. Surely it made girls wet.
-
-### Friends on the couch
-
-The boob and the sex-queen sat together on the couch opposing, trying to figure out exactly how they fit into this scenario. Was he the child-abuser that he constantly referenced at work? Had they fucked at one point? Why was her hand on my leg?
-
+At first I wasn't quite sure how they were going to get along.
 
 
 ## Scene 2 END
@@ -98,32 +102,10 @@ The boob and the sex-queen sat together on the couch opposing, trying to figure 
 
 ## Scene 3 START
 
-### Describe Taxi Ride
-
-The driver was a bit of a fuckin' winky. I'm allowed to call him a winky on my Birthday, right? A
-
-You could tell he was having  . I noted not to shake his hand.
-
-The driver spoke three different languages. Japanese, Chinese and Korean.
-
-
-If I could fuck any emotion I would fuck sadness. It would be your most malleable best friend. It wouldn't care if you beat it, raped it or crushed into a thousand tiny pieces. It would persist in its grief, elated in the distress it had already come to expect of itself. Grateful in your neediness and desperate in your pleasure. It is what Gods come to expect of their young.
-
-### Describe Stripmall
-
-The Mexican restaurant made its home within the matchwood interiors of a refurbished Church, house to slurry of canned beans and quarter-ounce jars
+"So, do you like milk?" My friend was hardly a genius when it came to small talk, but at least it made me seem less weird.
 
 
 
-### Describe Mexican Restaurant
-
-The enchilada. An inoffensive mound of maize-infused goop, seared in a second-hand microwave oven on finance. The slosh hammock rolled around on my plate, mummified in a meat-cheese mixture of re-hydrated pus and freeze-dried caesin. A product they used to call 'vinyl chloride' back at the foundry.
-
-
-### Emotions
-
-Hid behind my over-sized sombrero, the streaming lights of the 8pm disco-ball.
-Its
 
 
 ## Scene 3 END

@@ -14,7 +14,13 @@ I suppose you're reading this message today because I need help. You see, I'm no
  -->
 ### Describe Morning
 
-I didn't really feel much that morning, nor did I have the energy to understand what feelings were required to proceed. At the very least I knew I was sad. Alone. Unemployment was proving to be a drag, and my rent was considerably overdue. You know, that thing which demands the world from you your soul, lest you disintegrate into the torpid fine-dining equivalent of a powdered cheddar. But hey. It was a Saturday morning. My lungs were still functioning, and there was hope that they would continue to function until at least lunch. Where I would enjoy a fictional sourdough, relish with the cherry chutney of a vineyard Château. In reality, I planned to get obscenely high. For Saturday was tab day; my favourite day of the week. Although recently both Monday and Tuesday, and Wednesday, and Friday had also become tab day. So really, was it even tab day at all?
+I didn't really feel much that morning, nor did I have the energy to understand how one should feel at all. At the very least, I knew I was sad. Alone. Desperate in my palpable need of attention, crippled by a redundancy which refused to leave my mind. Rejection after rejection, my inbox piled high. Steady with a stream of diffuse hope, tangible only in its crisp retina font. I hadn't paid rent for over a month, and the anxiety was beginning to show. Lest I disintegrate into the torpid equivalent of a powdered cheddar; luxury as powerlessness begets.
+
+But hey, buck-aroo. It was still a Saturday. My lungs were still functioning. There was still at least a viable privation that I would continue to function until the early hours of lunch.  Where I would enjoy a fictional sourdough, relish with the cherry chutney of a vineyard Château. In reality, I planned to get obscenely high, for Saturday was tab day. My favourite day of the week. Although recently both Monday and Tuesday, and Wednesday, and Friday had also become tab day. So really, was it even tab day at all?
+
+. And I was looking as dangerous as ever in my cold-war stubble fit suitably for a Russian paratrooper.
+
+ and there was hope that they would continue to function until at least lunch.
 
 ### Describe Tab Usage
 

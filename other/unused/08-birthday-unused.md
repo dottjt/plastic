@@ -20,3 +20,10 @@ you hadn't yet been raped and tortured by some Taliban rookie in a silk robe, hu
 as I wear the hearty embrace of a . Grace upon the impression of my chinny chin chin. Muted in its love n' attention.
 
 I wasn't quite sure how he was still alive.
+
+
+### Friends on the couch
+
+The doorbell rings again. It's Milo. Queen Bee. I race to the door in a rush of excitement, bumping my knee on a bookshelf full of Victorian classics. Surely it made girls wet.
+
+The boob and the sex-queen sat together on the couch opposing, trying to figure out exactly how they fit into this scenario. Was he the child-abuser that he constantly referenced at work? Had they fucked at one point? Why was her hand on my leg?
