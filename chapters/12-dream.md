@@ -4,6 +4,8 @@ description: "A chapter where the character explains a dream he had."
 day: "Wednesday."
 ---
 
+<!-- Maybe the title of this chapter should actually be relapse. Dream is probably more suitable. -->
+
 ## Scene 1 START
 
 <!-- - This dream chapter explains how he wished his life actually turned out. -->

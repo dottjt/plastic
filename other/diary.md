@@ -1,5 +1,7 @@
 # diary.
 
+08/06/2020 - It was a public holiday today, so I was able to work on the novel a lot. I really, really didn't feel like writing in the morning. I don't know why, but I just wasn't feeling it. Yet at night, I felt really keen to write. Interesting how that works. Regardless, I've mentally manage to progress the story how I like and came up with the idea of Milo hate fucking the character at the restaurant.
+
 07/06/2020 - I've been writing fairly consistently lately, which has been awesome. I have a clear idea of how to progress the story at least until the death chapter. Milo returns in the birthday chapter, then maybe I can have a restaurant chapter in the end. I think that would be pretty awesome. Oh, and Maria joins in at the end of Chapter 8. That would be pretty swell as well!
 
 01/06/2020 - Well, well. This is the first time I've written this book in close to an entire month. I've been busy doing nothing but working on the podcast, well as my personal website. The good news however that this is all done, and I'm ready to write the book. The excellent news is that my writing ability, as well as my motivation, is as good as ever. And in fact, not writing for a while has provided incredible perspective in terms of being able to colourfully refactor the story at large.
