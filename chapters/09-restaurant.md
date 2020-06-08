@@ -8,7 +8,7 @@ day: ""
 
 ### Describe Taxi Ride
 
-The driver was a bit of a fuckin' winky. I'm allowed to call him a winky on my Birthday, right? A
+The driver was a bit of a winky. I'm allowed to be casually racist on my Birthday, right?
 
 You could tell he was having  . I noted not to shake his hand.
 
@@ -44,3 +44,11 @@ Its
 ## Scene 2 END
 
 
+<!-- Maybe what happens is that Milo and the character go into the bathroom together. She has a fight with him about Mia and she hate fucks him. Then she leaves and breaks up with him. doesn't come back.
+
+She thinks he's been fucking Mia.
+
+In order to make this work, I need her to bring Mia up mid-way through sex. She makes him cum, pulls out just before, then slaps him across the face.
+
+Maybe also when he heads back from the bathroom stall, Mia is bleeding. Milo punched her. Then in the bubble chapter, Milo is not found at work.
+-->

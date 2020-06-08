@@ -36,6 +36,8 @@ The only person who didn't quite seem so dejected was Milo.
 
 "Hello stranger. Looks like someone decided to rock up to work today. I didn't know you liked me that much."
 
+I could feel the hatred in her voice. 
+
 I wanted to cry. She acted normal, as if nothing had happened between us.
 
 "Sure."

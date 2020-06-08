@@ -74,7 +74,7 @@ The cling wrap surrounding the cupcake was so thin that the food dye had leeched
 
 ### The Door Bell Rings
 
-And before I'm able to entertain the idea of culinary suicide for a second time, my door bell rings again. Confused by the melodic chime, I didn't quite know who it could be. Perhaps it was the police, coming to detain me for having poor taste in friends. An angry neighbour intent on pointing out my ethnicity to the disdain of the other diehard racists from within the building. I approach the door. It's Milo.
+And before I'm able to entertain the idea of engaging culinary suicide for a second time, the door bell rings again. Confused by the melodic chime, I didn't quite know who it could be. Perhaps it was the police, coming to detain me for having poor taste in friends. An angry neighbour intent on pointing out my ethnicity to the disdain of the other diehard racists from within the building. I approach the door. It's Milo.
 
 ### Milo Appears
 
@@ -92,12 +92,11 @@ I didn't know how to respond. As I stood there in a grave of my own silence, par
 
 ### Character Forgives Milo
 
-"It's okay, I'll just be a second." I close the apartment door. We both stand outside. She leans in for a kiss. I accept it. We hold each other intensely. It was exactly what I always wanted, and yet it felt gross. Inhumane. Incestuous, almost. It's like I wanted her closer and closer to me, and yet no matter how close she ever was. It felt as if she were a million miles away inside my head, like staring at photograph from the past. We continued to look each other in the eyes, mesmerised by each other's presence. And although it was difficult to forget, I was more than happy to let go and feel again.
+"It's okay, I'll just be a second." I close the apartment door. We both stand outside. She leans in for a kiss. I accept it. We hold each other intensely. It was exactly what I always wanted, and yet it felt gross. Inhumane. Incestuous, almost. It's like I wanted her closer and closer to me, and yet no matter how close she ever was. It felt as if she were a million miles away inside my head, like staring at photograph from the past. We continued to look each other in the eyes, mesmerised by each other's presence. And although it was difficult to forget, I was more than happy to let go and feel again. I was dying for her fix.
 
 ### Character Invites Milo Inside
 
 "Would you like to come inside?" She pauses with a look of approval, happy to know that she didn't have to walk home alone. Ideally we'd just head back to the couch and cuddle until the universe had disintegrated into a unequivocal mesh of sex and puppy love, but that clearly wasn't going to happen today. Not to mention, our original plan of heading out for dinner tonight, solely to celebrate my friend's drinking habit. I lead her into the living room.
--->
 
 ## Scene 2 END
 
@@ -109,22 +108,22 @@ I didn't know how to respond. As I stood there in a grave of my own silence, par
 
 "So, do you like milk?" My friend was hardly a genius when it came to small talk. In fact, he was hardly a genius at all, but at the very least it made me seem less weird. Which was more than any friend could ask for.
 
-"Absolutely. I'm a huge proponent of the dairy industry." I don't think he comprehended the underlying sarcasm of her words, as he sat there grinning profusely at her gothic reformation dress. Shoulders like gargoyles, as he withdrew into his shell with the stunted tenacity of a senile clam. Milo claimed victory as top. And as the awkwardness continued, so did the travel of time. It was late afternoon and the soy had run dry.
+"Absolutely. I'm a huge proponent of industrial dairy." I don't think he understood. The post-ironic sardonicism was too much for his hangover to handle, as he sat there, grinning profusely at her gothic reformation dress. Shoulders like a fractured gargoyle, as he withdrew into his shell with the stunted tenacity of a senile clam. Milo remained content, although clearly annoyed that we couldn't just be alone and fuck until the early hours of the morning.
 
+-->
 ### Discuss Dinner
 
-"Say, what are we having for dinner? I'm absolutely starving."
+"Say, what's happening with dinner? I'm absolutely starving." It was clear my friend had become agitated. It was getting late. The soy had run dry, and the ensuing levels of awkwardness of having both a lover and an idiot in the same room at the same time, was becomig more than apparent. On the topic of dinner, I was definitely craving Mexican. An indisposed banquet of bean n' string meat, lust within the sepia-inspired warmth of a mud encrusted outhouse; anagolous to being mounted by a matador at your local parlé. Milo got the reference. The Roman felt dirty in his Greek specks.
 
-I was craving Mexican. Lust within the substantial warmth of a sepia-inspired banquet of slopping meats and
+"Well fuck, Mexican it is then. I'll call a cab. You tell me the location." We all leave the apartment in a daze of oaf, consumed by the dreary cloudiness of the weekend. Not only was this situation unideal, but it was pleasantly grotesque in its outcome. Milo, the only thing I've ever cared about more than my own misery, was standing beside me. Harrowing as ever. Spellbind in her . I was falling down the rabbithole for a second time and I knew it was going to end poorly when it all came . As we collectively walked towards the elevator, drull in the unnerve of the mismatch of the group, I heard the door of fellow neighbour open. It was Mia, standing behind me. Tapping me on the shoulder. Milo grabs my hand.
 
-"I think we have to get going." Everyone gathers there things, ready to leave the apartment.
+"Hey stranger," whispers Mia, looking embarassed. I instantly noticed her bright red cheeks,
 
-The dreary cloudiness of the weekend had consumed us all. The dew on the windows had
+Milo grabs my hand.
 
-As we collectively walked towards the elevator, I noticed a tennant approaching from behind.
 
-a tennent appeared from behind.  It was Mia
 
+The dew on the windows had formed into a steamroll of grief.
 
 
 
