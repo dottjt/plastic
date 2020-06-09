@@ -1,4 +1,4 @@
-# 11-bubble.md
+# 10-bubble.md
 
 Paralyzed with fear and a short-circuited anxiety of mid-intuition
 

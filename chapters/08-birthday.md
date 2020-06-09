@@ -6,11 +6,12 @@ day: "Saturday."
 
 <!-- NOTE: I think part of this chapter is him returning back to the dream. Although Milo is a person, milo is a dream. -->
 
+<!-- NOTE: Maybe I should actually spend more time chatting with my friend and describing him, and that should take up a whole chapter, whereas milo appearing is actually the next chapter.  -->
 
-## Scene 1 START
+## Scene 1 START - gun therapy.
 
 ### Birthday Monologue
-<!--
+
 A week of life passes by. The rain runs thin. My hair mauves dry. The work dulls. Today is my birthday. The loneliest day of the year. Crust upon the gallows of my bespawled clamour as the excess from my child-like face, droops n' slaws from the seize of my mother's tainted vagina. Heinous in its moulded cheese scum. Intent on pre-suffocating the elderly in a cacophony of debt n' engouled values. I was destined, at least for the next 24 hours, to remain an empty echo chamber of must-haves and has-beens. Slurry in an aimless deceit of exacerbated usury, grace upon the impression of a fuck-off grin.
 
 ### Pondering Birthday
@@ -43,7 +44,7 @@ The time is now 12:00am. I have fallen asleep for at least 20 minutes. The doorb
 
 ####
 
-## Scene 2 START
+## Scene 2 START -
 
 ### Introduce Friend
 
@@ -75,9 +76,17 @@ He places his hand into a brown leather satchel, now crumpled to a point of non-
 
 The cling wrap surrounding the cupcake was so thin that the food dye had leeched into the plastic as if it were still fashionable to sniff lead paint. Flourished with pride, he hands over the cupcake with the poise of a wounded giant. Ready to describe in excruciating detail the amount of effort spent both into the purchasing and transport of my gift. I smile vainly. He only notices the smile. And upon closer examination, I wasn't even quite sure if the object currently being held in my hand was even a cupcake at all. Visually it described a poorly conceived thought. Glazed inside the Satanic womb of an offshore demon, with the resolve to announce the inedible within the confines of man's mouth. Icing as hard as dried clay; flush with the pigment of a poor man's toe. It was a soggy nightmare, encased within the piffle centre of a Wallmart clearance aisle. Begging to decompose. I decide to risk a bite in an act of dole sincerity. My teeth proceed to disperse into a mesh dust. Reconstitute me baby. Feed my sin.
 
+<!-- CONTINUE, I need to discuss more. -->
+
 ### The Door Bell Rings
 
 And before I'm able to entertain the idea of engaging culinary suicide for a second time, the door bell rings again. Confused by the melodic chime, I didn't quite know who it could be. Perhaps it was the police, coming to detain me for having poor taste in friends. An angry neighbour intent on pointing out my ethnicity to the disdain of the other diehard racists from within the building. I approach the door. It's Milo.
+
+## Scene 2 END
+
+####
+
+## Scene 3 START
 
 ### Milo Appears
 
@@ -101,19 +110,12 @@ I didn't know how to respond. As I stood there in a grave of my own silence, par
 
 "Would you like to come inside?" She pauses with a look of approval. Happy to know that she didn't have to walk home alone, ready to slit her wrists as was evident via the see-through mesh. Laying by the wayside in a pool of her own blood; ready to take a cumshot from the next door neighbour's dead cat. I wanted to fuck her bad. Ideally we'd just head back to the couch and cuddle until the universe had disintegrated into a unequivocal mesh of sex and puppy love, but that clearly wasn't going to happen. I lead her into the living room.
 
-## Scene 2 END
-
-####
-
-## Scene 3 START
-
 ### Friend Attempts Smalltalk
 
 "So, do you like milk?" My friend was hardly a genius when it came to small talk. In fact, he was hardly a genius at all, but at the very least it made me seem less weird. Which was more than any friend could ask for.
 
 "Absolutely. I'm a huge proponent of industrial dairy." I don't think he understood. The post-ironic sardonicism was too much for his hangover to handle, as he sat there, grinning profusely at her gothic reformation dress. Shoulders like a fractured gargoyle, as he withdrew into his shell with the stunted tenacity of a senile clam. Milo remained content, although clearly annoyed that we couldn't just be alone and fuck until the early hours of the morning.
 
--->
 ### Discuss Dinner
 
 "Say, what's happening with dinner? I'm absolutely starving." It was clear my friend had become agitated. It was getting late. The soy had run dry, and the ensuing levels of awkwardness of having both a lover and an idiot in the same room at the same time, was becomig more than apparent. On the topic of dinner, I was definitely craving Mexican. An indisposed banquet of bean n' string meat, lust within the sepia-inspired warmth of a mud encrusted outhouse; anagolous to being mounted by a matador at your local parlé. Milo got the reference. The Roman felt dirty in his Greek specks.
@@ -142,7 +144,7 @@ We all stood outside of the apartment building for a moment, patched together by
 
 My friend was barely conscious. Milo was considerably peeved at the addition of one more obstacle to confront. Mia was wholesomely intimidated. And I'd felt utterly guilty in reintroducing Milo into my life; a seemingly poor decision in retrospect. But I was depressed, and I didn't care.
 
-The driver pulls up to the curb. 
+The driver pulls up to the curb.
 
 
 ## Scene 3 END

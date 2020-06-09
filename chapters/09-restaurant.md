@@ -4,25 +4,37 @@ description: ""
 day: ""
 ---
 
-## Scene 1 START
+## Scene 1 START - taxi.
 
 ### Describe Taxi Ride
 
-One and three. 1 and 3. Left. Right. Tip. Tap. Winky fuckin' driver, racist casually. Soy boy, fun toy. Sudofed window stares. Two and four. 2 and 4. Steamroll grief machine. I was zero. I was 0. Sittin' in the middle. Country symptom blues. Even numbers by my side. Black and pale. Arms like bale. Milo blows me a kiss.
+One and three. 1 and 3. Left. Right. Tip. Tap. Winky fuckin' driver. The drink is casually racist. Soy boy sits with a Sudofed window shake. Red Raccoon crave; lavish lurch fringe. Two and four. 2 and 4. Steamroll grief machine. Even numbers by my side. Black and pale. Arms like bale. Milo blows a kiss.
 
-"So, what did you get up to today?", sparks Mia. Hopeless in her crown. Milo interjects.
+"So, what did you get up to today?", sparks Mia. Hopeless in her crown. Treating each interaction as a tea party to be festooned by the etch of one's company. Milo interjects rudely. Furthermore, she no longer seems sober. I assume she popped a pill earlier when no one was looking. She places her arm around me and blurts.
 
 ### Milo Interjects
 
-"Oh, you know. Hanging out. Do you guys hang out much?" I was beginning to regret everything. As I found myself trapped inside the morose interlude of the cab interior, now melting into shades of grey I hadn't seen since high school. Passive in its dismantle. Modest in its self-harm. Ruthless. Agoraphobic. Questioning why I'd accepted a deal with the devil.
+"Oh, you knoowww. Hangin' out. Gettin' naked. Havin' a quick fuck. Do you guys hang out much?" I was beginning to regret everything. Mia must have thought I was a fool, and it was clear Milo hadn't changed at all. Sickly n' irascibile. As impoverised in the misery which I too had in exceptional terms, pathetically pursued without discourse.
+
+Drown me in cum and cry
+
+An orgasm away from the reckless . Trapped inside the morose interlude of the cab interior, I couldn't have thought of anything more pleasant than to simply disappear into the void and never come back. Instead, I laid witness to everything I ever despised, now melting away into shades of grey I hadn't seen since high school. Passive in its dismantle. Modest in its self-harm. Ruthless. Agoraphobic. Questioning why I'd accepted a deal with the devil.
 
 "Uh, we've met once. He helped me move some stuff into my apartment. Are you guys together?", responds Mia. Milo interjects again.
 
 ### Character Unsure of Milo
 
-"Yes. We are." She kisses me tautly on the cheek. I don't feel safe to respond, and yet it made me crave her more. I wanted to feel desired. To feel like a piece of meat being chewed on my two women, hastily fighting for my corpse.
+"Yes. We are, and you better believe it." She kisses me tautly on the cheek. Eyes
 
-I wasn't quite sure what I saw when I looked into Milo's eyes for a second time. It was as if the angel I'd envisioned had completely faded away; replaced by the deranged rhapsody of a murderous vixen. And yet I couldn't stop staring at her ideal figure . 
+
+"Actually, we only
+
+
+ I don't feel safe to respond, and yet it made me crave her more. I wanted to feel desired. To feel like a piece of meat being chewed on my two women, hastily fighting for my corpse.
+
+I wasn't quite sure what I saw when I looked into Milo's eyes for a second time. It was as if the angel I'd envisioned had completely faded away; replaced by the deranged rhapsody of a murderous vixen. And yet she made me feel complete as a person. It felt as if we were the same person inside.
+
+I couldn't stop staring at her ideal figure .
 
  and the confidence which
 
@@ -45,6 +57,12 @@ If I could fuck any emotion I would fuck sadness. It would be your most malleabl
 The Mexican restaurant made its home within the matchwood interiors of a refurbished Church, house to slurry of canned beans and quarter-ounce jars
 
 
+## Scene 1 END
+
+####
+
+## Scene 2 START
+
 
 ### Describe Mexican Restaurant
 
@@ -56,12 +74,6 @@ The enchilada. An inoffensive mound of maize-infused goop, seared in a second-ha
 Hid behind my over-sized sombrero, the streaming lights of the 8pm disco-ball.
 Its
 
-
-## Scene 1 END
-
-####
-
-## Scene 2 START
 
 
 ## Scene 2 END
