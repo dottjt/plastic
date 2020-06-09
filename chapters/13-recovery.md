@@ -14,6 +14,8 @@ I hope. she
 
 Emptiness.
 
+I liked the idea of dating an amputee. Preferably, a woman without legs. 
+
 
 ### The Mall
 

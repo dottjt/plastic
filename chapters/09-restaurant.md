@@ -8,7 +8,30 @@ day: ""
 
 ### Describe Taxi Ride
 
-The driver was a bit of a winky. I'm allowed to be casually racist on my Birthday, right?
+One and three. 1 and 3. Left. Right. Tip. Tap. Winky fuckin' driver, racist casually. Soy boy, fun toy. Sudofed window stares. Two and four. 2 and 4. Steamroll grief machine. I was zero. I was 0. Sittin' in the middle. Country symptom blues. Even numbers by my side. Black and pale. Arms like bale. Milo blows me a kiss.
+
+"So, what did you get up to today?", sparks Mia. Hopeless in her crown. Milo interjects.
+
+### Milo Interjects
+
+"Oh, you know. Hanging out. Do you guys hang out much?" I was beginning to regret everything. As I found myself trapped inside the morose interlude of the cab interior, now melting into shades of grey I hadn't seen since high school. Passive in its dismantle. Modest in its self-harm. Ruthless. Agoraphobic. Questioning why I'd accepted a deal with the devil.
+
+"Uh, we've met once. He helped me move some stuff into my apartment. Are you guys together?", responds Mia. Milo interjects again.
+
+### Character Unsure of Milo
+
+"Yes. We are." She kisses me tautly on the cheek. I don't feel safe to respond, and yet it made me crave her more. I wanted to feel desired. To feel like a piece of meat being chewed on my two women, hastily fighting for my corpse.
+
+I wasn't quite sure what I saw when I looked into Milo's eyes for a second time. It was as if the angel I'd envisioned had completely faded away; replaced by the deranged rhapsody of a murderous vixen. And yet I couldn't stop staring at her ideal figure . 
+
+ and the confidence which
+
+I internalise it as something sexual.
+
+There was something archaic in the design of the cab, as if
+
+
+
 
 You could tell he was having  . I noted not to shake his hand.
 
