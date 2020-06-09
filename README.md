@@ -72,24 +72,27 @@ I imagine the manuscript will be finished sometime in 2021.
 - Milo appears out of the blue. He invites her in.
 - They take an uber and head out to a mexican restaurant.
 
-### Chapter 09 - bubble.
+### Chapter 09 - restaurant.
+
+
+### Chapter 10 - bubble.
 
 - The character heads into work. Describes how the stock market has crashed.
 - The character delivers a monologue about work. The character meets with his boss. He's fired.
 - The character leaves for home.
 
-### Chapter 10 - death.
+### Chapter 11 - death.
 
 - The character is depressed to a point of delusion. He simply does not care.
 - He decides to take acid and meet up with a dodgy friend.
 - He has a huge freak out, ends up hospitalised.
 
-### Chapter 11 - dream.
+### Chapter 12 - dream.
 
 - The character has a lucid dream which details how he wish life was.
 - It still ends in tragedgy?
 
-### Chapter 12 - recovery.
+### Chapter 13 - recovery.
 
 - The character wakes up in a hospital ward.
 - He returns home and sulks.

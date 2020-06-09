@@ -26,32 +26,22 @@ One and three. 1 and 3. Left. Right. Tip. Tap. Winky fuckin' driver. The drink i
 
 Mia looked unsettled at the situation, perhaps witness to a side of my life she hadn't yet been exposed to. To our north, my friend had the driver caught in a vapid pauperisation of the quantum exaggeration, as he attempted to tell a story about how he managed to trek through the bush with only a knife and a compass. Milo on the other hand and completely left the scene; replaced by the drug-fucked interior of hyper-aggressive ambivalence. Sway to the voiceless disaffection of her apathy, that she wore in fear at the anarchy of her own life. Mia and I looked at each other with an understanding of the surrounding lawlessness of the situation. It brought us closer together. I wanted to hold her hand.
 
-Mia was the kind of person that you'd wished you'd met in high school. Beautiful and clever.
+### Describe Mia
 
+Mia was the kind of person that you'd wished you'd met in high school. Cheerful. Clever.
 
-I wasn't quite sure what I saw when I looked into Milo's eyes for a second time. It was as if the angel I'd envisioned had completely faded away; replaced by the deranged rhapsody of a murderous vixen. And yet she made me feel complete as a person. It felt as if we were the same person inside.
-
-I couldn't stop staring at her ideal figure .
-
- and the confidence which
-
-I internalise it as something sexual.
+### Describe Cab
 
 There was something archaic in the design of the cab, as if
 
 
+### Milo Regret
 
+I wasn't quite sure what I saw when I looked into Milo's eyes for a second time. It was as if the angel I'd envisioned had completely faded away; replaced by the deranged rhapsody of a murderous vixen. And yet she made me feel complete as a person. It felt as if we were the same person inside.
 
-You could tell he was having  . I noted not to shake his hand.
+I internalise it as something sexual.
 
-The driver spoke three different languages. Japanese, Chinese and Korean.
-
-
-If I could fuck any emotion I would fuck sadness. It would be your most malleable best friend. It wouldn't care if you beat it, raped it or crushed into a thousand tiny pieces. It would persist in its grief, elated in the distress it had already come to expect of itself. Grateful in your neediness and desperate in your pleasure. It is what Gods come to expect of their young.
-
-### Describe Stripmall
-
-The Mexican restaurant made its home within the matchwood interiors of a refurbished Church, house to slurry of canned beans and quarter-ounce jars
+### Arrival At Restaurant
 
 
 ## Scene 1 END
@@ -61,20 +51,46 @@ The Mexican restaurant made its home within the matchwood interiors of a refurbi
 ## Scene 2 START
 
 
+### Describe Restaurant Outside
+
+The Mexican restaurant made its home within the matchwood interiors of a refurbished Church, house to slurry of canned beans and quarter-ounce jars
+
+
 ### Describe Mexican Restaurant
 
 The enchilada. An inoffensive mound of maize-infused goop, seared in a second-hand microwave oven on finance. The slosh hammock rolled around on my plate, mummified in a meat-cheese mixture of re-hydrated pus and freeze-dried caesin. A product they used to call 'vinyl chloride' back at the foundry.
+
+### Milo Calls Me Into Bathroom
+
+Milo disappears into the bathroom.
+
+
+### At Bathroom
+
+"Is everything okay?"
+
+
+### Milo Fucks Character
+
+Milo begins
 
 
 ### Emotions
 
 Hid behind my over-sized sombrero, the streaming lights of the 8pm disco-ball.
-Its
+
 
 
 
 ## Scene 2 END
 
+####
+
+## Scene 3 START
+
+
+
+## Scene 3 END
 
 <!-- Maybe what happens is that Milo and the character go into the bathroom together. She has a fight with him about Mia and she hate fucks him. Then she leaves and breaks up with him. doesn't come back.
 
