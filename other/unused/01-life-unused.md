@@ -2,7 +2,26 @@
 
 Sordidly numb. I continue to practice my pen tricks with the charm of half-chewed biro he'd decidedly offered earlier as an amiable gift for my presence. Botch n' bauble. A midway rotation around the index of my finger. It drops to the floor, as he proceeds to lick his next words with a sickening kvetch. Someone please shoot me.
 
-He licks his lips with a sickening kvetch. 
+
+
+, extruding from the misery of his rented face. Artificial in it's defective commentary of enlightened bauble. .
+
+It barely keeps up with the defective commentary of his rented face, contouring senseless within the falter of his mind. This would be easy.
+And yet with
+
+ as the countour of my face pummelled to the floor in an unforgiving spasm of defective commentary.
+
+Sordidly numb.
+
+
+
+I continue to practice my pen tricks with the half-chewed biro he'd decidedly offered earlier, paying little attention his misplaced animosity
+
+his sleaze unpaved in the defective commentary of his rented face,
+
+, now elaborating itself into a verbal misunderstanding of statutory rape
+
+Dandy within the liar which touted within me.
 
 Was it the beginning of what was to become a laborious online prank, where I, the unwitting idiot, were to be exposed as some part-time celebrity on a popular Japanese game show? I suppose only time would tell.
 
@@ -10,9 +29,9 @@ My lips lick mine.
 
 I was ready to go postal on this one, even if it meant sacrificing my own life. Rent be thy neighbour.
 
-It was clear the rent was strong in this one.
-
 by the taint of the
+
+My eyes gather quaint upon the anticipation of his tongue, as his mouth baubles with a sickening delight.
 
 The mouth baubles with a sickening delight, left by the crumbs of the star-mangled biscuits laid waist to his sweater.
 
@@ -30,7 +49,8 @@ Most assuredly, the rent was strong in this one, and so too was the fallacy in m
 
 carelessly vague in it's accelerating motion
 
-nauseous in the underlying assumptions creeping itself into our veins.
+Hoping desperately for the ceiling above me to collapse upon my soft body, nauseous in the underlying assumptions creeping itself into our veins.
+.
 
 , crown jewel to the unjustified misery we all mimic and pretend.
 

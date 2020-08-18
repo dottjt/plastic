@@ -36,7 +36,7 @@ The only person who didn't quite seem so dejected was Milo.
 
 "Hello stranger. Looks like someone decided to rock up to work today. I didn't know you liked me that much."
 
-I could feel the hatred in her voice. 
+I could feel the hatred in her voice.
 
 I wanted to cry. She acted normal, as if nothing had happened between us.
 
@@ -65,6 +65,9 @@ Ah well, that's a real shame and it might even cost her this year's promotion, h
 Men and children alike grab sections of her bruised body as it's dragged by in harmonious ceremony. "Take this poor women and guide her towards the top of patriarchy!", gleams an autistic man in an over-sized company sweater, gaff in a choking fit of insoluable lubricant following a sincere attempt to deep-throat a hard-drive full of high-resolution images of the CEO's junk. Unfortunately, it just ain't the same for ol' dick-weed here, what with his pronounced adam's apple and crippling inability to imitate a Disney-inspired blow-job. Fortunately however, eligible for his underage daughter who's just returned from rehab, proudly completing her 3rd stint in an all-inclusive five-star resort for anorexic over-achievers, following an unfortunate incident with a c-level executive and their new 'back-door' policy. Although I must admit, there's nothing quite like a carpal tunnel induced hand-job at three-to-ten in the afternoon, following an hour-long lecture on the cautionary reprimand of sexual harassment within the workplace. The status quo was here to stay.
 
 ### Describe Boss
+
+
+<!-- Ultimately the editor was the result of a fatherless upbringing, rushed illiterate through a delinquent craze of conservative vice-chancellery and ethnic malfeasance. Raised deep from within the backwaters of a clandestine women's society, keen on beating the fluff out of potato to prove its worth in the inter-continental submission of 3rd world nations. -->
 
 "Well, well. If it isn't the shit-meister," gloats the 6-foot mirage of coconut-butter and Machiavellian breath, amok in an eschew of Piña colada inspired hand signals. While he certainly wasn't the prettiest man, what with the raw gizzard and touching cellulite which dribbled from his chin, there was a lot to say about the sigh of comic relief which was his contribution towards the company. A title wedged so high on a pedestal so far away in the heavens above, that not even his own arrogance could pertain to the barrage of sanity attempting to bring him back down from such dizzying heights. He was the dad that allowed you to set mummy's new curtains on fire, if only so you'd shut up and bless him another 10 minutes of silence to watch the game in peace.
 
