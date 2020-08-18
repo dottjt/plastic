@@ -98,6 +98,8 @@ followed by a unwitting gasp at the clamature of the situation,
 
 ### part 2
 
+forming heights that would leave the physically handicapped in existential crisis
+
 that the very foundation
 
 our fibrous existence
