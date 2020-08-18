@@ -2,7 +2,7 @@
 
 Sordidly numb. I continue to practice my pen tricks with the charm of half-chewed biro he'd decidedly offered earlier as an amiable gift for my presence. Botch n' bauble. A midway rotation around the index of my finger. It drops to the floor, as he proceeds to lick his next words with a sickening kvetch. Someone please shoot me.
 
-
+as a gather to worship thee enumeration of thy poor.
 
 , extruding from the misery of his rented face. Artificial in it's defective commentary of enlightened bauble. .
 
@@ -65,6 +65,8 @@ The one to concoct this evening's pseudo-salad of pain.
 faltering into a gargantuam puddle of chromatic green,
 
  at a crack-clinic shootout
+
+Wish-washing the unadulterated scum out of my life couldn't
 
  even more so than my initial struggle to weasel myself into the world of publishing.
 
