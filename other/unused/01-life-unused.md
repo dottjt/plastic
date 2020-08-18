@@ -98,7 +98,11 @@ at the clamature of the situation
 In contemporary fashion,
 followed by a unwitting gasp at the clamature of the situation,
 
+ along with the garbled squabble of Grandpa's cigarette ash.
+
 ### part 2
+
+in a choking fit of exile,
 
 forming heights that would leave the physically handicapped in existential crisis
 
