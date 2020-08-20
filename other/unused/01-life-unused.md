@@ -17,6 +17,11 @@ Sordidly numb.
 
 
 
+Two incompatible fuck-buddies, with a schedule which barely fit in enough time to spend with our lesbian wives.
+
+as his cheek-bones bore the pity of a decrepit widow, held together by a chain of cigarettes which kept those ol' lungs pretty.
+
+
 I continue to practice my pen tricks with the half-chewed biro he'd decidedly offered earlier, paying little attention his misplaced animosity
 
 his sleaze unpaved in the defective commentary of his rented face,
@@ -172,9 +177,48 @@ would unanimously end in a public cheer of despondence, gurgled in a  of mass-hy
 
 My fingers tingled with a flavourful joust.
 
+ because this cunt had it coming to him. And although he knew it too, I certainly wasn't keen on teaching a dead dog new tricks.
 
 
 All I knew was that the mood had soured into a guava pulp of rotten aspirations,
 
 as his quaint mouth baubles with a sickening delight.
 Perverse in his relative carbonation. My eyes gather lambaste upon the hints of anticipation pronouncing creed from the crest of his tongue. ,
+
+
+
+a defensive mechanism sought to eradicate all potential responsibility from his repertoire of life-sucking heuristics. He was a cock-sucking prat and I was going to show it to him.
+
+, I yelled. As I personally hand-crafted my words in such a way that they would eventually reach the hollow cavern of his brain, now attempting to recruit a gallow of well-trained monkeys to decipher the ploy of sabotage being hurled his way.
+
+
+
+
+The plain insincerity of
+
+The flaked-paint ceiling shifted its muted colours into a dark purple of valiant rose, drawing the poor yuppie into a sober chamber of insulated regret.
+
+
+"Listen, bud. I know you think I'm not the brightest tool in the shed, but if you just knew some of the industry connections I had, I think you'd really look up to me." Unintentionally resolute in the Valium-enhanced confines of a sedated cliché, the editor felt dependable in the same way King Arthur felt magniloquence eating a bucket of fried chicken at his enigmatic Round Table. Hidden behind the Sicilian dazzle of his two-dumb sack Dolce & Gabbana, endured a hairy gut of emollient dairy; bursting with a gaseous reminder to shift positions every once n' a while, in order to avert the disturbance of the pro-biotic interplay preventing his body from detonating into a proliferating spiral of compounding Tzatziki. Another potential trauma to be conveyed to my therapist's ever-growing backlog of irrational condensation brewing deep from within my mind.
+
+
+Chinatown had spoken.
+
+
+Perhaps for the first time in his life, the editor didn't quite know how to respond. No answer to the looming divorce of thy union. No conceivable way to writhe his way back into pole position. No method to express how little control he had over the situation. No loophole to charm or linger. No words or audience to please. He was an irrelevant puddle of defeat, and I made sure to let him know of his stature in the crinkle slade of disappointment I displayed on my face, as I lifted myself up from the table and walked away. Mussing my fingers along the slippery tiled walls of the harrowing corridor and out through the plastic-bead opening keeping him in.
+
+
+
+####
+
+## Scene 4 START - Leave
+
+### Leaves Restaurant
+
+As I gawked my way out of The Ming, dead in a primal pursuit of counter-clock rage, I stopped for a moment in the middle of the sidewalk to return myself to a more cosy collection of thoughts. A delicious bowl of ramen soup, I thought to myself. That's what I craved, as my empty stomach gargled in a churlish snicker of twinkle n' pink. And yet as I walked down these disease-ridden lanes, plastered many times over with a volcanic certainty of cheap glue and holographic print, I couldn't quite shake the anger that I felt for life, as the tip of my knees sank like a chasm into the mound of my socks. Like a slow-tide of faithlessness being dragged back into reef, it was the kind of deuce which left you flaccid in a mass-hysteria of unanimous public despondence. I reassured myself that I didn't need him. That he was trash, and that I would find another editor to publish my book, even if it meant kidnapping one myself.
+
+### Chinese man prophecy
+
+I pass an old Chinese man selling chop-chop along the side of the road. He begins shouting at me in a roast of incomprehensible Chinese. Perhaps he recognised me. Perhaps he wanted to tell me something important. I threw him a dollar as he sat there bewildered at the generosity of my gesture. I was in no mood to play prophecy. At the very least I understood how I didn't want my book published, abused and slawed in slimy knockdown of soaked arrest. I glanced down at my watch and swore. Fuck. It was only 2 in the afternoon and I still had to return to work. Hopefully no one had realised how long I'd disappeared for, although I found that highly unlikely. Unfortunately, it didn't stop me from trying.
+
+## Scene 4 END
