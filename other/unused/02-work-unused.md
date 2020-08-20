@@ -20,6 +20,8 @@ an event which had spawned an all-out war between my brain and my stomach.
 
 Margarine's tainted folly digs it's five-inch heels firmly into your hardened arteries, as you attempt to pry the concrete from your eyes with a miniature pickaxe at 5:20am in the morning.
 
+The diabolical
+
 underaged women in
 
 Mesmerisingly subterranean,
