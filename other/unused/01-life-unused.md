@@ -2,6 +2,8 @@
 
 Sordidly numb. I continue to practice my pen tricks with the charm of half-chewed biro he'd decidedly offered earlier as an amiable gift for my presence. Botch n' bauble. A midway rotation around the index of my finger. It drops to the floor, as he proceeds to lick his next words with a sickening kvetch. Someone please shoot me.
 
+
+
 as a gather to worship thee enumeration of thy poor.
 
 , extruding from the misery of his rented face. Artificial in it's defective commentary of enlightened bauble. .
@@ -88,6 +90,9 @@ Following what seemed like an eternity with the world's worst therapist, it was 
 
 dearly hoping it would kill me before rendering me entire paralysed from the waist down.
 
+Eventually the quantum illusion crumbles and his body is returned to his more elusive adult form, as
+
+
 A floundering point of asymptotic reference, carelessly vague in it's accelerating motion creeping itself into our veins.
 
 Hopelessly devoid of nutritional content, cowering silent in packets of coddled destitution.
@@ -102,6 +107,14 @@ followed by a unwitting gasp at the clamature of the situation,
 
 ### part 2
 
+gobblin' up the rasher twins' lesser cousins in an all-out homicide of culinary scorched-earth.
+
+Thankfully he only poured a tiny amount of Kahlua into this morning's coffee, presumably to counter the hangover he'd developed from the previous night earlier. All in a day's hard work.
+
+, only to choke on his spit in a sudden inconvenience of harrowing self-interest, as he started banging his fist on the table in a confused mess of inhumane discomfort.
+
+to shove the hastily prepared utensils into the
+
 in a choking fit of exile,
 
 forming heights that would leave the physically handicapped in existential crisis
@@ -110,11 +123,16 @@ that the very foundation
 
 our fibrous existence
 
+
+ as per the dubious contract he'd maintained with the five-mile dead-zone preoccupying his brain. Although he can't help but continue to fumble.
+
 ready to sell or consume
 
 The expectation was vast, ripping itself into the skin and bone of the casual patron,
 
  usually .
+
+Encircled within their hovels of alluring dissent
 
  within these doors. Those flakey lines of trodden harmony? Were they real? Did they seek pleasure?
 
@@ -148,12 +166,15 @@ If only I had a gun and an incessant desire to kill Italians, then we could end 
 
 Surely it was abnormal to confuse verbal harassment with the extravagant excellence of five-star customer service, as an ode to the millions of telemarkers makin' dime sellin' faulty car insurance to reckless youth with a mandatory requirement for debt spending.
 
+ I wasn't sure how much more of his insufferable horseshit I could continue to endure, but my heart was wearing thin in this ludicrous takeover of fist-meets-tongue.
 
 would unanimously end in a public cheer of despondence, gurgled in a  of mass-hysteria of archival gromair.
 
 My fingers tingled with a flavourful joust.
 
 
+
+All I knew was that the mood had soured into a guava pulp of rotten aspirations,
 
 as his quaint mouth baubles with a sickening delight.
 Perverse in his relative carbonation. My eyes gather lambaste upon the hints of anticipation pronouncing creed from the crest of his tongue. ,
