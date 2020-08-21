@@ -1,6 +1,15 @@
 # 02-work.md
 
+Tizzle n' rawr. Sizzle n' bliss. Shuckle up, bucko. It's time to cradle this flair.
+
+The diabolical mud seeps from your gums n' fizzles into
+
+ who'd had discovered something precious near our table
+Sandwich scum from ever eating at his restaurant again
 , ,
+Achromatic be thy beak calico invention.
+
+, as the vogue seeps in diabolical undertones
 
 <!-- A universal craving without a suitable name. A crap-stick unhinged. -->
 Craving your expedition without a suitable name.
@@ -17,6 +26,9 @@ place my finger firm on the trigger, emptying
 crying idly by in it's native tongue
 
 an event which had spawned an all-out war between my brain and my stomach.
+
+
+to the 
 
 Margarine's tainted folly digs it's five-inch heels firmly into your hardened arteries, as you attempt to pry the concrete from your eyes with a miniature pickaxe at 5:20am in the morning.
 

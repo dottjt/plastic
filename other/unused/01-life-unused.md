@@ -2,7 +2,7 @@
 
 Sordidly numb. I continue to practice my pen tricks with the charm of half-chewed biro he'd decidedly offered earlier as an amiable gift for my presence. Botch n' bauble. A midway rotation around the index of my finger. It drops to the floor, as he proceeds to lick his next words with a sickening kvetch. Someone please shoot me.
 
-
+Milk. Acquaintance. He licks his lips with a sickening kvetch. Botch n' bauble. Sordidly numb. My eyes quiver in hopeless anticipation upon the defective commentary I'd come to endure over the past hour and a half. And much like observing a child attempt to hang itself lyrically with the stock of a gun, perhaps it'd be quicker if I'd just shot him instead.
 
 as a gather to worship thee enumeration of thy poor.
 

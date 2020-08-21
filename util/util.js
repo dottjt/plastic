@@ -12,14 +12,14 @@ const CWA_TYPE = 'chapter-without-annotation';
 const PAGE_TYPE = 'page';
 
 const include_files = [
-  '01-life.md',
+  // '01-life.md',
   '02-work.md',
-  '03-family.md',
-  '04-apartment.md',
-  '05-date.md',
-  '06-therapy.md',
-  '07-gun.md',
-  '08-birthday.md',
+  // '03-family.md',
+  // '04-apartment.md',
+  // '05-date.md',
+  // '06-therapy.md',
+  // '07-gun.md',
+  // '08-birthday.md',
 ];
 
 const fancyBreakString = () => `
@@ -33,7 +33,7 @@ const getHeadWithoutAnnotation = (fileContents) => {
   const head = fileContents.match(headRegex)[0];
 
   const rawWithHTMLContent =  fileContents.split('---')[2];
-  
+
   const content =
     rawWithHTMLContent
     .replace(/\#\#\#\#/g, '')
@@ -53,7 +53,7 @@ const getHead = (fileContents) => {
   try {
     const headRegex = new RegExp(/---(.|[\r\n])+---/);
     const head = fileContents.match(headRegex)[0];
-  
+
     const rawWithHTMLContent =  fileContents.split('---')[2];
 
     const content =
@@ -61,7 +61,7 @@ const getHead = (fileContents) => {
       .replace(/\#\#\#\#/g, fancyBreakString())
       .replace(/\#\#\# [\S ]+/g, '')
       .replace(/\#\# [\S ]+/g, '')
-      .replace(/\n\s*\n/g, '\n\n')  
+      .replace(/\n\s*\n/g, '\n\n')
       // .replace(/<!--[\s\S]*?-->/g, '')
       .replace(/(?=  <!--)([\s\S]*?)-->/g, '')
 
@@ -79,7 +79,7 @@ const extractHeadContents = (headContents) => {
   const rawTitle = headContents.match(titleRegex)[0];
   const title = rawTitle.split('"')[1].replace('"', '');
 
-  
+
   // const descriptionRegex = new RegExp(/description: .+/);
   // const rawDescription = headContents.match(descriptionRegex)[0];
   // const description = rawDescription.split('"')[1].replace('"', '');
@@ -92,13 +92,13 @@ const extractHeadContents = (headContents) => {
 
 const extractData = (file_contents, file_name, type) => {
   const { head, content } = type === CWA_TYPE ? (
-      getHeadWithoutAnnotation(file_contents) 
+      getHeadWithoutAnnotation(file_contents)
     ) : (
       getHead(file_contents)
     );
-  
+
   const { title/* , description */ } = extractHeadContents(head);
-  
+
   // const new_list_item = { content, title/* , description */ };
   return {
     // new_list_item,

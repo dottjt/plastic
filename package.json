@@ -5,11 +5,11 @@
   "main": "index.js",
   "scripts": {
     "generate-chapters-without-annotations": "node ./util/generateChaptersWithoutAnnotation.js",
-    "compile-book": "npm run compile-md && npm run compile-pub && open ./ebook/book.epub",
-    "compile-md": "node ./util/generateBook.js",
-    "compile-pub": "pandoc ./ebook/book.md --strip-comments --toc --toc-depth 2 --metadata-file ./ebook/book-metadata.yaml -o ./ebook/book.epub -f markdown -t epub",
-    "compile-pdf": "pandoc ./ebook/book.md -s --strip-comments --toc --toc-depth 2 --metadata-file ./ebook/book-metadata.yaml -o ./ebook/book.pdf",
-    "compile-docx": "pandoc ./ebook/book.md -s --strip-comments --toc --toc-depth 2 --metadata-file ./ebook/book-metadata.yaml -o ./ebook/book.docx"
+    "compile:book": "npm run compile:md && npm run compile:pub && open ./ebook/book.epub",
+    "compile:md": "node ./util/generateBook.js",
+    "compile:pub": "pandoc ./ebook/book.md --strip-comments --toc --toc-depth 2 --metadata-file ./ebook/book-metadata.yaml -o ./ebook/book.epub -f markdown -t epub",
+    "compile:pdf": "pandoc ./ebook/book.md -s --strip-comments --toc --toc-depth 2 --metadata-file ./ebook/book-metadata.yaml -o ./ebook/book.pdf",
+    "compile:docx": "pandoc ./ebook/book.md -s --strip-comments --toc --toc-depth 2 --metadata-file ./ebook/book-metadata.yaml -o ./ebook/book.docx"
   },
   "repository": {
     "type": "git",
@@ -31,7 +31,7 @@
   },
   "husky": {
     "hooks": {
-      "pre-commit": "npm run generate-chapters-without-annotations && git add . && npm run compile-md",
+      "pre-commit": "npm run generate-chapters-without-annotations && git add . && npm run compile:md",
       "//pre-push": ""
     }
   }
