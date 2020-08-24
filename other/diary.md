@@ -1,6 +1,8 @@
 # diary.
 
-20/08/2020 - Well, well, well. So as of a few days ago (possible four, I assume is a monday) I have decided to return full-force back into writing the novel. As of today, I have fully rewritten the 1st chapter to my liking, and I will continue to move forward through each chapter. It's a tiring process, but it's also an engaging process which I enjoyed. There's still a lot of work to do in terms of straightening out existing dialogue, but so be it. 
+21/08/2020 - I went over the 1st chapter again and made a lot of tweaks and I'm very happy with it. It's almost like everything written up until now was just a shell. It wasn't very good. But I've begun work rewriting the 2nd chapter and that's moving a lot more smoothly. I just assume that the first few chapters are a bit of a mess.
+
+20/08/2020 - Well, well, well. So as of a few days ago (possible four, I assume is a monday) I have decided to return full-force back into writing the novel. As of today, I have fully rewritten the 1st chapter to my liking, and I will continue to move forward through each chapter. It's a tiring process, but it's also an engaging process which I enjoyed. There's still a lot of work to do in terms of straightening out existing dialogue, but so be it.
 
 08/06/2020 - It was a public holiday today, so I was able to work on the novel a lot. I really, really didn't feel like writing in the morning. I don't know why, but I just wasn't feeling it. Yet at night, I felt really keen to write. Interesting how that works. Regardless, I've mentally manage to progress the story how I like and came up with the idea of Milo hate fucking the character at the restaurant.
 

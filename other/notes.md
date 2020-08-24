@@ -159,3 +159,7 @@ Technical aspects:
 
 - Find colour note notes and add it here.
 - Maybe have a look at some writing on tumblr regarding these events.
+
+
+
+I've been thinking about this concept of vogue. 

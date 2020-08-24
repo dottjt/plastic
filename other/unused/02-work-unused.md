@@ -9,6 +9,8 @@ Sandwich scum from ever eating at his restaurant again
 , ,
 Achromatic be thy beak calico invention.
 
+ from the oriental dive bar earlier, later
+
 , as the vogue seeps in diabolical undertones
 
 <!-- A universal craving without a suitable name. A crap-stick unhinged. -->
@@ -28,7 +30,7 @@ crying idly by in it's native tongue
 an event which had spawned an all-out war between my brain and my stomach.
 
 
-to the 
+to the
 
 Margarine's tainted folly digs it's five-inch heels firmly into your hardened arteries, as you attempt to pry the concrete from your eyes with a miniature pickaxe at 5:20am in the morning.
 
@@ -48,9 +50,16 @@ It was too bad she knew nothing of my obsession, shrouded in the ripped veil of 
 
 Well, it was more of an immediate obsession than it was a simple acknowledgement to be upheld.
 
+Hoping she would reach out and take my hand, whilst pathologically pretending to be my girlfriend in front of fellow co-workers. There wasn't a single thing I could fault.
+
 North vs South in a diluted battle of makeshift terms, fuzzy in the lack of genuine discourse being discussed amongst the various allies of tongue and cheek.
 
+What categorised Milo, aside from my ardent obsession with her existence, was that she was a bit of a bipolar baby.
+
+
 , given it was past lunch time and I'd decided not to even bother showing up to work to begin with. Especially since I knew my boss was going to be away, if not out of chance, just like he'd been for most of my child and adult life. Maybe that explained my erratic behaviour and desperate attention-seeking prowess, the proud legacy of professional neglect and ineffective HR practice. Obviously, my options were limited to the pocket-sized grain of rationality that hadn't yet been completed consumed by the creeping anxiety of being fired in some dramatic shootout in the carpark, so I had to think fast.
+
+shrill twirls
 
  fit with enough connective fibre to meet Ethiopia's anal porn needs
 
@@ -79,6 +88,7 @@ An exciting state of explicit premonition, as your father dies in front of you w
 
 imprint to the segregation our society loves to weep
 
+Goldilocks' manic retardant. The world's saddest poker face. My
 
 
 was yearning
@@ -116,7 +126,7 @@ The blue-backs on the other hand were the very source of the Machine of Profitâ„
 
 They were thrifty scavengers with a gifted sense of time, known to survive for weeks on end without nourishment, readied in travelled groves to suckle the moisture from their weary foes. An ability which allowed them to work for days on end without even a puddle of coy to contrive.
 
-
+ The clarity of her struggle. The sex in her veins.
 
 laid what was known to it's employees as the Machine of Profitâ„¢
 
