@@ -1,5 +1,7 @@
 # diary.
 
+25/08/2020 - Making good progress on the novel. Unfortunately I wasn't able to work on the novel this weekend because I had to do a coding assignment for a job interview, but that's fine. I had a realisation today that I'm very much concerned with the way words sound and how they make you feel, as opposed to what they actually mean. Meaning to me is more than a common understanding
+
 21/08/2020 - I went over the 1st chapter again and made a lot of tweaks and I'm very happy with it. It's almost like everything written up until now was just a shell. It wasn't very good. But I've begun work rewriting the 2nd chapter and that's moving a lot more smoothly. I just assume that the first few chapters are a bit of a mess.
 
 20/08/2020 - Well, well, well. So as of a few days ago (possible four, I assume is a monday) I have decided to return full-force back into writing the novel. As of today, I have fully rewritten the 1st chapter to my liking, and I will continue to move forward through each chapter. It's a tiring process, but it's also an engaging process which I enjoyed. There's still a lot of work to do in terms of straightening out existing dialogue, but so be it.

@@ -118,6 +118,7 @@ Asian male in Western society.
 
 as we both embarked onto a sunset promenade upon a dinner provided for two, cautioned by a night of
 
+hought chopsticks were nothing more than an advanced trickery of the mind
 
 The orange-backs maintained the Machine of Profit™. They were hardened loyalists with an obsessive personality, fanatic in their pursuit for operational perfection. They documented, studied and lauded over every single aspect of the Machine of Profit™ in an entire library full of arcane functions. Tested and praised for their striking simulation of reality. They were thrifty scavengers with a gifted sense of time, known to survive for weeks on end without nourishment, readied in travelled groves to suckle the moisture from their weary foes. An ability which allowed them to work for days on end without even a puddle of coy to contrive. An introverted cog of divine certification and befuddled self-esteem, they where the ultimate servants to the establishment, vaticinal in their ability to optimise even the most basic of algorithms. Lead by a pale autistic child who bore tiny little keyboards for fingers, the child went as far as to have his frail body fused into the Machine of Profit™ itself, dependent upon it's operation for his survival. Known to orange-backs as the Son of Machine™.
 
