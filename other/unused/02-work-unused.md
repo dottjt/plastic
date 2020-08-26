@@ -245,3 +245,27 @@ Kindly miniature.
 the backbone of respite,
 
 coalesce in satanic droves of
+
+
+out-of-order enough to appear disruptive. Another drifter with a shoe for a sock, cause the paper ain't gonna push itself, sweetie.
+
+
+
+
+Sizzling in the heavenly bask of the great big ball in the sky,
+, deciding night and day without even a quandary of discord.
+
+as I suckled her perched nipples with the length of my tongue,
+
+
+
+As I imagined suckling her perched nipples with the length of my tongue,
+
+Now handling itself inside the dopamine-sized pockets of air preoccupying, bursting inside my head.
+of elation
+
+Well, at least a fraction of this would hold true if the dreaded excess of work didn't also lead to an almost debilitating level of self-harm, now manifesting itself into a compulsive desire to gouge your own bladder out with a disposable plastic spoon, left ever-so keenly in the office kitchen for such prying eyes to declare. A symbol of millennial martyr in thy duty of unreasonable stress, delegated ever-so softly as a personality disorder with just the right amount of sparkle n' jazz to keep the leadership in a-buzz. Crinkle n' cut, slader. It's time to anneal those wounds n' call it a day. I gaze out into the foray of wild desks, admiring the fibre glass upholstery shimmering in the distance. I was sad to be alive.
+
+in the distance
+
+It's time to anneal those wounds n' call it a day.
