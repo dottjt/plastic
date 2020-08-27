@@ -269,3 +269,9 @@ Well, at least a fraction of this would hold true if the dreaded excess of work 
 in the distance
 
 It's time to anneal those wounds n' call it a day.
+
+Women really were the worst, and I think she knew it herself. At the very least, it'd help kill some time.
+
+She knew she had me hook, line and sinker.
+
+Eager to strike at any moment in a queer outburst of pan-fried lubricant

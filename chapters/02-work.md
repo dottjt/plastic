@@ -75,19 +75,16 @@ Truculently caught in the fluorescent blindness of the ceiling lights above, I s
 "Hey, did you hear about the updated deadlines? I swear, they change daily," remarked Milo. Dispassionate at the seams in an untied flurry of sex-hair and dorky conversation.
 
 "I have no idea," I respond. Intense in my desire to remove myself from the magnet of her presence. As much as I wanted to shove my hands into the seams of her lovely dress and invent a new kind of dignity, she was yet another painful distraction from the thousands of clammy decisions grappling with my brain; somewhat leaving me in a superfluous state of ceaseless 9-to-5 employment. Sour with lament. The delegation had broke. Pour the brandy onto thy holy castle and deliver thy swine from thy depths of swell. Oh, ever-so swellish indeed. I was man born to win; to gather n' disperse in complete declaration of the resent which I commanded like a Turkish hellfire from the wrath of the Dardanelles.
--->
 
-As I sat there loathing in the dreaded excess of work, leaving me no choice but to pursue an almost debilitating level of self-harm; now manifesting itself into a compulsive desire to gouge my own bladder out with a disposable plastic spoon, left ever-so keenly in the office kitchen for such prying eyes to bleed. Perhaps I would become a symbol of millennial martyr in thy duty of unreasonable stress, delegated ever-so softly as a desirable personality trait for thy recruiters to amend. Providing just the right amount of sparkle n' jazz to keep thy leadership in a-buzz, and thy mental health budget in arrears. Crinkle n' cut, slader. As I gaze out into the foray of empty desks before me, admiring the fibre glass upholstery of their shimmering anneal. It was a sad time to be alive, let alone in this office of purgatory.
+As I sat there loathing in the dreaded excess of work, leaving me no choice but to pursue an almost debilitating level of self-harm; now manifesting itself into a compulsive desire to gouge my own bladder out with a disposable plastic spoon, left ever-so keenly upon my desk for such prying eyes to bleed. Perhaps I would become a symbol of millennial martyr in thy duty of unreasonable stress, delegated ever-so softly as a desirable personality trait for thy recruiters to amend; providing just the right amount of sparkle n' jazz to keep thy leadership in a-buzz, and thy mental health budget in arrears. Crinkle n' cut, slader. As I gaze out into the foray of empty desks before me, admiring the fibre glass upholstery of their shimmering anneal. It was a sad time to be alive, let alone deranged in this office of purgatory.
 
 ### Milo Cigarette Invitation
 
-"Well, it's plain fucked if you ask me. I'm going out for a fag. Could I perhaps ...tempt you to join me?"
+"Well, it's plain fucked if you ask me. I'm going out for a cigarette. Could I perhaps tempt you to join me?"
 
 "You know I don't smoke."
 
-"We all saw you drunk at last year's Christmas party, Peter Pan. Slingin' yourself round' like a desperate chimney. We have eyes, you know." I loved the way Milo taunted me, as she dangling a rolled cigarette in front of my eyes, sully in an alluring transgression of heist from the tip of her exquisite fingers. Toes in motion; prancing out of the room and into the foyer. Exercising her petite silhouette through the ethereal fabric adopting her skin,
-
- causing all sorts of devious mischievous within my mind. Well, I only knew all this because I decided to follow her out into the lobby, out of my designated slaughter pen and into her colloquial embrace, in dire need of a light and a cigarette. Women really were the worst, and I think she knew it herself. At the very least, it'd help kill some time.
+"Listen, Peter Pan. We all saw you drunk at last year's Christmas party. Slingin' yourself round' like a desperate chimney. Come on, it'll be fun." I loved the way Milo taunted me, as she dangling a rolled cigarette in front of my impressionable eyes, sully to the alluring transgress of her svelte fingers. Toes in motion; prancing out of the room and into the mischief of the foyer, subsequently dragging my possessive mind along with it. As she grasped at diminutive silhouette of her lonesome figure; devious in the ethereal fabric stretching taut across her skin. Adoption be thy sin. I wanted to learn more. Instinctually, I had no choice other than to follow her out into the foyer and into colloquial wounds of her embrace. In dire need of a light and a cigarette.
 
 ## Scene 2 END
 
@@ -97,21 +94,22 @@ As I sat there loathing in the dreaded excess of work, leaving me no choice but 
 
 ###  Describe Smoking
 
-Below the stark corridors of the cubular profit centre above, bore the 20th-century imprint of the methylated industrialisation which had ravished the construction workers of youth. An underground carpark the size of a 60,000 seat stadium, empty in its glorious presentation. That was, empty aside from an old 1956 Holden Station Wagon which had been kept in immaculate condition since its inception. A subject the orange-backs aggrieved in hoards, as they sat there in their muted orange suits, huddled in a sanctimonious profess of technical agility, licking discarded batteries by the bucket-full, afloat in an electrical buzz of drained competence. Eager to strike at any moment in a queer outburst of pan-fried lubricant. We skirted around the faint seethe of their activity, sure not to disturb their unrest, as we made our way to our designated spot next to the company ashtray. Oh, how you would love to learn about the company ashtray.
-
-"Ah, well, well. My sunken child. Ol' Ditto. It looks like the fatal grape has followed this hasty seed." She passed me her pouch of tobacco, le port royale, fit with an assortment of crinkled papers and circumcised filters. Excited in the presentment that I, her fatal grape, were to smoke tobacco with papers that she personally touched. Allowing me to inhale her essence in my every breath, and incorporate her linger into the depths of my soul. The perfect excuse to inhale, if ever there were one. Inherently, I always found something sexual about smoking. No different to masturbating or crying, in a casual degrade which suffered no explanation. A modern suicide pact for today's young people to enjoy. Poorly-rolled and in full contempt of my fingers, I took a long drag of my cigarette, placing my calm besides me. Loosening my lips with an emerging enthusiasm. Pittering in the ensuing cough.
+Below the stark corridors of the cubular profit centre above, bore the 20th-century imprint of the methylated industrialisation which had transformed this underground landscape into a uninhabitable wasteland of broken youth. The unfolding of the elevator doors revealed an expansive carpark the size of a 60,000 seat stadium; entirely empty in its glorious presentation of both concrete and candescence. Well, empty aside from an old 1956 Holden Station Wagon which had remained untouched and in immaculate condition since its inception from the factory which it was born. Candid in a sanctimonious profess of technical desire, it was a subject vital to the beatific vision of the orange-backs. As they stood there huddled in the shadow of their zipline orange suits, licking what appeared to be newly discarded batteries by the handful. Afloat in an electrical buzz of unconcealed ego. Tantamount to the vehicle's symbolic likeness to the machine. Keen not to disturb their unrest, we skirted around the faint providence of their seethe to the designation of the company ashtray. Oh, how you would love to learn more about the company ashtray.
+-->
+"Well, well, well. My sunken child. Ol' Ditto. It looks like this fatal grape has fallen for thy hasty seed." She passed me her pouch of Port Royal, fit with an assortment of crinkled papers n' uncircumcised filters. As I sat there excited, poised to embrace the dizygotic taste of her hasty seed, with a bunch of a tobacco papers she'd personally touched. Allowing me to inhale her very essence and incorporate the infidelity of her linger into the very depths of my lungs. It was the perfect excuse to inhale, if ever there was one. I'd always found something quite profoundly sexual about smoking. Another casual degrade to explore without explanation, no different to masturbating alone or crying in the presence of a deceased hooker. It was little more than a modern suicide-pact for today's young people to enjoy, as I took a long drag of my poorly-rolled cigarette, placing my calm besides me. Loosening my lips with an emerging enthusiasm for nicotine, in full contempt of the pittering cough my lungs had come to adore.
+La mia principessa.
 
 ### Discuss meeting with editor
 
-"So, how did the meeting with the editor go? Same cunt as the last one?", she remarked, as she took a long squinted drag of her elongated cigarette.
+"So, how did the meeting with the editor go? Same cunt as the last one?", she remarked, as she took a long, squinted drag of her burning cigarette.
 
-"Pretty much. He was a bit of a nut-job."
+"Pretty much. He was quite the nut-job."
 
-"Hey, at least you didn't have to blow him. Unless if you did, then I totally understand why it went sour."
+"At least you didn't have to blow him. Unless if you did, then I totally understand why it went sour."
 
-"Listen. It's hard delivering half-chewed cock in the back of a Chinese restaurant, especially when your mouth is covered in tom-yum sauce." She giggled. I loved it she giggled.
+"Listen. You try sucking another man's cock in the back of a Chinese restaurant whilst ordering a second serving of dumplings." She giggled. I loved it was she giggled. That was surely cue for a victory drag.
 
-"At the very least you're passionate about something. I can barely decide on what toast or cereal for breakfast. I think you have something special."
+"Well, at least you're passionate about something. I can barely decide on what to have for breakfast." I honestly doubt she ate breakfast at all, let alone gave it a serious consideration. Although I suppose it was better to pretend than breakdown into a sobbing mess of anorexic unhinge.
 
 "Ah well, you know how it is. Churn in, churn out."
 
@@ -119,7 +117,7 @@ I wasn't sure if love quite described how I felt about Milo, but there was somet
 
 ### Flirt/Proposal
 
-"Do you ever think about death?", she asked, catching me by surprise.
+"Do you ever think about death?", she asked. As she glanced into my eyes with a notion of
 
 "Not really. Probably no more than most people. Why?"
 
