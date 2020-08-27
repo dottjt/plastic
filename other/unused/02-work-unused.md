@@ -275,3 +275,20 @@ Women really were the worst, and I think she knew it herself. At the very least,
 She knew she had me hook, line and sinker.
 
 Eager to strike at any moment in a queer outburst of pan-fried lubricant
+
+I honestly doubt she ate breakfast at all, let alone gave it a serious consideration. Although I suppose it was better to pretend than breakdown into a sobbing mess of anorexic unhinge.
+
+in the magic which would coarse through my body
+
+ there was also an air that something wasn't quite right.
+
+
+But if it were that easy, then I probably wouldn't have any self-esteem issues.
+, in an exercise of pre-marital self-care.
+
+like having invisible needles forced through my liver
+
+Vulnerable in her childish voice,
+
+
+Was this real? Was this finally happening? In a sense, it felt like we'd both been feeling these things for a while, although in reality, it felt more like being eaten alive by a Lion. My arms limp from the impact-trauma of smashing my head against a rock, as its large teeth tore through my legs, snapping bone n' blood into a sludge of stomach acid. I was both afraid and excited, with a dash of confusion to spread drama throughout my entire central nervous system. Largely, I wasn't even sure if she was being serious.
