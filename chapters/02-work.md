@@ -5,16 +5,18 @@ day: "Friday."
 ---
 
 ## Scene 1 START - Milo
-<!--
-### Work Introduction
 
-In work we trust. A plutocratic orgy of totalitarian devastation. The week's solution to the rampant "black" problem. Mornin' coffee. Mornin' grain. Mornin' wank. Margarine's tainted folly of hardened bliss, as you attempt to pry the vogue from your eyes with a pompadour pickaxe at 5:20am in the moonlight. Diabolical in the mud which seeps from your gums n' fizzles into the heart of your Special-K, programming Lucifer's spurious twiddle into an undying commitment of well-behaved utility. Shuckle up, bucko. It's time to cradle the flair.
+### Work Introduction
+<!--
+In work we trust. A plutocratic orgy of totalitarian devastation. The week's solution to the rampant "black" problem. Mornin' coffee. Mornin' grain. Mornin' wank. Margarine's tainted folly of hardened bliss, as you attempt to pry the vogue from your eyes with a pompadour pickaxe at 5:20am in the moonlight; diabolical in the mud which seeps from your gums n' fizzles into the heart of your Special-K. Programming Lucifer's spurious twiddle into an undying commitment of well-behaved utility. Shuckle up, bucko. It's time to cradle the flair.
 
 ### Touch Upon Editor Meeting
+-->
+Following this morning's disastrous ousting with the editor, I was truly in no mood to sort paper, snort chaffer, nor entertain the upper soiree with my two-time tap-plastic beat. What I truly wanted was a gun and a live-animal to contest with. An outlet to express the Conway of my debilitating sorrow, as I empty an entire magazine of 5.56 mm hollow point rounds into the mouth of a docile creature. Preferably in front of its own fawn.
 
-Following this morning's disastrous ousting with the editor, I was truly in no mood to sort paper, snort chaffer, nor entertain the upper soiree with my two-time tap-plastic beat. What I truly wanted was a gun and a live-animal to contest with; an outlet to express my debilitating sorrow, as I empty an entire magazine of 5.56 mm hollow point rounds into the mouth of a docile creature. Preferably, in front of its own fawn.
+"Fuckin' Alakazam!" The hostess would then announce in honorary procession, as I stand there victorious in an uncompromising vision of success against the hardened tyranny of moral expectation. Its shrapnel-imbued carcass, to be chewed and held by the length of its hobble ears, compressed and then violently ripped apart in a slobbering gob of ravioli slosh. The coursing blood from its flimsy corpse, gushing and staining the taffy white-righteous chastity of my teeth. As I awkwardly grin into the sun as to be captured in photographic memorium for future generations to inspire.
 
-"Fuckin' Alakazam!" The hostess would then announce me Big Akimbo™ in honorary procession, as I stand there victorious in an uncompromising vision of success against the hardened tyranny of moral expectation. Its shrapnel-imbued carcass, to be chewed and held by its hobble ears, and then compressed and violently ripped apart in a slobbering gob of ravioli slosh. The coursing blood from its flimsy corpse, gushing and staining the taffy white-righteous chastity of my teeth. As I awkwardly grin into the sun to be captured in photographic memorium for future generations to inspire.
+Big Akimbo™.
 
 ### Stuck Outside
 
@@ -128,12 +130,12 @@ I wasn't quite sure if the word "love" quite described how I felt about Milo. It
 
 Her intention was clear. As she gazed deep into my eyes, permissible to the lust her lips could no longer contain. Breaching. Pulsing. Effeminate in the approaching whisper of her venerous inhale; keenly aware of my tongue pressed against thine. Caring not of the consequences, I let myself flow into her body. As I forced my salacious hands all over her tight blouse. Snatching. Responding. Emphasising the pierce roundness of her supple nipples, fink upon the sociopathic untangle of her nettled hair. It was a chaotic storm of carnal indignation, earnest in its impassioned subversion of all humanity. It was everything I'd imagined it'd be, and more. Perfect. Rustled in the wistful jubilation of our emotions, we collectively decided to take a break from the tango, to recollect what was seemingly the greatest moment of my life.
 
-"Then take me out this Sunday," she continued. Realising quite suddenly that we were both still at work, beguilingly held down by the unpretentious expectations of pre-marital law. Consolidating the widish crease of her smitten hair into a stylish fondue of slick convenience, Milo swiftly returned to the plaid assuage of her former grave; wise and unflustered in an equanimous provocation of 3rd wave feminism.
+"Then take me out this Sunday," she continued. Realising quite suddenly that we were both still at work, beguilingly held down by the ano-archaic expectations of pre-marital law. Consolidating the widish crease of her smitten hair into a stylish fondue of slick convenience, Milo swiftly returned to the plaid assuage of her former grave; wise and unflustered in an equanimous provocation of 3rd wave feminism.
 
 ### Elevator ride back
--->
-Shaken subtly by the events prior, we both chatted casually on the elevator ride back to the kitchen. Although she feeling clearly giddy; numb in a licentious devour of hedonistic excitement, I could barely recognise these cataclysmal feelings of intimacy which had firmly conquered my brain. As we held hands like a disaffectionate pair of Russian teenagers ready to rob a convenience store, unsure of what the future held beyond addiction and civil-war. As my mind encircled in itself in a drain of seraphic scintillation; elated in the feeling that I'd suddenly died and reappeared in heaven. Finally, I would have the opportunity to have sex with the likes of Aphrodite herself. Just as God intended.
 
-Blending itself into a tangerine muse of teak stripes and amusing spaces, the kaleidoscopic walls of the office building assisted my palpitation all the way back to my desk. A true invention of stone. I picked up the mug on my desk and stared off into the distance, wondering what today would have been if I'd not gone for that cigarette. A different man. A broken husband.
+We both chatted casually on the elevator ride back to the kitchen; loose in a foray of dappled emotion, shaken subtly by the events prior. Although feeling giddy; numb in a licentious devour of hedonistic excitement. I could barely recognise these cataclysmic feelings of intimacy which had firmly conquered my brain. As we both held hands like a disaffectionate pair of Russian teenagers, ready to rob a convenience store; unsure of what the future held beyond addiction and civil-war. Encircling itself within a drain of seraphic scintillation, my mind was elated by the thought that I'd somehow died and reappeared in the midst of heaven. Finally, I would have the opportunity to have sex with the likes of Aphrodite herself. Just as God intended.
+
+Blending itself into a tangerine muse of teak stripes and enclosed spaces, the kaleidoscopic walls of the office interior assisted my palpitation to the very helm of my desk; a true invention of plywood stone. I then picked up the mug, staring off into the distance. Wondering what today would have been if I'd not gone for that fatal cigarette. A different man. A broken husband.
 
 ## Scene 3 END
