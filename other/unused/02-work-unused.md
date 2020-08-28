@@ -292,3 +292,38 @@ Vulnerable in her childish voice,
 
 
 Was this real? Was this finally happening? In a sense, it felt like we'd both been feeling these things for a while, although in reality, it felt more like being eaten alive by a Lion. My arms limp from the impact-trauma of smashing my head against a rock, as its large teeth tore through my legs, snapping bone n' blood into a sludge of stomach acid. I was both afraid and excited, with a dash of confusion to spread drama throughout my entire central nervous system. Largely, I wasn't even sure if she was being serious.
+
+
+
+
+ as if to suggest that my vulnerability was her permission to lust.
+
+
+"...and hold me, and tell me that everything was going to be okay as you rammed my tight little pussy with your giant cock?"
+
+
+"Would you kiss me like this?"
+
+licked the outline of her lips; pressing
+
+
+
+part of my soul had already entered the realm of heaven, I couldn't help but feel that something quite traumatic had just taken place. Even though it invigorated me beyond all words.
+
+
+Just as I'd always desired.
+
+ Maybe that's what made me afraid, not matching up to those lofty expectations I'd set in stone. I didn't want to delve on it any longer. I just wanted another cigarette.
+
+
+
+As Milo at her desk beside me,
+
+
+stood behind me, with a freshly made a
+
+ Milo decided to pick up a coffee and a grin in the kitchen, her two modern staples which kept her regular. She stood there with her legs crossed, passing me a smile at me as we both waited for her coffee to brew. Hoping she wasn't secretly crumbling inside, ready to run outside and into on-coming traffic.
+
+And then there was tonight's arrangement. Another interpersonal hurdle to overcome in this delorian urchin of lavish joy. Hoot. Hoot. Ho.
+
+
