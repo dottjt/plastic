@@ -330,3 +330,16 @@ And then there was tonight's arrangement. Another interpersonal hurdle to overco
 
 
 The hostess would then announce me Big Akimbo™ in honorary procession for the valiant killing
+
+; the principal subject of my internet search history
+
+
+She was a small personality trapped behind the over-sized smile of a frenzied coroner
+
+, in what appeared to be a nightly ritual of unconsecrated decimation
+
+nonchalant intricacies and
+
+s these halls had haunted for far too long.
+
+my intuition for even showing up to work at all
