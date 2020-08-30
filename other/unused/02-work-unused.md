@@ -343,3 +343,9 @@ nonchalant intricacies and
 s these halls had haunted for far too long.
 
 my intuition for even showing up to work at all
+
+quite so radically
+
+ The unfolding elevator doors revealed
+
+ I could sense an air of ambivalence that something wasn't quite right.
