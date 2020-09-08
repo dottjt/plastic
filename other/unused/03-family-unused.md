@@ -154,3 +154,12 @@ Fulfilled.
 even find the sensitivity attractive, before propositioning to hold me and later provide me with a cheeky hand-job in the latter part of the carriage. And if only I weren't such a good liar.
 
 Hallowing
+
+
+Gangrenous teeth.
+
+Toothpick in hand.
+
+
+
+It was just another languid leathery detail to be proven instrumental in thy treasonous plot to usurp the state; detrimental in its use as a basic kindergarten fleshlight, guilty to the fraud of Capitalist greed. The resulting Communist uproar delegated a wave of anger as far as the eye coud, as spiteful crowds gathered to watch the fetus burn in all its entirety.
