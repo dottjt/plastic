@@ -163,3 +163,8 @@ Toothpick in hand.
 
 
 It was just another languid leathery detail to be proven instrumental in thy treasonous plot to usurp the state; detrimental in its use as a basic kindergarten fleshlight, guilty to the fraud of Capitalist greed. The resulting Communist uproar delegated a wave of anger as far as the eye coud, as spiteful crowds gathered to watch the fetus burn in all its entirety.
+
+
+the primitive courage required to deal with
+
+ Welcome to the house of my mother.
