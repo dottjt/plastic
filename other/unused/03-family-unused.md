@@ -168,3 +168,10 @@ It was just another languid leathery detail to be proven instrumental in thy tre
 the primitive courage required to deal with
 
  Welcome to the house of my mother.
+
+
+ If only I could find a way to mask the awful stench of pre-historic white dick emanating from her pussy. That unbearable cauliflower smear which housed semen from the late 1940s'. Then and only then might I have worked up the courage to approach her in vain.
+
+
+
+at the helm,

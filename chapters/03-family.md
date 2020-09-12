@@ -40,12 +40,16 @@ Thankfully, she was also getting older. As her greying hairs dominated the narra
 ## Scene 2 START
 
 ### Mother Greeting
+
+"You're late!", larks a small upright figure. Face like a porcelain horse. Spatula in hand. Ready to strike at the given.
+
+"Fuck you," I respond in an immediate thrash of anger. At least that's what I wish I'd said, as my mother's viscous glare pervaded into the enusing silence of my buffeted despair; desperately attempting to seep from my mouth with the patent oxidation of an emotional creep. Prophesied to enact justice on thy foe. Perhaps it would serve as an impalpable excuse to knock her two front teeth out with the force of my bare knuckles; an opportunity to throw her stunned corpse into the full retirement of a disguised wood chipper. Chirpity. Chirp. Chip.
 -->
-"You're late!", larks a small upright figure, face like a porcelain horse. Spatula in hand. Ready to strike at the given.
 
-"I fucking hate you," I respond in an immediate thrash of anger. Actually, that wasn't quite what I said. It was more a moment of silence, if anything. An acknowledgement of the situation in civil terms, even though I could feel the outline of those words seep from my mouth, in a desperate attempt for oxidation, prophesied to enact justice on thy foe. An impalpable excuse to knock her out with my bare hands, and throw her stunned corpse into a wood chippery disguised as a retirement home. Chirpity. Chirp. Chip. If only I could find a way to mask the awful stench of pre-historic white dick emanating from her pussy. That unbearable cauliflower smear which housed semen from the late 1940s'. Then and only then might I have worked up the courage to approach her in vain.
+And without remise, kneeling in faithful gratitude for the Newtonic elements of the sun, was her helper. A frail old Estonian man with the Stockholm of a 
 
-And without remise, kneeling in faithful gratitude at the helm, was her helper. A frail Estonian man. Mr. Stockholm. The lord of preach and denial. Older, married and unsuitably kind. Neither lover, nor friend. Neither quaint, nor pretend. A farce. Amend. I never quite understood the relationship that the helper wore, only that he was one and she was infinity. The kind of doe-daddy calculation that would make even the most abstract of mathematicians want to cry. An adoration of cretin scum. Building. Sowing. Fortifying his leash on a mortified penance of penalty and punishment. A deception of human evolution. A carrier of shopping bags. Fall.
+
+. The lord of preach and denial. Older, married and unsuitably kind. Neither lover, nor friend. Neither quaint, nor pretend. A farce. Amend. I never quite understood the relationship that the helper wore, only that he was one and she was infinity. The kind of doe-daddy calculation that would make even the most abstract of mathematicians want to cry. An adoration of cretin scum. Building. Sowing. Fortifying his leash on a mortified penance of penalty and punishment. A deception of human evolution. A carrier of shopping bags. Fall.
 
 "Why don't you come to see me anymore? I'm your mother, you should treat me better." I suppose that summarised our relationship. A mechanical exchange of contracts and titles, quantified by your ability to cease and desist. An offer in one hand. Your life in the next. A sacred punishment which regressed itself as a motherly love, without the love, nor the necessity. Another sad case of right time, wrong hole. Dull me, honey.
 
@@ -105,3 +109,6 @@ Although I could feel myself gasping at the recklessness of my actions, lighthea
 I receive a text in broken English, lamenting her feelings. I delete it in anger, and yet the anger is too much. I close my laptop and break down in a tidal wave of emotion. Perhaps the lady sitting in front of me would be so kind as to offer her hand in sex, as we gently made love to each other in a sobbing pile of gleep. More realistically, she would continue to sit there, awkward at the attention I was drawing, before sending an unremorseful text to her partner about how unbearable her situation was, suggesting that they order pizza tonight to cope with the ramifications. For now it was just me and this brightly-lit space, alone in the repetition of my stomach seizing up and my nose feeling like a leaky tap of foreign medical waste. Now trapped inside my senses. I had tasted what it was like to be free.
 
 ## Scene 3 END
+
+
+
