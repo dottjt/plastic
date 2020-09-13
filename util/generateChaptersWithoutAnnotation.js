@@ -13,7 +13,7 @@ const generateChapterWithoutAnnotationsFile = async () => {
 
   for (const chapter of chapterList) {
     fse.outputFileSync(
-      `chapters-without-annotations/${chapter.file_name_string}`, 
+      `chapters-without-annotations/${chapter.file_name_string}`,
       chapter.chapter_text_string
     );
   }
