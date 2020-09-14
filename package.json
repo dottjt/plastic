@@ -5,6 +5,7 @@
   "main": "index.js",
   "scripts": {
     "generate-chapters-without-annotations": "node ./util/generateChaptersWithoutAnnotation.js",
+    "c": "npm run compile:book",
     "compile:book": "npm run compile:md && npm run compile:pub && open ./ebook/book.epub",
     "compile:md": "node ./util/generateBook.js",
     "compile:pub": "pandoc ./ebook/book.md --strip-comments --toc --toc-depth 2 --metadata-file ./ebook/book-metadata.yaml -o ./ebook/book.epub -f markdown -t epub",
