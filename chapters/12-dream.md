@@ -4,6 +4,8 @@ description: "A chapter where the character explains a dream he had."
 day: "Wednesday."
 ---
 
+<!-- I thought, maybe in this dream I could describe a typical music lesson I had with my clarinet lesson. It would just be an interesting additional scene. -->
+
 <!-- Maybe the title of this chapter should actually be relapse. Dream is probably more suitable. -->
 
 ## Scene 1 START

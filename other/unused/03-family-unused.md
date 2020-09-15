@@ -180,3 +180,17 @@ A frail old Estonian man with the wicker of a Stockholm sunrise
 
 
 Then in a sudden whirlwind of anchored correspondence, it became unreasonably clear to me that the woman standing in front of my very eyes was nothing more than
+
+
+with the colourful smut of a static interaction.
+
+Hell, you didn't even have to leave your own bedroom, let alone the confines of your own misery shame.
+
+
+Makeshift in the porphyria of its Claudeville affection.
+
+I mean, who'd knew that you could develop an OCD for sucking cock. Perhaps I would be next.
+
+So there I was. Sitting at my desk. Participating in my first gang-bang at the age of 12.
+
+ masturbating frantically to the faery gash of a pampered wraith, .
