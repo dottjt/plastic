@@ -199,3 +199,8 @@ So there I was. Sitting at my desk. Participating in my first gang-bang at the a
 rid thy putrid genes and instead,
 
 glamourous in the opportunity to introduce ourselves to
+
+A bashful kingdom of Vaseline warfare which your mind calls progress.
+
+
+. It was a slave craftmanship, reached out towards a broken family of none.
