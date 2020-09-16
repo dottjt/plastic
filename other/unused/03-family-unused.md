@@ -194,3 +194,8 @@ I mean, who'd knew that you could develop an OCD for sucking cock. Perhaps I wou
 So there I was. Sitting at my desk. Participating in my first gang-bang at the age of 12.
 
  masturbating frantically to the faery gash of a pampered wraith, .
+
+
+rid thy putrid genes and instead,
+
+glamourous in the opportunity to introduce ourselves to
