@@ -204,3 +204,28 @@ A bashful kingdom of Vaseline warfare which your mind calls progress.
 
 
 . It was a slave craftmanship, reached out towards a broken family of none.
+
+
+
+
+I decided to sit quietly at the vintage okay
+
+Towards the middle of the room lay a vintage oak dining table which reached out  towards a broken family of none.
+
+S patiently at the cusp of the manifold centerpiece,
+
+
+laden with enough dehydrated corn flour to kill a small child, and
+
+
+I suppose his absence didn't bother me.It's hard to bother about something that's not there. No one to blame. No one to praise. A bad meal at a pub at Wednesday prices. A Madonna print without a genuine signature.
+
+
+ to people who barely understand the value of language.
+
+ The beat-down was real and I was ready to represent.
+
+ With an ecstatic grin, I stand up from my chair, point my finger at her face, and I tell her to go fuck herself.
+
+
+And for the first time in life, I was absolutely dying to see how she would cope with the rejection I felt down to the lunacy of my paranoia.

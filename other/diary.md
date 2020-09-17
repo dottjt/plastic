@@ -1,5 +1,9 @@
 # diary.
 
+18/09/2020 - I've been working through my novel. It's taking a while to get through it, but it'll be worth it in the end. In part because the sections are just inherently complex to write, and I want to make sure that they're incredible. 
+
+17/09/2020 - I had this wierd thought, but I'm kind of like the Avicii of writing. I grab a lot of samples i.e. Theasurus, and I use it to create something beautiful. Will I get as big? Probably not.
+
 03/09/2020 - I've been really struggling with my mental health the past two days. I believe it's because I've come down from the high of working on NFD. There's also been one section in the `family` chapter which has been doing my head in, which I couldn't quite figure out. However, I've sorted that out now and it's fine. I've decided to stop working on NFD entirely and instead focus my efforts on writing my novel, as well as studying music and music production. That's what I want for my future.
 
 25/08/2020 - Making good progress on the novel. Unfortunately I wasn't able to work on the novel this weekend because I had to do a coding assignment for a job interview, but that's fine. I had a realisation today that I'm very much concerned with the way words sound and how they make you feel, as opposed to what they actually mean. Meaning to me is more than a common understanding
