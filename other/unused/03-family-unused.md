@@ -229,3 +229,12 @@ I suppose his absence didn't bother me.It's hard to bother about something that'
 
 
 And for the first time in life, I was absolutely dying to see how she would cope with the rejection I felt down to the lunacy of my paranoia.
+
+as plain as it had ever been since the onset of my birth
+
+Crisp. Satiate. Indulge.
+
+
+which channeled through the air with a crust of passion, only  understand
+
+ by the ignorance of my undoing
