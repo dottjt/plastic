@@ -238,3 +238,19 @@ Crisp. Satiate. Indulge.
 which channeled through the air with a crust of passion, only  understand
 
  by the ignorance of my undoing
+
+ in the scent of the raw documents outlining his death will.
+
+
+with the taser of a mini appetisers.
+
+appear from a grimy meat van
+
+
+with the ornament to be permanently lodged inside their vagina, forever bleed under the auspices of greed.
+
+The civility was bare, and the dragon was strong, although I doubt they could have ever imagined it any other way.
+
+lightheaded and without due, there was also .
+
+Blinding me in a calm tingle of persistent, which to this day, has never quite left me.
