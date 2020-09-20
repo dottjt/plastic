@@ -254,3 +254,38 @@ The civility was bare, and the dragon was strong, although I doubt they could ha
 lightheaded and without due, there was also .
 
 Blinding me in a calm tingle of persistent, which to this day, has never quite left me.
+
+
+ beat down upon my actions with the fierceness of a Terracotta warrior,
+
+
+the direction of my pensive disdain in
+
+
+the opulence which surrounded my step,
+
+residential
+
+of my boulevard surroundings,
+
+
+
+
+my barren attempt to simply shut down and remove myself from the world.
+
+was going to truly make it as a human reincarnation of the guilt which had pervaded my blood-line for thousands, upon thousands of years.
+
+ upon the tidal wave of emotion warbling up to my chest.
+
+
+For now it was just me and this brightly-lit space, alone in the repetition of my  up and my nose feeling like a leaky tap of foreign medical waste. Now
+
+
+in this brightly-lit space,
+
+
+
+I had tasted what it was like to be free.
+
+
+, in all their dialectic glory of amoral cheer
