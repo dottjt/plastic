@@ -289,3 +289,22 @@ I had tasted what it was like to be free.
 
 
 , in all their dialectic glory of amoral cheer
+
+
+
+Taunting my memories with the convene of its dreary pace into the  of this foreign carriage.
+
+
+, to be chewed n' gnawed by the psychopaths n' low-lives of this
+
+
+
+
+
+Either today's actions would serve as an ill-fated attempt at sealing my fate as an unforiging divorce,
+
+or instead allowing me to pervade through my rattled conscious with the blood-line of a seasoned murderer.
+
+
+
+'s misgivings in order to cope with the ramifications of my . 
