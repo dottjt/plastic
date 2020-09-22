@@ -307,4 +307,10 @@ or instead allowing me to pervade through my rattled conscious with the blood-li
 
 
 
-'s misgivings in order to cope with the ramifications of my . 
+'s misgivings in order to cope with the ramifications of my .
+
+voluntary calculation of
+; releasing itself into a ruthless bounty
+
+
+Fluorescent in its ambiguity.
