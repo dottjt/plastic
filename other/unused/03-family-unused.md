@@ -3,11 +3,18 @@
 Nancy's squirt n' trickle.
 A dollop of father's facial cream.
 
+Farewell, we roth in a baste of thy sin.
+
+
 It seems we've just described the particularities of a cunt, as we continue to pickle n' loam at the coquette mannequin drowning in the huzzah of a candilicious splice
+
+scattered in ensembles of three
 
 drowning in the huzzah
 
 glory
+
+illegible cuck
 
 The 21st Century Asian was a fickle creature which did not need what it saw, and only wanted what it was told. A Hollywood bonanza! of Western desires, labored inside a steel-reinforced inferiority complex constructed since birth. A base-model Mercedes Benz masked by the smell of a daughter's fetus, baked in the backseat on a hot summer's day. A council of status for the grey Asian men stalking the streets with a lead pipe and a desire for hard liquor. Wifebeater on. Military haircut engaged. Cigarette in ear. Toothpick in hand. Teeth in gangrene. Legs spread wide around a plate of Hungarian cheese, slopped around the mouth with a dollop of hoisin sauce. A walking, high-rise anatomy of plastic duty, paid in sex and cheap dinner meals. Just like mother ordered when Chiang Kai Shek and his gang, kicked down her front doors and raped her in a yellow collective. Oh, how me so sorry.
 
@@ -321,3 +328,19 @@ Fluorescent in its ambiguity.
 
 candilicious splice
 Chinese bordello
+
+scattered in ensembles of three
+
+
+
+
+contemporary to the grumble of the
+
+
+
+
+ posture of , as my eyes grew weary of the front facade declining my ability to default.
+
+ I was merely postponing
+
+   yearned for in his time on earth,
