@@ -344,3 +344,9 @@ contemporary to the grumble of the
  I was merely postponing
 
    yearned for in his time on earth,
+
+   persecute, dement n' imprisonment, to
+
+   , to the retraction of my marrow in this
+
+    an immaculate pride
