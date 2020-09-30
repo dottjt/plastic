@@ -350,3 +350,8 @@ contemporary to the grumble of the
    , to the retraction of my marrow in this
 
     an immaculate pride
+
+
+ stared at in a contemplation of wowzer suicide.
+
+ ; the kind of doe-daddy calculation applied-statistians contemplated in wowzer proportions
