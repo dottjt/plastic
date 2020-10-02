@@ -355,3 +355,16 @@ contemporary to the grumble of the
  stared at in a contemplation of wowzer suicide.
 
  ; the kind of doe-daddy calculation applied-statistians contemplated in wowzer proportions
+
+ to the mollifiable indifference of both plain and pleasure,
+
+
+
+
+ coping with her rankle attenuation in the only way I knew how. By consulting the
+
+ one's burst stomach to a point of
+
+ My digital palace of exhort,
+
+ within the shuttle confines of some late-night gas station restroom;

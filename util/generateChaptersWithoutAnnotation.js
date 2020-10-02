@@ -12,11 +12,15 @@ const generateChapterWithoutAnnotationsFile = async () => {
   ]);
 
   for (const chapter of chapterList) {
+    const fileNameStart = chapter.file_name_string.split('.')[0] + '-without-annotations';
+    const fileNameExt = chapter.file_name_string.split('.')[1];
+
     fse.outputFileSync(
-      `chapters-without-annotations/${chapter.file_name_string}`,
+      `chapters-without-annotations/${fileNameStart}.${fileNameExt}`,
       chapter.chapter_text_string
     );
   }
 };
 
 generateChapterWithoutAnnotationsFile();
+
