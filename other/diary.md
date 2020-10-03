@@ -1,6 +1,8 @@
 # diary.
 
-29/09/2020 - I've been doing around 40 minutes a day on the novel, slowly chipping away at it. This is just a process which is going to take time, and I've come to accept that. I don't worry about finishing the novel, I just feel happy to make progress on it each day and then eventually it will be completed, irrespective of how long it takes. 
+04/10/2020 - I feel like I'm the Skrillex of writers.
+
+29/09/2020 - I've been doing around 40 minutes a day on the novel, slowly chipping away at it. This is just a process which is going to take time, and I've come to accept that. I don't worry about finishing the novel, I just feel happy to make progress on it each day and then eventually it will be completed, irrespective of how long it takes.
 
 18/09/2020 - I've been working through my novel. It's taking a while to get through it, but it'll be worth it in the end. In part because the sections are just inherently complex to write, and I want to make sure that they're incredible.
 
