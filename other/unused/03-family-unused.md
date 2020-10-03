@@ -368,3 +368,12 @@ contemporary to the grumble of the
  My digital palace of exhort,
 
  within the shuttle confines of some late-night gas station restroom;
+
+ Straight into a tissue box o' sordid cum n' forgotten to the chamber of submissive dilema.
+
+ like an acquiescent metronome with the satiate of a fire.
+
+ This was life, and life was me. We were one, so go run free.
+
+
+identify which hole belongs to whom.
