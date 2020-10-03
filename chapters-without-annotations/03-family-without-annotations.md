@@ -38,7 +38,7 @@ At first it was mesmerising, like the forlet capture of an upbeat trend in the e
 
 I sat quietly at the dining table next to the helper, as he attempted to bite his ankles with the demeanour of a nettled dog; agitated by the trinkets n' scars which traversed across his face in an imperfect spiral of affronted indecision.
 -->
-Paws tenderly curled to the implicit clutch of his omelette fingers, which from a distance, appeared to employ the words 'I am a slave' in traditional Chinese. At least that's what I was willing to believe; unsure in the helper's smitten barm of deranged twitching. Infumate at the snuff which interlaced his gums in a bechamel twine of vagabond roulade. I guess I just didn't quite know how to respond, other than to advert my eyes with the kind of shrewd defiance only a seasoned English teacher would understand; haemorrhaging confidence with the abligurition of an omissible weasel. Conveniently, interupted by the dissolute linger of mother's yelling, to the very silence of our muted conversation.
+Paws tenderly curled to the implicit clutch of his omelette fingers, which from a distance, appeared to employ the words 'I am a slave' in traditional Chinese. At least that's what I was willing to believe. I guess I just didn't quite know how to respond to the helper's smitten antics, other than to advert my eyes with the kind of shrewd defiance only a seasoned English teacher would understand; haemorrhaging confidence with the abligurition of an omissible weasel. Infumate snuff which interlaced his gums in a bechamel twine of vagabond roulade. Conveniently interupted by the dissolute linger of mother's yelling, to the abrupt silence of our muted conversation.
 
 "Why aren't you helping bring food to table!?"
 
