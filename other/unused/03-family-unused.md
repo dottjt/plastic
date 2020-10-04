@@ -378,8 +378,11 @@ contemporary to the grumble of the
 
 identify which hole belongs to whom.
 
-
-
 with enough dehydrated corn-flour to kill a small child n' what seemed to be an assorted array of roasted porcupine,
 
-It contained at least enough familial nutrition to keep my mother's babbling at ease. 
+It contained at least enough familial nutrition to keep my mother's babbling at ease.
+
+ generally in criticism of my character not being more like hers.
+
+generally for not being more like her.
+

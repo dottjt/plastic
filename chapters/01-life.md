@@ -12,7 +12,7 @@ Welcome to life. A rancid fascination of all things particular. An overwhelming 
 
 ### Editor Introduction
 
-"Truly fantastic", announces the editor from across the room, as he swivels in his chair towards my general direction. Hesitant in a gleam of cheap cologne and uncompromising flattery; mouth struck brazen in a dyslexic haze of powdered aspartame and lopsided cheese squares. Inconspicuously store-bought, we presume, for our excited listeners at home. For he was the mindless operator who would introduce himself as my only lifeline into the world of publishing, and I was the pathetic liar who intended to milk his acquaintance for all it was worth.
+"Truly fantastic", announces the editor from across the room, as he swivels his chair towards my general direction. Hesitant in a gleam of cheap cologne n' uncompromising flattery; mouth struck brazen in a dyslexic haze of powdered aspartame and lopsided cheese squares. Inconspicuously store-bought, we presume, for our excited listeners at home. For he was the mindless operator who would introduce himself as my only lifeline into the world of publishing, and I was the pathetic liar who intended to milk his acquaintance for all it was worth.
 
 ### Editor Bluffs
 
