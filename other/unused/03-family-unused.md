@@ -386,3 +386,41 @@ It contained at least enough familial nutrition to keep my mother's babbling at 
 
 generally for not being more like her.
 
+As plain as it had ever been since the onset of my birth. The rise.
+
+
+Fraught with relegation at even slightest hint of opposition.
+
+And without a doubt, it was a moment I'd been awaiting since the dawn of time.
+
+ which flowed with the elegance of a forest meadow
+
+
+
+ which flowed with the
+
+
+only those with a heart could understand,
+
+
+ leaving behind a carnage
+
+ that even the  of time itself could barely remember the reason for its stay.
+
+
+we'd both come to know since the conception of time itself, leaving behind
+
+
+
+ even the foundations  could barely remember its .
+
+
+  , that not
+
+
+
+Without a word to suggest, she stood there mired in her own speechlessness.
+
+of Olympus
+
+through the billions
