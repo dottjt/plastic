@@ -1,5 +1,7 @@
 # diary.
 
+07/10/2020 - I'm finally done with the family chapter. I've done two big edits/rewrites of it and I'm happy with where it's at. Realistically there's a few more edits in there, but I'm happy with what it presents. I hope it'll get easier from here with the rest of the novel, with exception to the chapters that have yet to be written - given I editted those chapters quite a few times previous. Ah, well. Writing a novel was always bound to be a lengthy process, and that's perfectly fine too.
+
 04/10/2020 - I feel like I'm the Skrillex of writers.
 
 29/09/2020 - I've been doing around 40 minutes a day on the novel, slowly chipping away at it. This is just a process which is going to take time, and I've come to accept that. I don't worry about finishing the novel, I just feel happy to make progress on it each day and then eventually it will be completed, irrespective of how long it takes.

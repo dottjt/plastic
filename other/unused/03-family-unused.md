@@ -426,3 +426,34 @@ of Olympus
 through the billions
 
 Her hagridden bemoil, s
+
+Earnestly reflecting the strident revert of a Tennessee know-how, salient upon the Chinese upper-middle class n' their ideals of a .
+
+
+
+
+
+upheld
+
+ the elders had called "Wild Dragon"
+
+
+
+
+ . It was
+
+ mourning gin, to be unleashed with the outrage of a tonal meth addict.
+
+
+
+I breakdown. Tears engaged. . The attainment of my face, now
+
+Entrapped beneath the scorched bounty of an oscillating heart monitor.
+
+
+
+The tears in my eyes grow infinitely; orthodox bedeviled.
+
+I proceed to wipe the snot from my nose,
+
+ All with the precision of a German cylinder.
