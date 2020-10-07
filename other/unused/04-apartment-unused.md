@@ -42,7 +42,7 @@ to the foreboding impasse
 
 Breasts are held. Champagne is sauntered .
 
-
+It remains night for at least one more day,
 
 Although in keeping relevant with my response to the foreboding impasse, I simply yawned at the thought, testament to the brute resilience forcing it's way through the impenetrable perception I had of myself as the fucking Queen.
 
@@ -169,3 +169,6 @@ I receive another text from Milo. This time an image. Transparent red lace. Trim
 
 
  As beautiful as beauty could be.
+
+
+ be alive brewing illegitimate in my mind.

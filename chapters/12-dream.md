@@ -16,6 +16,8 @@ day: "Wednesday."
 
 <!-- Should it maybe still end in tragedy? -->
 
+Words aree the folly of a ghost. 
+
 I could feel her holding me.
 
 
