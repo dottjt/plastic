@@ -172,3 +172,14 @@ I receive another text from Milo. This time an image. Transparent red lace. Trim
 
 
  be alive brewing illegitimate in my mind.
+
+
+Maintaining its distance in the ever-reaching permissiveness of its anatomy. Offering genuine refuge in its chamber of despair.
+
+ worldly disenchantment with .
+
+Shrouded by
+
+this dishonest glob of human sinew, to the manufactured crusade of a man with the toneless
+
+his against the
