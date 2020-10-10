@@ -1,5 +1,7 @@
 # diary.
 
+10/10/2020 - I'm really, really, really struggling to edit this apartment chapter. I've hit a particularly troublesome bit, but that's just the nature of this novel. That's cool :)
+
 08/10/2020 - I'm absolutely breezing through the apartment chapter, largely because it's already very well editing, which makes me happy, because rewriting chapters 1 - 3 was a HUGE slog, and I mean that quite sincerely. Oh, and of course falselessness isn't a real word. Fuck you.
 
 07/10/2020 - I'm finally done with the family chapter. I've done two big edits/rewrites of it and I'm happy with where it's at. Realistically there's a few more edits in there, but I'm happy with what it presents. I hope it'll get easier from here with the rest of the novel, with exception to the chapters that have yet to be written - given I editted those chapters quite a few times previous. Ah, well. Writing a novel was always bound to be a lengthy process, and that's perfectly fine too.

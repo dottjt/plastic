@@ -176,10 +176,25 @@ I receive another text from Milo. This time an image. Transparent red lace. Trim
 
 Maintaining its distance in the ever-reaching permissiveness of its anatomy. Offering genuine refuge in its chamber of despair.
 
- worldly disenchantment with .
+  with .
 
 Shrouded by
 
 this dishonest glob of human sinew, to the manufactured crusade of a man with the toneless
 
 his against the
+
+
+
+This morning I was a manufactured crusade, shrouded by a dishonest glob of the  which gaffed
+
+Crone to metemptosis of a southern housewife,
+
+
+My forsaken body would then be merged into the evergreen tracts of society, like a deftly tact of oxidised gum.
+
+Enthralled by the
+
+by the fuddish gristle of my lude chin.
+
+to be clamoured and adored with protective rubber gloves,
