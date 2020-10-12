@@ -198,3 +198,6 @@ Enthralled by the
 by the fuddish gristle of my lude chin.
 
 to be clamoured and adored with protective rubber gloves,
+
+
+ demarcation that had formed into the crusty outer layer
