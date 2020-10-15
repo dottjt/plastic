@@ -1,5 +1,7 @@
 # diary.
 
+14/10/2020 - It's been hard these past days. I've gotten sick and I've been incredibly sleep deprived, but I had a massive sleep last night and I'm feeling better. Still very tired this morning, but tired in the sense of being well-rested. Mentally my mind has been on music production as well, instead of writing this book. But hey, it's great to have inspiration to pursue hobbies regardless!
+
 10/10/2020 - I'm really, really, really struggling to edit this apartment chapter. I've hit a particularly troublesome bit, but that's just the nature of this novel. That's cool :)
 
 08/10/2020 - I'm absolutely breezing through the apartment chapter, largely because it's already very well editing, which makes me happy, because rewriting chapters 1 - 3 was a HUGE slog, and I mean that quite sincerely. Oh, and of course falselessness isn't a real word. Fuck you.
