@@ -201,3 +201,13 @@ to be clamoured and adored with protective rubber gloves,
 
 
  demarcation that had formed into the crusty outer layer
+
+In the off-chance she would appear from underneath the floorboards at any given moment, with a knife n' a sponge or two.
+
+
+
+I simply wanted nothing more than to use her face as a rake to comfort the pebbles in my patio at the thought of her.
+
+Thankfully, pebbles arranged in perfect feng shui, which I'm sure her Botox-injected face wouldn't object to.
+
+The safe was always a ruse.

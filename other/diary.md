@@ -1,5 +1,7 @@
 # diary.
 
+22/10/2020 - I've been so overworked and stressed lately, due to the restructure and the lack of support I've been recieving, that I've simply been too depressed to write anything. It's really hard. Internally I just feel like crying, but that's just the way it is some times. We'll get through it. I think this morning I've finally had the spark of inspiration to not take myself for granted, and to prepare myself for the future. I want to workout again. I want to cut out the grains. Life will be brilliant. 
+
 14/10/2020 - It's been hard these past days. I've gotten sick and I've been incredibly sleep deprived, but I had a massive sleep last night and I'm feeling better. Still very tired this morning, but tired in the sense of being well-rested. Mentally my mind has been on music production as well, instead of writing this book. But hey, it's great to have inspiration to pursue hobbies regardless!
 
 10/10/2020 - I'm really, really, really struggling to edit this apartment chapter. I've hit a particularly troublesome bit, but that's just the nature of this novel. That's cool :)
