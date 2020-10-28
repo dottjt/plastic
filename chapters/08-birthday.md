@@ -12,7 +12,7 @@ day: "Saturday."
 
 ### Birthday Monologue
 
-A week of life passes by. The rain runs thin. My hair mauves dry. The work dulls. Today is my birthday. The loneliest day of the year. Crust upon the gallows of my bespawled clamour as the excess from my child-like face, droops n' slaws from the seize of my mother's tainted vagina. Heinous in its moulded cheese scum. Intent on pre-suffocating the elderly in a cacophony of debt n' engouled values. I was destined, at least for the next 24 hours, to remain an empty echo chamber of must-haves and has-beens. Slurry in an aimless deceit of exacerbated usury, grace upon the impression of a fuck-off grin.
+A week of life passes by. The rain runs thin. My hair mauves dry. The work dulls. Today is my birthday. The loneliest day of the year. Crust upon the gallows of my bespawled clamour as the excess from my child-like face, droops n' slaws from the seize of my mother's tainted vagina. Heinous in its moulded cheese scum. Intent on pre-suffocating the elderly in an oneiric of debt n' engouled values. I was destined, at least for the next 24 hours, to remain an empty echo chamber of must-haves and has-beens. Slurry in an aimless deceit of exacerbated usury, grace upon the impression of a fuck-off grin.
 
 ### Pondering Birthday
 
