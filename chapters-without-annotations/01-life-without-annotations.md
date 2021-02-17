@@ -1,29 +1,15 @@
----
-title: "life."
-description: "This chapter introduces the character, the editor, Chinatown, a Chinese Restaurant, as well as their conclusion."
-day: "Friday."
----
+# life.
 
-## Scene 1 START - editor.
-### Opening Monologue
 <!--
 Welcome to life. A rancid fascination of all things particular. An overwhelming sense of asymptotic reference. America's rag-doll daddy of putty intentions, spluttered vicious into the cultural misappropriation you witness before your very eyes. This is where all stories begin, end and...
 
-### Editor Introduction
-
 "Truly fantastic", announces the editor from across the room, as he swivels in his chair towards my general direction. Hesitant in a gleam of cheap cologne n' uncompromising flattery; mouth struck brazen in a dyslexic haze of powdered aspartame n' lopsided cheese squares. Inconspicuously store-bought, we presume, for our excited listeners at home. For he was the mindless operator who would introduce himself as my only lifeline into the world of publishing, and I was the pathetic liar who intended to milk his acquaintance for all it was worth.
-
-### Editor Bluffs
 
 "I really, really liked what you did there. I thought it was simply fantastic! The imagery. The sex appeal. I could definitely fuck that, if you know what I mean."
 
 Dawdled frantic onto a notepad fit suitably for a 90s' Nickelodeon pre-teen, it was clear he had no idea what he was talking about. Hell, I wasn't even quite sure if he knew who I was. Taint spank amongst the star-mangled biscuits adjourned thin across the maltodextrin fabric of his crumb-infused sweater. A crippled vagina. You know, perhaps this would spur the beginning of some laborious online prank, where I, the unwitting idiot, would become exposed as some part-time celebrity on a popular Japanese game show. A sure highlight in my floundering career as a writer, as I awaited the editor's cue to run uncunningly towards a hidden camera and shout "We got ya!" like a trained hyena on borrowed wheels. I mean, sure. I'd probably fuck it too. Me and my words dressed in mortal calamity. Blind in an unfortunate sexual encounter involving my last moments in an exploding orgasm, n' a terribly shy lackey with a syllable for a grin.
 
-### Describe Editor
-
 Well, I suppose it was the level of respect I garnered as an unknown assailant. Possibly attached to his meaningless gestures delivered haphazardly like the illegitimate leader of an unknown guerrilla war. Che Guevara au lite. The raved lunatic of a ritual patriarchal circle-jerk. Head o' the New an' Improved Mickey Mouse Club. Accent dripped-thick in the ancient tar of a dead Italian laid-limp over his heartless sleeves and into the repeating glares of purgatory; a cursory sanctuary for two-time real estate agents n' doofus car salesmen, as they wholesomely gathered round' thee poor in thy blessed ceremony of devout enumeration. Ultimately, the editor was a man propped n' reassured by the might n' glory of a three-hour Tony Robbins' lecture. Attentively witnessed in full three-minute summary. Basked in a level of self-gratification not last seen since the Holy Roman Empire. The cantankerous flicker of an ambivalent creep.
-
-### Describe Character
 
 Then across the border, sitting awkwardly by the wayside upon a facade of U.N. sponsored barbed-wire. Enclosed within the prevailing attitudes showering its vindictive tempest and echoing dialogues of sparklin' doubt n' lacklustre fashion, was moi. An unruly clash against the unsettling intentions revealing themselves in the faint colonies of pop-sweat rippling scarce throughout the bovine arcade of my skin. Revolting. Glorious. I couldn't have been more uncomfortable, nor under-represented in this fraudulent battering of intellectual deceit. But I assured myself that everything would be fine as long as I continued to embrace the sodomy, in full. Thankfully, Aristotle was blasphemous.
 
@@ -32,47 +18,27 @@ Then across the border, sitting awkwardly by the wayside upon a facade of U.N. s
 "Well yeah, that's basically why I'm here. To get my book published," sat an audaciously sad man, preoccupied firmly in the seat of this very chair. Helplessly situated in an uncaught mire of time. Conveniently puzzled at the present-day theatrics of this man's somewhat infectious outreach. It was like we were two incompatible fuck-buddies, internally shadowed by the billet schedule of our lesbian wives.
 -->
 
-### Character Discontent
-
 Then soon, an entire lifetime of small talk and faux pleasantry would transpire in my head. Capturing me in arrival at Dante's fuck-pen of ill-conceived trickery. Curtaillious damnation. The plague of a thousand deaths. And in the wisp that followed from the agonising sylph of the editor's dreaded words, bore the demons of rheumy and their defiled angels of necrophilic intent. Pinning me down upon the pewter of the hardwood floors below. Nailing my jaw into the rhymes of the deep oblivion churning me south. south. south. It was obvious at this point that I'd completely tuned out of whatever muffled point he was attempting to express. Although I imagine it involved fucking some other aspect of my work, akin to our misaligned rivalry which had now officially expired without a licence to care. Ultimately, he wanted to see himself in everything, and I simply wanted to be acknowledged, loved and possibly adored like a house cat on trial; possibly for dragging a dead subsidiary creature into the living room during a heated quarter-finals of Friday Night Football.
 
-### Character Describes Editor
-
 In a quench of thirst, I decided to reach for the mug o' water conveniently placed next to the picture of a scantily-dressed child. Tight cheerleader's seduce. Pink moose knuckle. Presumably reared to have the words "Daddy's girl" tattooed onto her forehead before being fucked in front of a live camera-crew and eager internet audience of millions. And as the lukewarm liquid of the polystyrene cup trickled down my throat and into the depths of my hunch, even my basic bodily fluids could sense the paltry catalogue of this poor man's attempt at azure. Within the space of a few hours, he had evolved into the middle-aged caricature of a homeless veteran, avidly deep-throating his prized roadkill for the thrill of the violence. The refulgence of his deadbeat practice. The falter of his mind; that filament of gore which doth shone bright upon the piercing tenement of his frail enthusiasm. Undoubtedly, I was being played the fool, as I forced myself to exhale deep into my lungs in an attempt to bring my smile into a full, unmatched forte.
-
-### Editor hungry
 
 "It's fast approaching twelve and I'd absolutely kill for a bite. You like Chinese? You're Chinese, right? I mean, you just have that slight gook look to you. No offense, cutter." Sure. I couldn't possibly have been offended by the blatant racism of your remark. In fact, nothing could have possibly offend me more than the pantomime presence of your existence, you unadultered sack of shit. I've scraped less-abrasive gunk from the self-mutilated pussy of a dead-hooker's final stand at a crackhouse clinic shootout, than I've spent today, hearing you mutter the two-ounce garbage tract of poorly-spoken English you claim is wholly integral to the left side of your brain.
 
 Ah, who even cares anymore. I'm sure his wanton style was just the kind of tautological caprice required to turn heads and kick books into the wounded hands of yesteryear's consumer. The kind of frolic that apparently, readers desperately wanted to fuck.
 
-## Scene 1 END
-
-####
-
-## Scene 2 START - chinatown.
-
-### Leaving the office
-
 Although I could identify the exit beyond the rows of offices which extended like a slinky into the poetic halls of post-consumerist antipathy, actually leaving the building itself proved futile. Between the wades of paper which defied the Law of Moses, to what seemed like a fossilised pocket of methane dating back to the Mesozoic period, left only enough oxygen within the building to support the efficient gills of literary agents and editors alike. Flustered and deprived, I attempted to trawl towards the door, as inconspicuous hoards of pamphlets and office stationary surrounded me in a merciless wildfire of nomadic appeal. Begging me to stay and offer my soul to The Lord of Decor, as The Lord sat idly by in a chromatic tone of poncy green. Cowering itself into a coddled destitution of shag carpeting and Macramé executions. From the cruft rhododendron wallpaper to the prissy carpet stains which revealed themselves as Tommy and Russ, absolutely nothing felt untarnished nor logically brave within this maze of frivolous scruffle and hard tactics.
 
 Even the mould from within the dark archival corners of the floor had gained somewhat of a celebrity status, occupied within the neglected pails of ancient writers' manuscripts, as they hissed and coughed like a Catholic choir of addled school children, singing thy Church's most forbidden hymn. Pleading to be read in their never-ending tomes of impermissible vagrancy. Although according to the editor, the display was little more than a haughty Machiavellian ruse; his eyes now fixed towards the large indecent apertures of the building's entrance. Keen to stuff his gobble with the delight of wheat and clarified pith. Through the unquivering hinge and back into the grasp of mainstream discourse, it had come time to reacquaint myself with the smack, bang and shovel of these mean city streets. If only to feel that little bit closer to home.
 
-### Chinatown Description
-
 Chinatown is the same everywhere you go. Unadorned paper laterns slathered in the inner-city embrace of thy particulate smog, carelessly branded in an uncanny menstruation of red, quadrilateral and a cast-iron yellow. As the colours are fucked and dribbled along an autistic array of blinding nationalism, comprised of a mass-produced line of chauvinistic spirit shoved senseless within an ornate red-envelope, raffishly stamped with orthogonal symbols of luck and whore. Conveniently placed within arm's distance of a burnt-out firecracker and an unsteady hit of Fentanyl. An ancient mechanism designed to forget n' impress, because as any good Chinaman worth his weight in Tang Dynasty gold knows, family and tradition always comes first. And when your dying relative collapses at your knees, vomiting coagulated semen in a patriotic display of sex and fervour. That's when you know you've truly made it as a father and son of the People's Republic of China.
 
 Colourful neon lights and piccadilly displays shroud the backdraw of Chinatown's twisted municipal lanes, harbouring the forgotten faces and contorted postures defying anatomy upon the cruft of their hairless bodies. Hauling what appears to be solidified scows of duck-fat along the rigid brick pathways their forefathers had travelled once before. It was a sign of both destination and reverence, leading us witless towards the contempt which without contention, had very much become fundamental to our very beings. As our souls found themselves annexed into the smells and riches of Grandma's chicken stock from the exalted balconies above. Palatably served amongst an impure confederation of tripe and blood jelly, the effervescent concotion proceeded to billow inside a enveloping cloud of pre-industrial steam. Engulfing a bamboo chorus of squeamish roe; twisting and wrying their molecular structure towards an undulating shriek of mass extinction. As their untenable screech bursts and cracks the tiny alveoli grasping at my lungs, presence to the deliberation of a fermented opium paste laid decorated upon a bed of kibbled rat hair. Resulting in what could only be described as an abomination of wretched torment; a fatal delicacy most Chinese commoners could not afford, lest they succumb to a sudden death of clenching decease at the helm of their last table.
-
-### Chinatown Description continues
 
 Flocking to the streets in a drove of excrement, naked children appear from the Vermintide folly of their shadows as they carelessly prance to the tune of a Communist funeral melody. Privates tucked deep inside their precious foreskin gashes, ripe for the zealous meat cleavers of Chinatown to apprehend. Thankfully, the Chinese butcher was a simple rice-loving man with a delicate wife-beating texture. Often wearing nothing but a kitchen apron and a silver-chain necklace, traditionally awarded during the first round of a fierce Mahjong beatdown. Cigarette in mouth. Cleaver in hand. Ready to beat the grease off his forsaken cock for the triumph and pride of the nation.
 
 Further down the road, emanating through a prudent haze of SARS and insect repellent, lay what appears to be a badly cut-up swine. Fit with a heinous cough and a regurgitated mouth full of disembowelled maggots, attracting both women and children alike. Beside the beast lay the scuttle remains of a young man knocked swift from his bike. Hit by a speeding lagoon, as it rode off into the distance without a trace or concern for the state of the bloodied man; his brain now a battered mess of week-old congee, haplessly conspiring within the confines of its own filth. Fortunately, the young man manages to outlast the swine by a few seconds, but only barely. As indeterminable traces of his splayed cortex streamed down into the sewers of the hotpot kitchen below, ready to serve today's special to the crowded few of a fantastic many.
 
 Then suddenly, the deafening tintinnabulation of the bells above began to chime their violent roar, signifying the co-ordinated efforts of a malnourished proletariat to commit gastronomic castration on a scale never seen before. As men and women alike, beat each other senseless over the cured offcuts of a tenderised Peking duck's asshole, considered by many to bring luck and good fortune. I had to escape. Fleeing from the madness of the scene, I catch sight of an old aunt in vile brown florals. Violently rubbing her clitoris with a pair of coarse chopsticks, before readying her gaze upon the supple cavern of her nephew's left ear; an exquisite acumen of sinew and flesh which was expected to be chewed in meditative silence whilst the child sat patiently in an unconscious state of collective starvation, in complete devotion towards mastering his fourth-grade assignment. I was horrified. It appeared that no one was safe, nor spared, in this fibrous materialisation of cannibalistic entropy. It was clear that the ravage of Chinatown had commenced, and that I was in no place to bear witness to its immolation. Fortunately, we were only moments away from our destination, as the chaos quietened and our our view widened into a most precarious shade of white; vanish into the cold darkness of the deplorable auditorium housing both wok and dispute, privy to the orbital apprenhesion our newfound sense of place had discovered. The duo had arrived, safe and sound.
-
-### Restaurant Arrival
 
 "I too had wanted to become a writer at some point in my life," the editor blurted, as if making some kind of ultimate sacrifice against his own will.
 
@@ -82,21 +48,11 @@ Although certain in what I heard, I wasn't quite sure how to respond, let alone 
 
 Jeering through the long-winded hallway bearing somewhat of a striking resemblance to a morgue, brought us to the final entrance consisting of an ingenius system of plastic-beads designed to keep white-face like editor out. Naturally, white-face did all it could to keep in, and thus a centuries' old tradition was broken. Not only by an Italian, but the worst kind of Italian. That is a third-generation Italian, and we were all none-the-wiser.
 
-### The Ming Description
-
 The muted Tudor frizzle of the dilapidated walls enclosing the Chinese palace (suitably named, The Ming) drew a familial sense of brooding, as I stepped through the battered corridors of the restaurant and into the bright fluorescent gaze of what appeared to be a mental ward for the orient. Laminate rows of empty chairs and muddied tables confounded the general sense of space attempting to enclose itself like a flower with no petals. Basically, the place was dead. Not a single customer was witnessed that day, aside from the crass reflection of the editor and I against the muted sheen of the white wall tiles before us. Juxtapose against the depleted faces of a trodden theatre affair, now racing frantically to eradicate all sense of pride and honour as part of a grand self-serving pursuit of cathartic emotional absolution known only to the Chinese community. And yet the place felt well-lived enough to create a sense of belonging akin to identifying a fellow rapist within the same prison. I catch the waitress smile, but only barely.
 
 Keen to demonstrate his own fallible sense of belonging, the editor signals towards the overwhelmed waitress by holding up his 1st and 3rd longest fingers; also known as the international sign of peace, only to be greeted by the waitress' heavily distilled face, as she guided us towards the booth in the far back corner of the asylum. I doubt she had a visa, although I'd be surprised if the editor did either.
 
-## Scene 2 END
-
-####
-
-## Scene 3 START - restaurant.
-
 The booth itself comfortably sat three. A necessary addition to accommodate for the timely inclusion of the editor's ego, a six-foot long mirage resembling the entire backbench of Republican-majority senate, in concession with the receptive tension of an unforgiving racist and his gook-inspired raciee. Much to his character, he politely shoved me out of the way to place his gargantuan ass onto the cushioned fabric of the revered corner seat below. Because as his guest, apparently the idea of anything less would have been considered a National Proclamation of Civil Disobedience. Don't forget to rape, steal n' murder at any cost, and be sure to gather the receipt come tax time to assure your place on Mr. Ming's throne. Perhaps it was just plain ol' American policy to be an asshole. Yes. I was almost certain of it.
-
-### The character mentions the book
 
 "Listen, bud. I know you think I'm not the brightest tool in the shed, but if you just knew some of the industry connections I had, I think you'd really look up to me." Unintentionally resolute in the Valium-enhanced confines of a sedated cliché, the editor felt dependable in the same way King Arthur felt magniloquence eating a bucket of fried chicken at his enigmatic Round Table. Hidden behind the Sicilian dazzle of his two-piece Dolce & Gabbana, endured a hairy gut of emollient dairy. Bursting with a gaseous reminder to shift positions every once n' a while, in order to avert the disturbance of the pro-biotic interplay preventing his body from detonating into a proliferating spiral of compounding Tzatziki. Another potential trauma to be conveyed to my therapist's ever-growing backlog of irrational condensation, brewing deep from within my mind.
 
@@ -108,8 +64,6 @@ The booth itself comfortably sat three. A necessary addition to accommodate for 
 
 "I mean, I gue...", he cuts me off.
 
-### The editor orders Chinese food
-
 "Hey waiter! Where are the dumps at! I'm just kiddin' missy. Alright, now don't get all chinky with me now, but I would really appreciate a fresh menu. This one smells like a fuckin', fried... fuckin', I don't know... pig's cunt! I bet you people eat that shit all the time." Erupting into the precipice of a deranged laughter, the editor attempts to grab the waiteress' arm in a sign of misplaced affection, only to be shrugged off and greeted by the stare of a young child ready to kill its own father.
 
 "Oh, and two seltzer waters please! The bubbly kind. Also, could you be a real sweetheart and turn the thermometer down a little? It's like tryin' throat-fuck a sauna in here." Stammered with the finesse of a bleated cow, the editor continued his verbal warble to the inexplicable rage of the choleric waitress. As he scanned through the menu with the accuracy of a dying senior, insisting that the waitress stand idly by to the laws of his cumbersome indecision; ink to be dispersed without consent. The waitress stood there with a look of calculated death, followed by what seemed to be an illegible barrage of Chinese cursive, as she aggressively carved her pen into the thin wafer of her notepad with the feirceness of a resentful storm. I suppose what truly perplexed me was how the editor had managed to degrade so explicitly into such a deplorable slosh of bigotry. Or had I simply fallen naive? Perhaps I'd become accustomed to role as the slant with no name. As another non-definitive cunder to be punt, serialised within the rhythmic guttural of an Anglo-Saxon nightmare.
@@ -118,13 +72,9 @@ The booth itself comfortably sat three. A necessary addition to accommodate for 
 
 "I think I'll have the..."
 
-### The editor further discovers book
-
 "So junior, tell me about this book then. Are we talkin' fantasy? I mean, I don't remember readin' about no goblins or nuthin'." The waitress had already left.
 
 For a moment we both stared at each other, captured by the silence of our shared misery; my anger growing ever-more substantial in the way his beady eyes would dart around the interior of his skull in an attempt to avoid eye contact. Perhaps we were simply too old, too bothered in our own ways to truly come to any sort of meaningful understanding. Perhaps he was just a fucking idiot who deserved to have his limbs shredded by the pounding obsession of a compact crusher. And aside from literally grabbing my spoon and shoving it into the sinuous socket of his undeserving eye, there was little I could do to contain the anger and frustration that had constructed itself into a maze of smouldering evisceration inside the plumonary artery of my heart. I felt entirely instructed to kill, and yet somehow I had remained composed enough to avert the necessity.
-
-### The character gives up
 
 "This reaaaallly isn't going to work out," detonates the words from my mouth with a dilectic fury. Keen on estranging this abhorrent excuse of a human being from the very face of this earth; only to be interrupted by the Chinese waitress and her blue and white laced bowls of hot steaming variety. Goop. Caught in a state of immense anarchy, the editor sat there distraught. Not only at my response, but also at the arrival of his lunch which had not existed moments before; overcome by his own crushing morality which he felt overwhelmingly responsible for, and yet entirely powerless to exploit. In a daze of repudiated apathy, I observed him sit in complete silence as he picked up his fork with a great tremble, bask upon the vehement warmth of his Singapore noodles which had most certainly not been sourced from Singapore. Hoping that the piffling steam from the oyster-sauce shimmer of his noodles would help ease the pain of rejection I had sought so assuredly to express from the very first hello. Instead, he broke down into a sobbing mess upon his own worst vulnerabilities, desperate to seek pretend once again.
 
@@ -138,16 +88,7 @@ For a moment we both stared at each other, captured by the silence of our shared
 
 "Does it even make a FUCKING difference, you FAT FUCK!? Go FUCK yourself you FAT CUNT! I'm done with this shit. I hope you lose your fucking job you WEAK PIECE OF SHIT." I left the table in an excess of disgust, hatred flowing from the blood which boiled from the cataracts in eyes, to the ventral in my nails. I was ready to kill.
 
-## Scene 3 END
-
-## Scene 4 START - Leave
-
-### Leaves Restaurant
-
 As I gawked my way out of The Ming, dead in a primal pursuit of counter-clock rage, I stopped for a moment in the middle of the sidewalk to recollect my thoughts amongst the artesian air, arresting my ability to break; a delicious bowl of ramen soup. That's what I craved, as my empty stomach gurgled into a churlish snicker of hunger n' regret. And yet as I walked down these disease-ridden lanes, plastered many times over with a volcanic certainty of cheap glue and holographic print, I couldn't quite shake the anger that I felt for life itself, as the tip of my knees sank raucously into the mound of my dinosaur-themed socks, like a slow-tide of faithlessness being dragged back into reef. I reassured myself that the editor was trash, and that I would find another individual to take his place. Even if it meant murdering an inordinate number of children to support the cause.
-
-### Chinese man prophecy
 
 Heading back through the twisted municipal lanes, I pass an old Chinese man selling chop-chop along the side of the road. Shouting at me in a roast of incomprehensible Chinese, perhaps the man recognised me as his illegitimate son. Perhaps he knew something that I didn't. I decided to throw him a dollar as he sat there bewildered, ecstatic at the generosity of my gesture. I was in no mood to play prophecy, and as I glanced down at my watch, I swore. Fuck. It was one in the afternoon and it was time to return to work. Hopefully no one had realised how long I'd disappeared for, although given my luck today, I certainly didn't bet on it.
 
-## Scene 4 END

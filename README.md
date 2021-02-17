@@ -149,3 +149,8 @@ Please check the `other` folder for relevant documentation on the novel.
 - https://diessi.ca/blog/writing-mode-in-vs-code/
 
 - https://jerichowriters.com/manuscript-presentation/ (I didn't mind the manuscript book styling)
+
+I also use this theasurus extensively throughout the novel. It just seems to work really well for me:
+- http://www.onelook.com/
+- http://www.onelook.com/reverse-dictionary.shtml
+

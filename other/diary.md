@@ -1,5 +1,11 @@
 # diary.
 
+12/02/2020 - It's been a very tough 4 months for me. My mental health has been circling a drain, however I can happily say that as of yesterday, something broke inside me and I've decided that I'm going to focus on my mental health and get better. I worked on the novel this morning in a very healthy and productive way, and I'm making good progress on it. I'm glad to be back :)
+
+22/01/2020 - I've been severely depressed lately. Largely because I've been in job hunting mode, and there's nothing more debilitating that applying for jobs. It's mostly the coding exercises that kill him. But anyway, I was reading about this guy https://astralcodexten.substack.com/p/still-alive and I think it got me inspired. Mostly due to the output, which sparked me to think "well fuck, if he can do it, then probably so can I". So let's give it a go. Let's write something that dazzles n' all that shit.
+
+18/01/2020 - Well, you son of a gun. It's been a while, but I've decided that it's time for me to write this novel again. Instead I've been taking my time to learn music related things, such as Ableton and Reaper and piano and singing and that has been my focus, but I don't know. I think
+
 28/10/2020 - I managed to wake up at a suitable time for once (5:20am) and wrote a few paragraphs of the novel, which was awesome!
 
 22/10/2020 - I've been so overworked and stressed lately, due to the restructure and the lack of support I've bceen recieving, that I've simply been too depressed to write anything. It's really hard. Internally I just feel like crying, but that's just the way it is some times. We'll get through it. I think this morning I've finally had the spark of inspiration to not take myself for granted, and to prepare myself for the future. I want to workout again. I want to cut out the grains. Life will be brilliant.
