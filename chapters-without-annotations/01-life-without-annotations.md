@@ -2,7 +2,7 @@
 
 Welcome to life. A rancid fascination of all things particular. An overwhelming sense of asymptotic reference. America's rag-doll daddy of putty intentions, spluttered vicious into the cultural misappropriation you witness before your very eyes. This is where all stories begin, end and...
 
-"Truly fantastic", announces the editor from across the room, as he swivels in his chair towards my general direction. Hesitant in a gleam of cheap cologne n' uncompromising flattery; mouth struck brazen in a dyslexic haze of powdered aspartame n' lopsided cheese squares. Inconspicuously store-bought, we presume, for our excited listeners at home. For this editor was the mindless operator who would introduce himself as my only lifeline into the world of publishing, and I was the pathetic liar who intended to milk his acquaintance for all it was worth.
+"Truly fantastic", announces the editor from across the room, as he swivels in his chair towards my general direction. Hesitant in a gleam of cheap cologne n' uncompromising flattery; mouth struck brazen in a dyslexic haze of powdered aspartame n' lopsided cheese squares. Inconspicuously store-bought, we presume, for our excited listeners at home. For he was the mindless operator who would introduce himself as my only lifeline into the world of publishing, and I was the pathetic liar who intended to milk his acquaintance for all it was worth.
 
 "I really, really liked what you did there. I thought it was simply fantastic! The imagery. The sex appeal. I could definitely fuck that, if you know what I mean."
 

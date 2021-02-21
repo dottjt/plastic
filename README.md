@@ -149,6 +149,7 @@ My previous workflow was to render everything with pandoc, however I'm now using
 
 You will also need to apply a css file to do this thing. Here is what you'll need to do to set that up:
 
+<!-- NOTE: This doesn't work for some reason, you'll just need to amend the original with what's in markdown_plugin_style -->
 `ln -s ./util/markdown_plugin_style.less /Users/dottjt/.mume/style.less`
 
 All those styles live in `./util/markdown_plugin_style.less`
