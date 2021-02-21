@@ -141,6 +141,18 @@ I imagine the manuscript will be finished sometime in 2021.
 
 Please check the `other` folder for relevant documentation on the novel.
 
+## Plugins
+
+First introduced: 21/02/21
+
+My previous workflow was to render everything with pandoc, however I'm now using the `Markdown Preview Enhanced` vscode extension to do this within the code editor. It should save me a considerably amount of time and effort.
+
+You will also need to apply a css file to do this thing. Here is what you'll need to do to set that up:
+
+`ln -s ./util/markdown_plugin_style.less /Users/dottjt/.mume/style.less`
+
+All those styles live in `./util/markdown_plugin_style.less`
+
 ## Potentially Useful Links
 
 - http://www.hemingwayapp.com/
@@ -151,6 +163,6 @@ Please check the `other` folder for relevant documentation on the novel.
 - https://jerichowriters.com/manuscript-presentation/ (I didn't mind the manuscript book styling)
 
 I also use this theasurus extensively throughout the novel. It just seems to work really well for me:
+
 - http://www.onelook.com/
 - http://www.onelook.com/reverse-dictionary.shtml
-

@@ -5,13 +5,14 @@ day: "Friday."
 ---
 
 ## Scene 1 START - editor.
+
 ### Opening Monologue
-<!--
+
 Welcome to life. A rancid fascination of all things particular. An overwhelming sense of asymptotic reference. America's rag-doll daddy of putty intentions, spluttered vicious into the cultural misappropriation you witness before your very eyes. This is where all stories begin, end and...
 
 ### Editor Introduction
 
-"Truly fantastic", announces the editor from across the room, as he swivels in his chair towards my general direction. Hesitant in a gleam of cheap cologne n' uncompromising flattery; mouth struck brazen in a dyslexic haze of powdered aspartame n' lopsided cheese squares. Inconspicuously store-bought, we presume, for our excited listeners at home. For he was the mindless operator who would introduce himself as my only lifeline into the world of publishing, and I was the pathetic liar who intended to milk his acquaintance for all it was worth.
+"Truly fantastic", announces the editor from across the room, as he swivels in his chair towards my general direction. Hesitant in a gleam of cheap cologne n' uncompromising flattery; mouth struck brazen in a dyslexic haze of powdered aspartame n' lopsided cheese squares. Inconspicuously store-bought, we presume, for our excited listeners at home. For this editor was the mindless operator who would introduce himself as my only lifeline into the world of publishing, and I was the pathetic liar who intended to milk his acquaintance for all it was worth.
 
 ### Editor Bluffs
 
@@ -54,8 +55,8 @@ Ah, who even cares anymore. I'm sure his wanton style was just the kind of tauto
 ## Scene 2 START - chinatown.
 
 ### Leaving the office
--->
-Although I could identify the street entrance beyond the rows of cubicles which extended like a slinky into the poetic halls of post-consumerist antipathy. Actually getting there proved futile. Between the wades of paper which defied Mosaic Law, to what seemed like a fossilised pocket of methane dating back to the Cenozoic period, left only enough oxygen within the building to support the efficient gills of literary agents and editors alike. Flustered and deprived, I attempted to trawl towards the door, as inconspicuous hoards of pamphlets and office stationary surrounded me in a merciless wildfire of nomadic appeal. Begging me to stay and offer my soul to The Lord of Decor, as The Lord sat idly by in a chromatic tone of poncy green. Cowering itself into a coddled destitution of shag carpeting and Macramé executions. From the cruft rhododendron wallpaper to the prissy carpet stains which revealed themselves as Tommy and Russ, absolutely nothing felt untarnished nor logically brave within this maze of frivolous scruffle and hard tactics.
+
+Although I could identify the cautery outline of the street entrance, beyond the rows of cubicles which extended like a slinky into the poetic halls of post-consumerist antipathy. Actually getting there proved futile. Between the wades of paper which defied Mosaic Law, to what seemed like a fossilised pocket of methane dating back to the Cenozoic period, left only enough oxygen within the building to support the efficient gills of literary agents and editors alike. Flustered and deprived, I attempted to trawl towards the door, as inconspicuous hoards of pamphlets and office stationary surrounded me in a merciless wildfire of nomadic appeal. Begging me to stay and offer my soul to The Lord of Decor, as The Lord sat idly by in a chromatic tone of poncy green. Cowering itself into a coddled destitution of shag carpeting and Macramé executions. From the cruft rhododendron wallpaper to the prissy carpet stains which revealed themselves as Tommy and Russ, absolutely nothing felt untarnished nor logically brave within this maze of frivolous scruffle and hard tactics.
 
 Even the mould from within the dark archival corners of the floor had gained somewhat of a celebrity status, occupied within the neglected pails of ancient writers' manuscripts, as they hissed and coughed like a Catholic choir of addled school children, singing thy Church's most forbidden hymn. Pleading to be read in their never-ending tomes of impermissible vagrancy. Although according to the editor, the display was little more than a haughty Machiavellian ruse; his eyes now fixed towards the large indecent apertures of the building's entrance. Keen to stuff his gobble with the delight of wheat and clarified pith. Through the unquivering hinge and back into the grasp of mainstream discourse, it had come time to reacquaint myself with the smack, bang and shovel of these mean city streets. If only to feel that little bit closer to home.
 

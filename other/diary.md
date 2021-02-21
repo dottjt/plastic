@@ -1,5 +1,7 @@
 # diary.
 
+21/02/2020 - I've been writing the novel and I've been focusing on my mental health. It's been good for me on multiple different levels. I bought a mac mini from a guy the other day and it's been a godsend. I absolutely love it. It's also made me reconsider how I write my novel, because my issue in the past is that I would render a new epub and then build it in the Book mac app, but it was super slow. But now I've decided that I'm going to do it within VS Code. It should speed up writing considerably. 
+
 12/02/2020 - It's been a very tough 4 months for me. My mental health has been circling a drain, however I can happily say that as of yesterday, something broke inside me and I've decided that I'm going to focus on my mental health and get better. I worked on the novel this morning in a very healthy and productive way, and I'm making good progress on it. I'm glad to be back :)
 
 22/01/2020 - I've been severely depressed lately. Largely because I've been in job hunting mode, and there's nothing more debilitating that applying for jobs. It's mostly the coding exercises that kill him. But anyway, I was reading about this guy https://astralcodexten.substack.com/p/still-alive and I think it got me inspired. Mostly due to the output, which sparked me to think "well fuck, if he can do it, then probably so can I". So let's give it a go. Let's write something that dazzles n' all that shit.

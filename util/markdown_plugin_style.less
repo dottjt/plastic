@@ -1,0 +1,96 @@
+
+/* Please visit the URL below for more information: */
+/*   https://shd101wyy.github.io/markdown-preview-enhanced/#/customize-css */
+
+// @text-color: rgb(230, 230, 230);
+// @background-color: rgb(58, 58, 58);
+
+// @text-color: rgb(206, 206, 206);
+// @background-color: rgb(68, 68, 68);
+
+// Preferred - Dark scale
+@text-color: rgb(216, 213, 213);
+@background-color: rgb(73, 73, 73);
+
+// Preferred - White scale
+// @text-color: rgb(73, 73, 73);
+// @background-color: rgb(232, 232, 232);
+
+// @text-color: rgb(223, 223, 223);
+// @text-color: rgb(189, 189, 190);
+
+body, .markdown-preview {
+  padding: 4rem!important;
+
+  background: @background-color;
+
+  display: flex!important;
+  flex-direction: column!important;
+  justify-content: flex-start!important;
+  align-items: center!important;
+}
+
+.markdown-preview.markdown-preview {
+  // modify your style here
+  // eg: background-color: blue;
+
+  h1, h2, h3, h4, h5, h6 {
+    color: @text-color;
+    text-align: left!important;
+    align-items: flex-start!important;
+  }
+
+  h3 {
+    display: none;
+  }
+
+  p {
+
+    // line-height: 1.3rem;
+    // letter-spacing: 0.2px;
+    // font-size: 0.95rem;
+    // font-weight: 500;
+    // max-width: 26rem;
+
+    // Preferred
+    line-height: 1.25rem;
+    letter-spacing: 0.2px;
+    font-size: 0.85rem;
+    font-weight: 500;
+    max-width: 24rem;
+
+    // line-height: 1.01rem;
+    // letter-spacing: 0.2px;
+    // font-size: 0.75rem;
+    // font-weight: 500;
+    // max-width: 20rem;
+
+    // font-family: "Helvetica Neue",Helvetica,"Segoe UI",Arial,freesans,sans-serif;
+    // font-size: 14px;
+    // line-height: 1.4;
+    // font-weight: 300;
+    // max-width: 26rem;
+  }
+
+
+  color: @text-color;
+  text-align: justify;
+  font-smooth: always;
+  hyphens: auto;
+
+  // Literary fiction
+  font-family: "Baskerville";
+
+  // Romantic Fiction
+  // font-family: "Sabon";
+
+  //
+  // font-family: "Bembo";
+  // font-family: "Garamond";
+  // font-family: "Janson";
+  // font-family: "Palatino";
+
+  // font-family: "San Francisco";
+  // font-weight: 400;
+  // src: url("https://applesocial.s3.amazonaws.com/assets/styles/fonts/sanfrancisco/sanfranciscodisplay-regular-webfont.woff");
+}
