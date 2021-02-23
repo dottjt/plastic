@@ -20,6 +20,8 @@ I imagine the manuscript will be finished sometime in 2021.
 - `scripts` - Bash scripts to push to Github + create word count.
 - `util` - Node.js scripts to compile the book and relevant files.
 
+Use the `h "commit message"` command to save to the repository. It is a function saved within the config.
+
 ## Plot Overview
 
 ### Chapter 01 - life. (DONE)
@@ -151,6 +153,20 @@ You will also need to apply a css file to do this thing. Here is what you'll nee
 
 <!-- NOTE: This doesn't work for some reason, you'll just need to amend the original with what's in markdown_plugin_style -->
 `ln -s ./util/markdown_plugin_style.less /Users/dottjt/.mume/style.less`
+
+## Generate Chapters Without Annotations
+
+I will need to add these back into the package.json when I'm ready to actually generate the
+
+"devDependencies": {
+  "husky": "^4.2.5"
+},
+"husky": {
+  "hooks": {
+    "pre-commit": "npm run generate-chapters-without-annotations && git add . && npm run compile:md",
+    "pre-push": ""
+  }
+}
 
 All those styles live in `./util/markdown_plugin_style.less`
 

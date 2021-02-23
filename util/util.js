@@ -1,4 +1,4 @@
-const fse = require('fs-extra');
+const fs = require('fs');
 
 // const stringFromArray = (website_content_array) => {
 //   let final_string = '';
