@@ -227,3 +227,5 @@ the deuce had pronounced flaccid in the same way mass-hysteria proved despondenc
 
 
  At the very least I understood how I didn't want my book published, abused and slawed in slimy knockdown of soaked arrest.
+
+ Fuchsia. Scuddle.
