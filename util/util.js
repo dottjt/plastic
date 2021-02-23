@@ -106,9 +106,9 @@ const extractData = (file_contents, file_name, type) => {
   }
 }
 
-const generateBookString = async folder => {
+const generateBookString = folder => {
   try {
-    const folder_files = await fse.readdir(`${folder}`, 'utf8');
+    const folder_files = fs.readdirSync(`${folder}`, 'utf8');
 
     const filtered_folder_files = folder_files.filter(file => (
       include_files.includes(file)
@@ -117,7 +117,7 @@ const generateBookString = async folder => {
     // let new_list = [];
     let new_string = '';
     for (const file_name of filtered_folder_files) {
-      const file_contents = await fse.readFile(`${folder}/${file_name}`, 'utf8');
+      const file_contents = fs.readFileSync(`${folder}/${file_name}`, 'utf8');
       const { /* new_list_item, */ new_string_item } = extractData(file_contents, file_name, PAGE_TYPE);
       // new_list.push(new_list_item);
       new_string += new_string_item;
@@ -131,9 +131,9 @@ const generateBookString = async folder => {
   }
 }
 
-const generateChapterWithoutAnnotationsString = async folder => {
+const generateChapterWithoutAnnotationsString = folder => {
   try {
-    const folder_files = await fse.readdir(`${folder}`, 'utf8');
+    const folder_files = fs.readdirSync(`${folder}`, 'utf8');
 
     const filtered_folder_files = folder_files.filter(file => (
       include_files.includes(file)
@@ -141,7 +141,7 @@ const generateChapterWithoutAnnotationsString = async folder => {
 
     let chapterTextArray = [];
     for (const file_name of filtered_folder_files) {
-      const file_contents = await fse.readFile(`${folder}/${file_name}`, 'utf8');
+      const file_contents = fs.readFileSync(`${folder}/${file_name}`, 'utf8');
       const { /* new_list_item, */ new_string_item } = extractData(file_contents, file_name, CWA_TYPE);
 
       chapterTextArray.push({

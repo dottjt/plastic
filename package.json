@@ -23,12 +23,8 @@
     "url": "https://github.com/dottjt/plastic/issues"
   },
   "homepage": "https://github.com/dottjt/plastic#readme",
-  "dependencies": {
-    "fs-extra": "^8.1.0"
-  },
-  "devDependencies": {
-    "husky": "^4.2.5",
-    "nodemon": "^2.0.4"
+  "//devDependencies": {
+    "husky": "^4.2.5"
   },
   "husky": {
     "hooks": {
