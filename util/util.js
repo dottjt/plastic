@@ -1,4 +1,5 @@
 const fs = require('fs');
+const { chapter_list } = require('./chapterList');
 
 // const stringFromArray = (website_content_array) => {
 //   let final_string = '';
@@ -10,17 +11,6 @@ const fs = require('fs');
 
 const CWA_TYPE = 'chapter-without-annotation';
 const PAGE_TYPE = 'page';
-
-const include_files = [
-  '01-life.md',
-  // '02-work.md',
-  // '03-family.md',
-  // '04-apartment.md',
-  // '05-date.md',
-  // '06-therapy.md',
-  // '07-gun.md',
-  // '08-birthday.md',
-];
 
 const fancyBreakString = () => `
 <div style="display: flex; justify-content: center; align-items: center;">
@@ -111,7 +101,7 @@ const generateBookString = folder => {
     const folder_files = fs.readdirSync(`${folder}`, 'utf8');
 
     const filtered_folder_files = folder_files.filter(file => (
-      include_files.includes(file)
+      chapter_list.includes(file)
     ));
 
     // let new_list = [];
@@ -136,7 +126,7 @@ const generateChapterWithoutAnnotationsString = folder => {
     const folder_files = fs.readdirSync(`${folder}`, 'utf8');
 
     const filtered_folder_files = folder_files.filter(file => (
-      include_files.includes(file)
+      chapter_list.includes(file)
     ));
 
     let chapterTextArray = [];
