@@ -231,3 +231,8 @@ the deuce had pronounced flaccid in the same way mass-hysteria proved despondenc
  Fuchsia. Scuddle.
 
  narcissistic Marxists
+
+  Maelstrom hellion, vassal to thy honourable Lord.
+
+
+  Hard tactics ensued.
