@@ -236,3 +236,8 @@ the deuce had pronounced flaccid in the same way mass-hysteria proved despondenc
 
 
   Hard tactics ensued.
+
+
+  Treading through the mist, we found ourselves a
+
+  ; untenable in the screech, burst n' crackle of my colluctancy.

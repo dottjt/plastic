@@ -1,5 +1,7 @@
 # diary.
 
+26/02/2020 - Making solid progress. I've been reading a book called Learned Optimism and it's taught me quite a lot about reframing things from the past, as well as dealing with current adversity. It's just fundamentally changed everything I know about myself and it's allow me to slowly whittle away at my inner pessimism. I am going to finish this damn book and it's going to be awesome :)
+
 23/02/2020 - I've been really anxious about writing my novel until today. But now with the new setup in vscode and the markdown previewer, writing the novel has become a joy again. It's really just the speed of iteration which is awesome. I can move so much quicker and it's a lot less frustrating as a result. I iterated a heap of the first chapter and I look forward to approaching other chapters as I go along :)
 
 21/02/2020 - I've been writing the novel and I've been focusing on my mental health. It's been good for me on multiple different levels. I bought a mac mini from a guy the other day and it's been a godsend. I absolutely love it. It's also made me reconsider how I write my novel, because my issue in the past is that I would render a new epub and then build it in the Book mac app, but it was super slow. But now I've decided that I'm going to do it within VS Code. It should speed up writing considerably.
