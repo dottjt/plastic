@@ -249,3 +249,5 @@ the deuce had pronounced flaccid in the same way mass-hysteria proved despondenc
 
 
 malnourished  to commit gastronomic castration on a scale never seen before.
+
+let alone comprehend what little meaning was left in this exchange of parasitic formalities.

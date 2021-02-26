@@ -3,15 +3,13 @@ title: "work."
 description: "This chapter describes his ideals of work, the receptionist, his workplace, his job, his love for Milo, date with Milo."
 day: "Friday."
 ---
-<!--
 ## Scene 1 START - Milo
 
 ### Work Introduction
 
-In work we trust. A plutocratic orgy of totalitarian devastation. This week's solution to the rampant "black" problem. Mornin' coffee. Mornin' grain. Mornin' wank. Margarine's tainted folly of hardened bliss, as you attempt to pry the vogue from your eyes with a pompadour pickaxe at 5:20am in the chthonic. Tizzle n' rawr. Sizzle n' bliss. Diabolical in the mud which seeps from your gums n' fizzles into the heart of your Special-K. Inconveniently programming Lucifer's spurious twiddle into an undying commitment of well-behaved utility n' bacon-wrapped obsolescence. Shuckle up, bucko. It's time we cradle the flair.
+In work we trust. A plutocratic orgy of totalitarian devastation. This week's solution to the rampant "black" problem. Mornin' coffee. Mornin' grain. Mornin' wank. Margarine's tainted folly of hardened bliss, as you attempt to pry the vogue from your eyes with a pompadour pickaxe at 5:20am in the chthonic. Diabolical in the mud which seeps from your gums n' fizzles into the heart of your Special-K. Inconveniently programming Lucifer's spurious twiddle into an undying commitment of well-behaved utility n' bacon-wrapped obsolescence. Shuckle up, bucko. It's time we cradle this flair.
 
 ### Touch Upon Editor Meeting
--->
 Following this morning's disastrous ousting with the editor, I was truly in no mood to sort paper. Snort chaffer. Nor entertain the upper soiree with my two-time tap-plastic beat. What I truly wanted was a gun and a live-animal to contest with. An outlet to express the debilitating familiarity of my own psychological sorrow, as I proceed to empty an entire magazine of 5.56 mm hollow point rounds into the mouth of a docile creature. Preferably in front of its own fawn.
 
 "Fuckin' Alakazam!" the hostess would then announce in honorary procession, referring to me solely as Big Akimbo™. As I stand there victorious in an uncompromising vision of success against the hardened tyranny of moral expectation. Its shrapnel-imbued carcass. To be chewed and held by the length of its hobble ears, compressed and then violently ripped apart into a slobbering gob of ravioli slosh; the coursing blood from its flimsy corpse, gushing and staining the taffy white-righteous chastity of my teeth. As I grin awkwardly into the sun to be captured in photographic memorium for future generations to inspire.
