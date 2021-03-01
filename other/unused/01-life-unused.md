@@ -250,3 +250,10 @@ the deuce had pronounced flaccid in the same way mass-hysteria proved despondenc
 malnourished  to commit gastronomic castration on a scale never seen before.
 
 let alone comprehend what little meaning was left in this exchange of parasitic formalities.
+
+And yet the place felt well-lived enough to create a sense of belonging akin to identifying a fellow rapist within the same prison.
+
+Prime along the muted sheen of the white wall tiles judding rim; j
+
+
+known only to the Chinese community I catch the waitress smile, but only barely.
