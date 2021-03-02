@@ -22,11 +22,6 @@ body, .markdown-preview {
   padding: 4rem!important;
 
   background: @background-color;
-
-  display: flex!important;
-  flex-direction: column!important;
-  justify-content: flex-start!important;
-  align-items: center!important;
 }
 
 .markdown-preview.markdown-preview {
@@ -35,8 +30,11 @@ body, .markdown-preview {
 
   h1, h2, h3, h4, h5, h6 {
     color: @text-color;
-    text-align: left!important;
-    align-items: flex-start!important;
+
+    margin: 0 auto;
+    margin-top: 2rem;
+    margin-bottom: 2rem;
+    max-width: 24rem;
   }
 
   h2 {
@@ -48,6 +46,9 @@ body, .markdown-preview {
   }
 
   p {
+    margin: 0 auto;
+    margin-top: 1.4rem;
+    margin-bottom: 1.4rem;
 
     // line-height: 1.2rem;
     // letter-spacing: 0.2px;

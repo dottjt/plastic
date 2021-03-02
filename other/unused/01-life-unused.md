@@ -257,3 +257,15 @@ Prime along the muted sheen of the white wall tiles judding rim; j
 
 
 known only to the Chinese community I catch the waitress smile, but only barely.
+
+
+Juxtapose against the depleted faces of a trodden theatre affair, now racing frantically to eradicate all sense of pride n' honour as part of a grand self-serving pursuit of cathartic emotional absolution.
+
+I doubt she had a visa, although I'd be surprised if the editor did either.
+
+integral the disturbance of the
+
+
+along with the ever-growing backlog of irrational condensation my mind seems to originate
+
+
