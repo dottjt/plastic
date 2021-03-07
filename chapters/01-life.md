@@ -110,7 +110,7 @@ The editor felt dependable in the same way King Arthur felt magniloquence at the
 
 ### The editor orders Chinese food
 -->
-"Hey, waiter! Where are the dumps at! I'm just kiddin' miss. Alright, now don't get all chinky with me now, but I would really appreciate a fresh menu. This one smells like a fuckin', fried... fuckin'... I don't know... pig's cunt! I bet you people eat that shit all the time."
+"Hey, waiter! Where are the dumps at! I'm just kiddin' miss. Alright, now don't get all chinky with me now. But I would really appreciate a fresh menu. This one smells like a fuckin', fried... fuckin'... I don't know... pig's cunt! I bet you people eat that shit all the time."
 
 Then erupting into the precipice of a deranged laughter, the editor attempts to grab the waiteress' arm in a sign of misplaced affection, only to be shrugged off and greeted with the stare of a young child ready to kill its own father.
 
