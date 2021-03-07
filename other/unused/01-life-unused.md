@@ -269,3 +269,7 @@ integral the disturbance of the
 along with the ever-growing backlog of irrational condensation my mind seems to originate
 
 
+
+Wait. What? Who knows. Maybe my therapist would even find my dialogue constructive. You know, like a Shakespearean sex scene gone wild. Or something.
+
+Attempting to mutter malformed baby gibberish, his presence remains somewhat cautiously silent,
